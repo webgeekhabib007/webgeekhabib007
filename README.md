@@ -37,7 +37,7 @@
 <a href="https://medium.com/@webgeekhabib007" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/medium.svg" alt="@webgeekhabib007" height="30" width="40" /></a>
 <a href="https://www.codechef.com/users/habib036" target="blank"><img align="center" src="https://cdn.jsdelivr.net/npm/simple-icons@3.1.0/icons/codechef.svg" alt="habib036" height="30" width="40" /></a>
 <a href="https://codeforces.com/profile/codecrusader036" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/codeforces.svg" alt="codecrusader036" height="30" width="40" /></a>
-<a href="https://www.leetcode.com/habib036" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/leet-code.svg" alt="habib036" height="30" width="40" /></a>
+<a href="https://leetcode.com/hr665102/" target="blank"><img align="center" src="https://raw.githubusercontent.com/rahuldkjain/github-profile-readme-generator/master/src/images/icons/Social/leet-code.svg" alt="habib036" height="30" width="40" /></a>
 </p>
 
 
