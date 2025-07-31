@@ -57,7 +57,10 @@
 ### 😂 Random Dev Meme
 
 <p align="center">
-  <img src="https://meme-api.com/gimme" width="400" alt="Random Meme" />
+    <!-- MEME-START -->
+    **Loading meme...**  
+    <img src="https://via.placeholder.com/500x300?text=Loading+meme..." alt="Random Meme" width="500"/>
+    <!-- MEME-END -->
 </p>
 
 ---
