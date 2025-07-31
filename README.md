@@ -13,7 +13,7 @@
 - 📝 I write regularly on [Money-Hustler.com](https://money-hustler.com)
 - 💬 Ask me about **React, Node.js, JavaScript**
 - 📫 Reach me at **hr665102@gmail.com**
-- ⚡ Fun fact: _It is funny that I'm a koder._
+
 
 ---
 
@@ -35,8 +35,9 @@
 <p align="center">
   <img src="https://github-readme-stats.vercel.app/api?username=webgeekhabib007&show_icons=true&locale=en" alt="GitHub Stats" />
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=webgeekhabib007&layout=compact&hide_border=true" alt="Top Languages" />
-  <img src="https://github-readme-streak-stats.herokuapp.com/?user=webgeekhabib007" alt="GitHub Streak" />
+  
 </p>
+[![GitHub Streak](https://streak-stats.demolab.com/?user=DenverCoder1)](https://git.io/streak-stats)
 
 ---
 
