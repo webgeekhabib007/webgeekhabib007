@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's impossible**  
-<img src="https://preview.redd.it/vi82ijl2b5gf1.gif?width=320&crop=smart&format=png8&s=54113b259077a02bbf7f1e09061f017af235cd71" alt="Random Meme" width="500"/>
+**We're all wrong, but right**  
+<img src="https://preview.redd.it/nc38skbmczff1.gif?width=640&crop=smart&format=png8&s=1f524be9b6d2d87fd4689ebefa1b49a05ce420a2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
