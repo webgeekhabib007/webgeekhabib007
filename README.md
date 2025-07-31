@@ -54,14 +54,13 @@
 
 ---
 
-### 😂 Random Dev Meme
+### 😂 Random Meme
 
-<p align="center">
-    <!-- MEME-START -->
-    **Loading meme...**  
-    <img src="https://via.placeholder.com/500x300?text=Loading+meme..." alt="Random Meme" width="500"/>
-    <!-- MEME-END -->
-</p>
+<!-- MEME-START -->
+**Loading meme...**  
+<img src="https://via.placeholder.com/500x300?text=Loading+meme..." alt="Random Meme" width="500"/>
+<!-- MEME-END -->
+
 
 ---
 
