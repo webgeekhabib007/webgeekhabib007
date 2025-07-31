@@ -57,8 +57,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Loading meme...**  
-<img src="https://via.placeholder.com/500x300?text=Loading+meme..." alt="Random Meme" width="500"/>
+**It's impossible**  
+<img src="https://preview.redd.it/vi82ijl2b5gf1.gif?width=320&crop=smart&format=png8&s=54113b259077a02bbf7f1e09061f017af235cd71" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
