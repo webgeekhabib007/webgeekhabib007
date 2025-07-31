@@ -35,7 +35,7 @@
 <p align="center">
   <img src="https://github-readme-stats.vercel.app/api?username=webgeekhabib007&show_icons=true&locale=en" alt="GitHub Stats" />
   <img src="https://github-readme-stats.vercel.app/api/top-langs/?username=webgeekhabib007&layout=compact&hide_border=true" alt="Top Languages" />
-  
+  <img align="center" src="https://github-readme-streak-stats.herokuapp.com/?user=webgeekhabib007&" alt="webgeekhabib007" />
 </p>
 [![GitHub Streak](https://streak-stats.demolab.com/?user=DenverCoder1)](https://git.io/streak-stats)
 
