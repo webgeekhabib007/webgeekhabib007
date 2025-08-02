@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is he blinking or winking?**  
-<img src="https://preview.redd.it/wmvfsmcv3agf1.gif?width=640&crop=smart&format=png8&s=15910f527a1204dda30e5a629300edf18f2a2743" alt="Random Meme" width="500"/>
+**Ik damn well they wouldn't cover superhero battles**  
+<img src="https://preview.redd.it/5nk37f9mhcgf1.gif?width=216&crop=smart&format=png8&s=97fcec38fc9c072b751605b34fbebdc4db802be3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
