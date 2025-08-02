@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I’ve got a golden ticket out of this DUI**  
-<img src="https://preview.redd.it/mx67zgzazigf1.gif?width=320&crop=smart&format=png8&s=f0170233532650c3b016fb682d7c17352ab16fa5" alt="Random Meme" width="500"/>
+**I rest my case.**  
+<img src="https://preview.redd.it/pq5sk4xmblgf1.gif?width=320&crop=smart&format=png8&s=988e452e9f117463f4d8c3de464e15ba00ff9961" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
