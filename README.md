@@ -59,7 +59,7 @@
 
 <!-- MEME-START -->
 **He Gets Us**  
-<img src="https://preview.redd.it/lkqoilwqn0gf1.png?width=960&crop=smart&auto=webp&s=030fad55aac172f515ccf4cbefdd91c715c8d8fd" alt="Random Meme" width="500"/>
+<img src="https://preview.redd.it/owxrzez7vfgf1.png?width=960&crop=smart&auto=webp&s=93575acd57c5435f32a513fb814a49f02981840c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
