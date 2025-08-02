@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I ain't worried about him at all**  
-<img src="https://preview.redd.it/o8zrqyxsz5gf1.gif?width=640&crop=smart&format=png8&s=70ab79316e798a55995424af8e188cbf4e211257" alt="Random Meme" width="500"/>
+**Surely nothing will ever get leaked**  
+<img src="https://preview.redd.it/gms8y4pxyegf1.png?width=640&crop=smart&auto=webp&s=41851e81af9304c99be6749982393e75ac9ab8dd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
