@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Surely nothing will ever get leaked**  
-<img src="https://preview.redd.it/gms8y4pxyegf1.png?width=640&crop=smart&auto=webp&s=41851e81af9304c99be6749982393e75ac9ab8dd" alt="Random Meme" width="500"/>
+**I’ve got a golden ticket out of this DUI**  
+<img src="https://preview.redd.it/mx67zgzazigf1.gif?width=320&crop=smart&format=png8&s=f0170233532650c3b016fb682d7c17352ab16fa5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
