@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**don't forget groks past guys, don't let the anime girl distract you**  
-<img src="https://preview.redd.it/jh6kvcfcukgf1.png?width=320&crop=smart&auto=webp&s=ca6884b92975bc320b09f19a76a0d72d84d726c4" alt="Random Meme" width="500"/>
+**Surely nothing will ever get leaked**  
+<img src="https://preview.redd.it/gms8y4pxyegf1.png?width=640&crop=smart&auto=webp&s=41851e81af9304c99be6749982393e75ac9ab8dd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
