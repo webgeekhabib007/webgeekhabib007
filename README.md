@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/0zsf6wp1mhgf1.png?width=640&crop=smart&auto=webp&s=cc20a056e3e04623c69cb8236898096fe15b0699" alt="Random Meme" width="500"/>
+**Pog let's go**  
+<img src="https://preview.redd.it/6g4jk6ppeggf1.gif?width=320&crop=smart&format=png8&s=a68cdfbdb684c1a008e0fcbbb0c3aeadc9ca8c1c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
