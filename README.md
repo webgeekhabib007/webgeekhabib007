@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It have arrived**  
-<img src="https://preview.redd.it/1gex47q24egf1.png?width=960&crop=smart&auto=webp&s=5ff83bfad499796795966319fbd58eb2e1561879" alt="Random Meme" width="500"/>
+**Found an old meme of mine from years ago**  
+<img src="https://preview.redd.it/nz376bdlubgf1.png?width=320&crop=smart&auto=webp&s=32a1728a641481b4cc5dd3a397c1150a7234c5c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
