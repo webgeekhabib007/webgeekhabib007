@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Its a Phenomenon !**  
-<img src="https://preview.redd.it/tjbfwbphvmgf1.png?width=960&crop=smart&auto=webp&s=3415eb43260be2a3bbe50fbe2155e90364615912" alt="Random Meme" width="500"/>
+**don't forget groks past guys, don't let the anime girl distract you**  
+<img src="https://preview.redd.it/jh6kvcfcukgf1.png?width=320&crop=smart&auto=webp&s=ca6884b92975bc320b09f19a76a0d72d84d726c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
