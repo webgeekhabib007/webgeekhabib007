@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/0zsf6wp1mhgf1.png?width=640&crop=smart&auto=webp&s=cc20a056e3e04623c69cb8236898096fe15b0699" alt="Random Meme" width="500"/>
+**Sonic in modern days**  
+<img src="https://preview.redd.it/dznwrvewekgf1.png?width=1080&crop=smart&auto=webp&s=c3c9bb4fe5d6bb5ae5d36c4941735362fadad004" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
