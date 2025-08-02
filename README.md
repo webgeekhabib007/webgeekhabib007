@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I rest my case.**  
-<img src="https://preview.redd.it/pq5sk4xmblgf1.gif?width=320&crop=smart&format=png8&s=988e452e9f117463f4d8c3de464e15ba00ff9961" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/y3s348yj66gf1.png?width=640&crop=smart&auto=webp&s=2dad16d7cd991f391a8d13f836638b95f8e577d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
