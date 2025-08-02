@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/shk8f0wbh9gf1.png?width=960&crop=smart&auto=webp&s=ce5f911529ef5ff40fb9159445b51a9b062b01d9" alt="Random Meme" width="500"/>
+**Roses are Red, Violets are Blue**  
+<img src="https://preview.redd.it/0m0jdwvs1fgf1.png?width=320&crop=smart&auto=webp&s=2e611af05e2acba780efe9694224a0181211e90f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
