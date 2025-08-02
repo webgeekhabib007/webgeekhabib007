@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ik damn well they wouldn't cover superhero battles**  
-<img src="https://preview.redd.it/5nk37f9mhcgf1.gif?width=216&crop=smart&format=png8&s=97fcec38fc9c072b751605b34fbebdc4db802be3" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/0zsf6wp1mhgf1.png?width=640&crop=smart&auto=webp&s=cc20a056e3e04623c69cb8236898096fe15b0699" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
