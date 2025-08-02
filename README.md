@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/shk8f0wbh9gf1.png?width=960&crop=smart&auto=webp&s=ce5f911529ef5ff40fb9159445b51a9b062b01d9" alt="Random Meme" width="500"/>
+**I ain't worried about him at all**  
+<img src="https://preview.redd.it/o8zrqyxsz5gf1.gif?width=640&crop=smart&format=png8&s=70ab79316e798a55995424af8e188cbf4e211257" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
