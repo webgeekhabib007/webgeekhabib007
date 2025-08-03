@@ -59,7 +59,7 @@
 
 <!-- MEME-START -->
 **me_irl**  
-<img src="https://preview.redd.it/3z0zmvwhwogf1.gif?width=320&crop=smart&format=png8&s=a9d9af740b8fbcfb4548e06e83f07ac1f64bb704" alt="Random Meme" width="500"/>
+<img src="https://preview.redd.it/clbjsy5azjgf1.png?width=1080&crop=smart&auto=webp&s=debde789fc1afc64b3af3ef219c433c8ff7a6478" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
