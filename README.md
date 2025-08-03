@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just put the fries in the bag bro**  
-<img src="https://preview.redd.it/uprqhahenngf1.png?width=1080&crop=smart&auto=webp&s=ce84cb5da388c8dc0bd935081e171cc6d41945bc" alt="Random Meme" width="500"/>
+**Can you taste what the rocks cooking?**  
+<img src="https://preview.redd.it/vhixthlxmggf1.gif?width=640&crop=smart&format=png8&s=ca24f87fabef20bf827d4380145c45d6dc9bde5b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
