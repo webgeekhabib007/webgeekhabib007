@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Was sobbing like a baby. Now I feel weird.**  
-<img src="https://preview.redd.it/odbn5am7iogf1.png?width=1080&crop=smart&auto=webp&s=ca766df8ee2b09e5c9224e432cd61add208637ed" alt="Random Meme" width="500"/>
+**those mfk literally control the mind and body of some insects**  
+<img src="https://preview.redd.it/fr0tytf97ngf1.gif?width=640&crop=smart&format=png8&s=b6bab2157988e3b87ce463641bb37208e417c7b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
