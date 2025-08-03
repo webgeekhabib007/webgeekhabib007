@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He Gets Us**  
-<img src="https://preview.redd.it/owxrzez7vfgf1.png?width=960&crop=smart&auto=webp&s=93575acd57c5435f32a513fb814a49f02981840c" alt="Random Meme" width="500"/>
+**Am I overthinking this?**  
+<img src="https://preview.redd.it/x0m8msgdcsgf1.png?width=320&crop=smart&auto=webp&s=587ff989566d2672f2156cc434ea8fbe3a2d8cd1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
