@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can't compete with that.**  
-<img src="https://preview.redd.it/tmtl36qtf9gf1.gif?width=1080&crop=smart&format=png8&s=277936b1e4170da8fa3704e215e6bd7d28b3d69b" alt="Random Meme" width="500"/>
+**Fatality**  
+<img src="https://preview.redd.it/tkhe5y13jigf1.gif?width=640&crop=smart&format=png8&s=fe6e575054d592bb4eaf0096197f1fff558dec75" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
