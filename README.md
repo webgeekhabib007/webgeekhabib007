@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can you taste what the rocks cooking?**  
-<img src="https://preview.redd.it/vhixthlxmggf1.gif?width=640&crop=smart&format=png8&s=ca24f87fabef20bf827d4380145c45d6dc9bde5b" alt="Random Meme" width="500"/>
+**He's so cuteeeeeeee**  
+<img src="https://preview.redd.it/73h4d4lhwngf1.png?width=320&crop=smart&auto=webp&s=1f067ccf37264e630dcf69ab235fa8e79947e7c6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
