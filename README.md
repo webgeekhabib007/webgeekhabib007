@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**those mfk literally control the mind and body of some insects**  
-<img src="https://preview.redd.it/fr0tytf97ngf1.gif?width=640&crop=smart&format=png8&s=b6bab2157988e3b87ce463641bb37208e417c7b1" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ocq1advlnkgf1.png?width=1080&crop=smart&auto=webp&s=3302dce694a23b335942b331a99069b6df3ab25e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
