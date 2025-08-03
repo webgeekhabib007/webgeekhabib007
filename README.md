@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why she get so mad?**  
-<img src="https://preview.redd.it/6cwmuxdxtlgf1.gif?width=320&crop=smart&format=png8&s=e39aeef154cea1846189560cf3a205da07b64006" alt="Random Meme" width="500"/>
+**don't forget groks past guys, don't let the anime girl distract you**  
+<img src="https://preview.redd.it/jh6kvcfcukgf1.png?width=320&crop=smart&auto=webp&s=ca6884b92975bc320b09f19a76a0d72d84d726c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
