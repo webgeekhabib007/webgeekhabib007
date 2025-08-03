@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/gv1jt4ctosgf1.png?width=640&crop=smart&auto=webp&s=cd079cd1167c10e08d6b62ed31657e38f3bb5663" alt="Random Meme" width="500"/>
+**Just put the fries in the bag bro**  
+<img src="https://preview.redd.it/uprqhahenngf1.png?width=1080&crop=smart&auto=webp&s=ce84cb5da388c8dc0bd935081e171cc6d41945bc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
