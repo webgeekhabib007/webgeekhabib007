@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**don't forget groks past guys, don't let the anime girl distract you**  
-<img src="https://preview.redd.it/jh6kvcfcukgf1.png?width=320&crop=smart&auto=webp&s=ca6884b92975bc320b09f19a76a0d72d84d726c4" alt="Random Meme" width="500"/>
+**I’ve got a golden ticket out of this DUI**  
+<img src="https://preview.redd.it/mx67zgzazigf1.gif?width=320&crop=smart&format=png8&s=f0170233532650c3b016fb682d7c17352ab16fa5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
