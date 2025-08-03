@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Quick nap, in and out, 20 minutes.**  
-<img src="https://preview.redd.it/po47us9agfgf1.png?width=960&crop=smart&auto=webp&s=312a4600676754e10ba67d4caa3a0cb7f27cb23f" alt="Random Meme" width="500"/>
+**Why she get so mad?**  
+<img src="https://preview.redd.it/6cwmuxdxtlgf1.gif?width=320&crop=smart&format=png8&s=e39aeef154cea1846189560cf3a205da07b64006" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
