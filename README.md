@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/y3s348yj66gf1.png?width=640&crop=smart&auto=webp&s=2dad16d7cd991f391a8d13f836638b95f8e577d9" alt="Random Meme" width="500"/>
+**Quick nap, in and out, 20 minutes.**  
+<img src="https://preview.redd.it/po47us9agfgf1.png?width=960&crop=smart&auto=webp&s=312a4600676754e10ba67d4caa3a0cb7f27cb23f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
