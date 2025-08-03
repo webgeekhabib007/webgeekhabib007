@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fatality**  
-<img src="https://preview.redd.it/tkhe5y13jigf1.gif?width=640&crop=smart&format=png8&s=fe6e575054d592bb4eaf0096197f1fff558dec75" alt="Random Meme" width="500"/>
+**Was sobbing like a baby. Now I feel weird.**  
+<img src="https://preview.redd.it/odbn5am7iogf1.png?width=1080&crop=smart&auto=webp&s=ca766df8ee2b09e5c9224e432cd61add208637ed" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
