@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Quiet boy rizz moment.**  
-<img src="https://preview.redd.it/0zz5gw3f8wgf1.png?width=640&crop=smart&auto=webp&s=7766830af498f422e59a0ef9212538ea001655de" alt="Random Meme" width="500"/>
+**A [-200] title.**  
+<img src="https://preview.redd.it/76h8o9ejgwgf1.png?width=640&crop=smart&auto=webp&s=513cebb583b0f3add9be90c2b0935655282bd47a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
