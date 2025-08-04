@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/3mgzowv0fngf1.png?width=320&crop=smart&auto=webp&s=f0ef27661860dc3766af921bc5ad7edc4249d43e" alt="Random Meme" width="500"/>
+**Literal days vs seconds**  
+<img src="https://preview.redd.it/3f3apo1cnzgf1.png?width=640&crop=smart&auto=webp&s=16ef22cec3917cda8730a615c977a0049e0aa5d4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
