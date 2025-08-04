@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ekk84d04rxgf1.png?width=1080&crop=smart&auto=webp&s=29fdea58b070e15394d480e19680013a3be7794e" alt="Random Meme" width="500"/>
+**Started a new job. Thought I recognized that smolder.**  
+<img src="https://preview.redd.it/sppmg5gdl0hf1.png?width=320&crop=smart&auto=webp&s=e8b0250144929faf54e0019c65858692a51eea57" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
