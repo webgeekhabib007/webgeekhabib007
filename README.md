@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No escape this time.**  
-<img src="https://preview.redd.it/mbib12fwutgf1.gif?width=320&crop=smart&format=png8&s=44445696aa453bce5fc79152bde326bed6bbf4cb" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ssaw3xj1fwgf1.png?width=1080&crop=smart&auto=webp&s=fb33e8bc1e24e4578092791bb7c635bf1557b4fa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
