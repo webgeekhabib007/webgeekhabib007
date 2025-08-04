@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What Would You Do If a Chair Politely Asked You to Sit on It?**  
-<img src="https://preview.redd.it/blvui8cabugf1.png?width=1080&crop=smart&auto=webp&s=d92e30b978d59492c41ff7e4506d3722cbcff12f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/1de1jl2l7sgf1.png?width=1080&crop=smart&auto=webp&s=687bd33adc469810658fae119726e100060a3d13" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
