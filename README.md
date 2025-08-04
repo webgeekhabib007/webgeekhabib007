@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Relatable, I guess**  
-<img src="https://i.redd.it/bq4gx5blo7gf1.png" width="500" alt="Random Meme"/>
+**I rest my case.**  
+<img src="https://preview.redd.it/70dcu5xoblgf1.gif?width=320&crop=smart&format=png8&s=a096dc38f5b4c605d4c54bdb8f9e9102faab0b67" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
