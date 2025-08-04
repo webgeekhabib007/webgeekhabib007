@@ -58,8 +58,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If only I saw pre-nerf dad.**  
-<img src="https://preview.redd.it/l12oiuevdwgf1.png?width=1080&crop=smart&auto=webp&s=2223574a8bf6c775c8bf5e8fa5c56dee7e1ee521" alt="Random Meme" width="500"/>
+**I just don't trust people anymore**  
+<img src="https://preview.redd.it/1tu19uq2fkgf1.png?width=1080&crop=smart&auto=webp&s=1f8d8edef33876d74955389b8070ba05a3e64ebd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 
