@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"I was tricked...Bamboozled!"**  
-<img src="https://preview.redd.it/wqz8mdd2mjgf1.png?width=640&crop=smart&auto=webp&s=ca4542fa9e4bf7ab8a7d9d5522582cd2c7bf1d01" alt="Random Meme" width="500"/>
+**I just don't trust people anymore**  
+<img src="https://preview.redd.it/1tu19uq2fkgf1.png?width=1080&crop=smart&auto=webp&s=1f8d8edef33876d74955389b8070ba05a3e64ebd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
