@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Started a new job. Thought I recognized that smolder.**  
-<img src="https://preview.redd.it/sppmg5gdl0hf1.png?width=320&crop=smart&auto=webp&s=e8b0250144929faf54e0019c65858692a51eea57" alt="Random Meme" width="500"/>
+**"I was tricked...Bamboozled!"**  
+<img src="https://preview.redd.it/wqz8mdd2mjgf1.png?width=640&crop=smart&auto=webp&s=ca4542fa9e4bf7ab8a7d9d5522582cd2c7bf1d01" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
