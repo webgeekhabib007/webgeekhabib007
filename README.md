@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Literal days vs seconds**  
-<img src="https://preview.redd.it/3f3apo1cnzgf1.png?width=640&crop=smart&auto=webp&s=16ef22cec3917cda8730a615c977a0049e0aa5d4" alt="Random Meme" width="500"/>
+**Quiet boy rizz moment.**  
+<img src="https://preview.redd.it/0zz5gw3f8wgf1.png?width=640&crop=smart&auto=webp&s=7766830af498f422e59a0ef9212538ea001655de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
