@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Reach faster pls**  
-<img src="https://preview.redd.it/41rrztz3npgf1.png?width=1080&crop=smart&auto=webp&s=3613443749d370bd63b308bb783bf00be16725cc" alt="Random Meme" width="500"/>
+**Boys at 14**  
+<img src="https://preview.redd.it/4p3ygipzmtgf1.png?width=1080&crop=smart&auto=webp&s=af890e51f0628f30dbf6a438310fcaf6b7f086fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
