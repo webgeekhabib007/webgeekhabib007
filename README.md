@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I just don't trust people anymore**  
-<img src="https://preview.redd.it/1tu19uq2fkgf1.png?width=1080&crop=smart&auto=webp&s=1f8d8edef33876d74955389b8070ba05a3e64ebd" alt="Random Meme" width="500"/>
+**2025 is a mess**  
+<img src="https://preview.redd.it/71lbeblvdzgf1.png?width=1080&crop=smart&auto=webp&s=0c4fbf8bea436e6c6d3a385277baeed8a698a4f5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
