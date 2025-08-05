@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They like a man with confidence**  
-<img src="https://preview.redd.it/ptj9n2ywbugf1.png?width=1080&crop=smart&auto=webp&s=1399acd744854de9af80e5b685d250ea4ae95384" alt="Random Meme" width="500"/>
+**We admit you to this Council but do not grant you the rank of Scammer.**  
+<img src="https://preview.redd.it/qykytxkm09hf1.png?width=1080&crop=smart&auto=webp&s=8141e4f8146762ee1b2d0b5c855807ea7750a5fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
