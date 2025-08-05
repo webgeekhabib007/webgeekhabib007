@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Let me grab my pickaxe baby**  
-<img src="https://preview.redd.it/xrurn1wd9lgf1.gif?width=640&crop=smart&format=png8&s=401bd9312d568cd2cc7749db44739b72d92cbc22" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/zyj4dyzmmzgf1.png?width=1080&crop=smart&auto=webp&s=08efe47999925bfcb9fbf05f89ea1ee96f8aa15f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
