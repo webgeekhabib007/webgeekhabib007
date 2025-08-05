@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Economic problem solved**  
-<img src="https://preview.redd.it/a2gmomn5ipgf1.png?width=1080&crop=smart&auto=webp&s=5551cd2b8841bb4cb12b01086c1a4546a0d054c1" alt="Random Meme" width="500"/>
+**When you know it's a triangle but u just can't prove it.**  
+<img src="https://preview.redd.it/21g1oc2mq8hf1.png?width=1080&crop=smart&auto=webp&s=b67cd4ad251626beb2fef40e540eaf6a5b2a6ad4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
