@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When you know it's a triangle but u just can't prove it.**  
-<img src="https://preview.redd.it/21g1oc2mq8hf1.png?width=1080&crop=smart&auto=webp&s=b67cd4ad251626beb2fef40e540eaf6a5b2a6ad4" alt="Random Meme" width="500"/>
+**Haven’t thought about him in years, not I see him on every second post**  
+<img src="https://preview.redd.it/fvmubqk3v6hf1.gif?width=640&crop=smart&format=png8&s=ddbdacaac2ef80a93c213b205b274dc6edcb684f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
