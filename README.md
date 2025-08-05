@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/ee1e308ih2hf1.png?width=216&crop=smart&auto=webp&s=1e499c8a15c6935357c408200adff06d22229344" alt="Random Meme" width="500"/>
+**Client says he forgot his password**  
+<img src="https://preview.redd.it/xet7uttor6hf1.png?width=1080&crop=smart&auto=webp&s=d4eda5c2ba0820d29654220dd21cbe904fb4b2cc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
