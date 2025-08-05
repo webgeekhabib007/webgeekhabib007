@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Haven’t thought about him in years, not I see him on every second post**  
-<img src="https://preview.redd.it/fvmubqk3v6hf1.gif?width=640&crop=smart&format=png8&s=ddbdacaac2ef80a93c213b205b274dc6edcb684f" alt="Random Meme" width="500"/>
+**They like a man with confidence**  
+<img src="https://preview.redd.it/ptj9n2ywbugf1.png?width=1080&crop=smart&auto=webp&s=1399acd744854de9af80e5b685d250ea4ae95384" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
