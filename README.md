@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I was always disappointed.**  
-<img src="https://preview.redd.it/ikrlvhcx21hf1.png?width=960&crop=smart&auto=webp&s=34e4d153294d28d5035b6f0016ef3bb32f9a8e36" alt="Random Meme" width="500"/>
+**Interested buyers may dm me**  
+<img src="https://preview.redd.it/rmwczqnwf9hf1.png?width=1080&crop=smart&auto=webp&s=03acfdb4e1a73b69fb7c60775b87102b8cd629ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
