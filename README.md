@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**hell hath no fury like a gamer scorned**  
-<img src="https://preview.redd.it/fr9pbeh5gahf1.png?width=320&crop=smart&auto=webp&s=e5bd94438c358597a963bc6b98a3140b100b2f42" alt="Random Meme" width="500"/>
+**I was always disappointed.**  
+<img src="https://preview.redd.it/ikrlvhcx21hf1.png?width=960&crop=smart&auto=webp&s=34e4d153294d28d5035b6f0016ef3bb32f9a8e36" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
