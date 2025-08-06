@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Interested buyers may dm me**  
-<img src="https://preview.redd.it/rmwczqnwf9hf1.png?width=1080&crop=smart&auto=webp&s=03acfdb4e1a73b69fb7c60775b87102b8cd629ad" alt="Random Meme" width="500"/>
+**bAcTeRiA**  
+<img src="https://preview.redd.it/1zh4wyj3e1hf1.gif?width=640&crop=smart&format=png8&s=6f02e530519bf15ea6e68c23be8527610ff81646" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
