@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**how hard is it to make hierarchical comments...**  
-<img src="https://preview.redd.it/hdb6rgj7mchf1.png?width=320&crop=smart&auto=webp&s=0b912fd2e122fa01757142fbaecfb0778920e513" alt="Random Meme" width="500"/>
+**Quiet boy rizz moment.**  
+<img src="https://preview.redd.it/0zz5gw3f8wgf1.png?width=640&crop=smart&auto=webp&s=7766830af498f422e59a0ef9212538ea001655de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
