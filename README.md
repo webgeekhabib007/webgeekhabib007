@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We admit you to this Council but do not grant you the rank of Scammer.**  
-<img src="https://preview.redd.it/qykytxkm09hf1.png?width=1080&crop=smart&auto=webp&s=8141e4f8146762ee1b2d0b5c855807ea7750a5fb" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/zmcxtwyogehf1.png?width=640&crop=smart&auto=webp&s=2dbca44ee190cb362b73aad4adef121183799f06" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
