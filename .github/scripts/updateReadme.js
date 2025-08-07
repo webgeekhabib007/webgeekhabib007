@@ -1,7 +1,7 @@
 const fs = require('fs');
 const path = require('path');
 const https = require('https');
-const role = process.ENV.ROLE || "general"
+const role = "general"
 
 const README_PATH = path.join(__dirname, '../../README.md');
 const START_TAG = '<!-- MEME-START -->';
