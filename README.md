@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When Apple calls their new UI "revolutionary" but you remember what actual innovation looked like**  
-<img src="https://preview.redd.it/l2aclwvalmhf1.png?width=320&crop=smart&auto=webp&s=8aff31b7066abedfeba26895ff615eecacd4f732" alt="Random Meme" width="500"/>
+**We admit you to this Council but do not grant you the rank of Scammer.**  
+<img src="https://preview.redd.it/qykytxkm09hf1.png?width=1080&crop=smart&auto=webp&s=8141e4f8146762ee1b2d0b5c855807ea7750a5fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
