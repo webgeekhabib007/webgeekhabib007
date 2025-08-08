@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/4fcj8ex2afhf1.png?width=1080&crop=smart&auto=webp&s=f061741c7ab61d2dd8c8ac131a77ff10f68845e8" alt="Random Meme" width="500"/>
+**This is Tradition**  
+<img src="https://preview.redd.it/ehrcsrx0gmhf1.png?width=640&crop=smart&auto=webp&s=c2eb3b22a3eb8f6fcba4980cbaf8f71feef3bedd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
