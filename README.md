@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/9pwnqrk95mhf1.png?width=1080&crop=smart&auto=webp&s=bc3ff6a2e5c02d76e3fdcf11c30e95b6241190dc" alt="Random Meme" width="500"/>
+**its just a math teacher thing ig**  
+<img src="https://preview.redd.it/nowpqdyohqhf1.png?width=320&crop=smart&auto=webp&s=1b9e52bc36eb6ce502bd1364001d2ca9970b75ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
