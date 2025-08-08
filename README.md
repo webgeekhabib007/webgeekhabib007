@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Decisions now affect lives later down the line**  
-<img src="https://preview.redd.it/t71ogfbjxmhf1.png?width=640&crop=smart&auto=webp&s=2d190b3cd25c2dbcc46f0d0157d7c000c835bf58" alt="Random Meme" width="500"/>
+**And she probably has a crush on me**  
+<img src="https://preview.redd.it/6sqs42ckxehf1.png?width=960&crop=smart&auto=webp&s=99fc8c21adbec2aa84c544cbf004298f2fd28a6d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
