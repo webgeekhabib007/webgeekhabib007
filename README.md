@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jet2 holiday and lizard just proved it for me**  
-<img src="https://preview.redd.it/m4c3xn0x0khf1.gif?width=640&crop=smart&format=png8&s=d919f652bf732d8bee1730d4b86d61c62cc10ccd" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/f50kpkkv2khf1.png?width=1080&crop=smart&auto=webp&s=d42fc19854bf44b727ad86e7eb7f5b0f5cd414e0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
