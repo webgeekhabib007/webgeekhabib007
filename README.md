@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/s82a92ki5mhf1.png?width=1080&crop=smart&auto=webp&s=d4bffbcb4a35a2eb16cb83af5fd36bebca8ba62c" alt="Random Meme" width="500"/>
+**Imma firen' ma meat sticks**  
+<img src="https://preview.redd.it/nsn0d5umojhf1.png?width=960&crop=smart&auto=webp&s=5b51ce2cdc91d1d632d1c8a05eb4325464240e08" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
