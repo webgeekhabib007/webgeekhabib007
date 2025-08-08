@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not for all the gold in China**  
-<img src="https://preview.redd.it/lywfzt2e59hf1.png?width=320&crop=smart&auto=webp&s=55cf7d2f075f2c8de0eda105de96f5c2b17ac426" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/gvqrd80xbrhf1.png?width=1080&crop=smart&auto=webp&s=ff997e94c998fef1424495e3061dd43fe6cd7f5e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
