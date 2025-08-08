@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Need to kill it on the PS2**  
-<img src="https://preview.redd.it/7yz4jnxwoqhf1.png?width=1080&crop=smart&auto=webp&s=496fc8c7abc03c15cd82def6fa426d39ff3425e6" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/nc2yf2tnfqhf1.png?width=1080&crop=smart&auto=webp&s=e56331cd216c40b1603d1ac0ed864ef6246743b9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
