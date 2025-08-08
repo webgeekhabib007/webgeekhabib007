@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And she probably has a crush on me**  
-<img src="https://preview.redd.it/6sqs42ckxehf1.png?width=960&crop=smart&auto=webp&s=99fc8c21adbec2aa84c544cbf004298f2fd28a6d" alt="Random Meme" width="500"/>
+**Jet2 holiday and lizard just proved it for me**  
+<img src="https://preview.redd.it/m4c3xn0x0khf1.gif?width=640&crop=smart&format=png8&s=d919f652bf732d8bee1730d4b86d61c62cc10ccd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
