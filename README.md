@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Decisions now affect lives later down the line**  
-<img src="https://preview.redd.it/t71ogfbjxmhf1.png?width=640&crop=smart&auto=webp&s=2d190b3cd25c2dbcc46f0d0157d7c000c835bf58" alt="Random Meme" width="500"/>
+**A redacted title.**  
+<img src="https://preview.redd.it/v1wisn4xjhhf1.png?width=640&crop=smart&auto=webp&s=b00b8de1cbe980ca85704813f8cbd79e0fa91437" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
