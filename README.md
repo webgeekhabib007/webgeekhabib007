@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That's surely the dubest person i ever saw**  
-<img src="https://preview.redd.it/xyxoo2uaughf1.png?width=1080&crop=smart&auto=webp&s=712375745400ca049f1749b84ac514710133ccb5" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/rnrieb224zhf1.png?width=960&crop=smart&auto=webp&s=88a83dca5a4ddef812c91cdcf6438e1fb6ba8a85" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
