@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**But think about the kids**  
-<img src="https://preview.redd.it/mudp16dsfehf1.png?width=640&crop=smart&auto=webp&s=eedb87e8ae5fad9b6106bdb0ca58d2929c17adf5" alt="Random Meme" width="500"/>
+**I like water**  
+<img src="https://preview.redd.it/g80dlkkqfuhf1.png?width=640&crop=smart&auto=webp&s=24433dd408a168dbab22d107fa79f0d44a803e35" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
