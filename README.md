@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**🎵 hey there let me tell you bout my robot friend 🎵**  
-<img src="https://preview.redd.it/n8n4ixpe3zhf1.gif?width=1080&crop=smart&format=png8&s=cb44d84a758b9e1154af88e91824a55492dfc005" alt="Random Meme" width="500"/>
+**But think about the kids**  
+<img src="https://preview.redd.it/mudp16dsfehf1.png?width=640&crop=smart&auto=webp&s=eedb87e8ae5fad9b6106bdb0ca58d2929c17adf5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
