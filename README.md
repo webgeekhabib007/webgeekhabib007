@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Huh, that kinda looks like my driveway**  
-<img src="https://preview.redd.it/r2fn8hbkzdhf1.gif?width=640&crop=smart&format=png8&s=b3ff9a9333553e9586c52e8401ddd64155f229c4" alt="Random Meme" width="500"/>
+**Nintendo vs Free open source software community**  
+<img src="https://preview.redd.it/xjogkxsm9xhf1.png?width=1080&crop=smart&auto=webp&s=4623c19b8b8718a80da5dbd3ed202fce66c3cbc1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
