@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/gkevsjmt3uhf1.gif?width=640&crop=smart&format=png8&s=3d461adfb7a0c07bb435c750a0ffe7b524baaf81" alt="Random Meme" width="500"/>
+**Huh, that kinda looks like my driveway**  
+<img src="https://preview.redd.it/r2fn8hbkzdhf1.gif?width=640&crop=smart&format=png8&s=b3ff9a9333553e9586c52e8401ddd64155f229c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
