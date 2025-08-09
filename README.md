@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Return Of The Mac-**  
-<img src="https://preview.redd.it/ihcbl75zlthf1.png?width=320&crop=smart&auto=webp&s=fd51b5e6d6e1bac2c8fb847e689ca8372a21e8d7" alt="Random Meme" width="500"/>
+**That's surely the dubest person i ever saw**  
+<img src="https://preview.redd.it/xyxoo2uaughf1.png?width=1080&crop=smart&auto=webp&s=712375745400ca049f1749b84ac514710133ccb5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
