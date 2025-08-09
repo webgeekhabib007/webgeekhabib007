@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I don't want that on Instagram anymore**  
-<img src="https://preview.redd.it/dt7as0cvethf1.png?width=1080&crop=smart&auto=webp&s=25f792e0d96b553e29875154baf80ff0485bef70" alt="Random Meme" width="500"/>
+**its just a math teacher thing ig**  
+<img src="https://preview.redd.it/nowpqdyohqhf1.png?width=320&crop=smart&auto=webp&s=1b9e52bc36eb6ce502bd1364001d2ca9970b75ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
