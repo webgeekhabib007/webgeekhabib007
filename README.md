@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I like water**  
-<img src="https://preview.redd.it/g80dlkkqfuhf1.png?width=640&crop=smart&auto=webp&s=24433dd408a168dbab22d107fa79f0d44a803e35" alt="Random Meme" width="500"/>
+**Talking? I don't know such high level skills**  
+<img src="https://preview.redd.it/xpjo3shy1ghf1.gif?width=640&crop=smart&format=png8&s=5274ffde5757aeee37da179d71e72cb915b9620b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
