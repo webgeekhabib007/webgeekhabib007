@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Huge difference**  
-<img src="https://preview.redd.it/vvz7hozunmhf1.png?width=640&crop=smart&auto=webp&s=834dcb441600faeaec28de717295f6ac26953a2b" alt="Random Meme" width="500"/>
+**"I'm a horologist" No shame in that dear**  
+<img src="https://preview.redd.it/hbfnr20aw8if1.gif?width=320&crop=smart&format=png8&s=dbdcaf7a55015a5ee76aaf325e4cc649a92c5a61" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
