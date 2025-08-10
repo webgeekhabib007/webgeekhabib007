@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn Mosquitoes**  
-<img src="https://preview.redd.it/p479abho60if1.png?width=1080&crop=smart&auto=webp&s=c337cbbfbff3195238f222f023cb2399e3648377" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/0sv52wstiyhf1.png?width=960&crop=smart&auto=webp&s=664a31fd946a294339da400c93385a189134debc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
