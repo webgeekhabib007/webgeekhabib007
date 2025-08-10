@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"I'm a horologist" No shame in that dear**  
-<img src="https://preview.redd.it/hbfnr20aw8if1.gif?width=320&crop=smart&format=png8&s=dbdcaf7a55015a5ee76aaf325e4cc649a92c5a61" alt="Random Meme" width="500"/>
+**Job market**  
+<img src="https://preview.redd.it/ys0kmi94i0if1.png?width=1080&crop=smart&auto=webp&s=05bb4f71bdec4962f54e2e79cad3c62cff0378c0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
