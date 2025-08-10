@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Derp memes anyone?**  
-<img src="https://preview.redd.it/w1a4oqxxwyhf1.png?width=320&crop=smart&auto=webp&s=dc7deb688c47817cd64f7a1d7bae8d3c71916b80" alt="Random Meme" width="500"/>
+**🎵 hey there let me tell you bout my robot friend 🎵**  
+<img src="https://preview.redd.it/n8n4ixpe3zhf1.gif?width=1080&crop=smart&format=png8&s=cb44d84a758b9e1154af88e91824a55492dfc005" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
