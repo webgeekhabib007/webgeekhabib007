@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I have to squint really hard for my eyes to adjust**  
-<img src="https://preview.redd.it/w8anilzy2uhf1.gif?width=640&crop=smart&format=png8&s=86e4eba4d8fb3994f5daa27388b45779529a60ec" alt="Random Meme" width="500"/>
+**Derp memes anyone?**  
+<img src="https://preview.redd.it/w1a4oqxxwyhf1.png?width=320&crop=smart&auto=webp&s=dc7deb688c47817cd64f7a1d7bae8d3c71916b80" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
