@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Such an odd line to draw.**  
-<img src="https://preview.redd.it/3vez84eizphf1.png?width=640&crop=smart&auto=webp&s=e9f8431aa03f5878663c065cfd2671400fe6b3c9" alt="Random Meme" width="500"/>
+**I like water**  
+<img src="https://preview.redd.it/g80dlkkqfuhf1.png?width=640&crop=smart&auto=webp&s=24433dd408a168dbab22d107fa79f0d44a803e35" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
