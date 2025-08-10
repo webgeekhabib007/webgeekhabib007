@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Talking? I don't know such high level skills**  
-<img src="https://preview.redd.it/xpjo3shy1ghf1.gif?width=640&crop=smart&format=png8&s=5274ffde5757aeee37da179d71e72cb915b9620b" alt="Random Meme" width="500"/>
+**I have to squint really hard for my eyes to adjust**  
+<img src="https://preview.redd.it/w8anilzy2uhf1.gif?width=640&crop=smart&format=png8&s=86e4eba4d8fb3994f5daa27388b45779529a60ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
