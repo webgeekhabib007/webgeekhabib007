@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Got some change bro**  
-<img src="https://preview.redd.it/cy70012m94if1.gif?width=640&crop=smart&format=png8&s=2aed133d9fa71c998aa3d60a1df35824978eed5f" alt="Random Meme" width="500"/>
+**any video game community ever**  
+<img src="https://preview.redd.it/qkdgmyrul3if1.png?width=1080&crop=smart&auto=webp&s=5b905252308c48b088dba06cdcacb9c774c629e0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
