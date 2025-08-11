@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just practicing calculs**  
-<img src="https://preview.redd.it/zpnyz8d271if1.png?width=1080&crop=smart&auto=webp&s=9b0496f5824e761b5e47113ec8ea0c5b697fdb5f" alt="Random Meme" width="500"/>
+**If you know you know**  
+<img src="https://preview.redd.it/2fz9q1meq9if1.gif?width=320&crop=smart&format=png8&s=f8dabcd1ea61a345649b4a0777a66f9fbc9a817e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
