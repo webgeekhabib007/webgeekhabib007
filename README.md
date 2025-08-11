@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thank you lord**  
-<img src="https://preview.redd.it/m1n4ntha4vhf1.gif?width=320&crop=smart&format=png8&s=ff9294fe3e573fce8ab3beda4e457fe163eabbcc" alt="Random Meme" width="500"/>
+**Thank god I’m not a League of Legends player. But my family probably do think I’m a “virgin” because they’re always shocked when I tell them I don’t watch a lot of anime and one Christmas they gave me this dungeons and dragons action figure and I’ve never played a dungeon and dragon game.**  
+<img src="https://preview.redd.it/e5sz9npzz9if1.gif?width=640&crop=smart&format=png8&s=6daf0195d8d13d75496271e28a27e654e3f488d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
