@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No daughter of mine will be dating a…**  
-<img src="https://preview.redd.it/be0ql4e1f7if1.gif?width=640&crop=smart&format=png8&s=da4368413ce7a37584573240ae787fa5feea2247" alt="Random Meme" width="500"/>
+**How's that babe?**  
+<img src="https://preview.redd.it/681g4196i9if1.png?width=640&crop=smart&auto=webp&s=839d14cd23252c255d5e6369b7de14823b05c681" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
