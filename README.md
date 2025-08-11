@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thank god I’m not a League of Legends player. But my family probably do think I’m a “virgin” because they’re always shocked when I tell them I don’t watch a lot of anime and one Christmas they gave me this dungeons and dragons action figure and I’ve never played a dungeon and dragon game.**  
-<img src="https://preview.redd.it/e5sz9npzz9if1.gif?width=640&crop=smart&format=png8&s=6daf0195d8d13d75496271e28a27e654e3f488d5" alt="Random Meme" width="500"/>
+**I apologize for the dad joke in advance.**  
+<img src="https://preview.redd.it/isggrbx10bif1.png?width=640&crop=smart&auto=webp&s=d58591b5dce405c92d5f1cb6aa148fbf0cb34a3d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
