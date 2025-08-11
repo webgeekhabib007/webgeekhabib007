@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dark romance minus the romance**  
-<img src="https://preview.redd.it/apn7vtvua7if1.gif?width=320&crop=smart&format=png8&s=2fb8c30f71f060e55829214a7ec83eb68fc77335" alt="Random Meme" width="500"/>
+**Just practicing calculs**  
+<img src="https://preview.redd.it/zpnyz8d271if1.png?width=1080&crop=smart&auto=webp&s=9b0496f5824e761b5e47113ec8ea0c5b697fdb5f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
