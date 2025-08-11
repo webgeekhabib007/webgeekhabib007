@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Does anyone like black coffee anymore?"**  
-<img src="https://preview.redd.it/4f4poyaza7if1.gif?width=320&crop=smart&format=png8&s=c6a85f7e8a5b156cd10c28a7fda5b28b0a2070e1" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/p0jzlnkdvbif1.png?width=1080&crop=smart&auto=webp&s=dc5664413dda9726fda418792707dd795d48325c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
