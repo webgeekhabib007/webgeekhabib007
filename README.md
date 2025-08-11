@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I apologize for the dad joke in advance.**  
-<img src="https://preview.redd.it/isggrbx10bif1.png?width=640&crop=smart&auto=webp&s=d58591b5dce405c92d5f1cb6aa148fbf0cb34a3d" alt="Random Meme" width="500"/>
+**No daughter of mine will be dating a…**  
+<img src="https://preview.redd.it/be0ql4e1f7if1.gif?width=640&crop=smart&format=png8&s=da4368413ce7a37584573240ae787fa5feea2247" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
