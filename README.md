@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nothing to see here citizen**  
-<img src="https://preview.redd.it/uttacb6ut2if1.png?width=1080&crop=smart&auto=webp&s=171aab26fbd72a1b8f95fb9db6b742ae5f3ea33a" alt="Random Meme" width="500"/>
+**Dark romance minus the romance**  
+<img src="https://preview.redd.it/apn7vtvua7if1.gif?width=320&crop=smart&format=png8&s=2fb8c30f71f060e55829214a7ec83eb68fc77335" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
