@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mind blown, now I don't need food**  
-<img src="https://preview.redd.it/gc4lxcfjldif1.gif?width=320&crop=smart&format=png8&s=6184341646e62eee1440754b3fd5e773542cb4f8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/25uxhofv85if1.png?width=1080&crop=smart&auto=webp&s=f899ee4405d1942c9dfe7fd01aff45c78bde0401" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
