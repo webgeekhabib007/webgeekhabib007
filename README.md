@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**She got the moves**  
-<img src="https://preview.redd.it/nwf3lgm188if1.gif?width=640&crop=smart&format=png8&s=f52b7f644d4d4703820ee893c18e904c406db51b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/06psdmsa85if1.png?width=1080&crop=smart&auto=webp&s=58cf819cd1988712888683a42f46cb6fed26a386" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
