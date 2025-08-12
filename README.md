@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**1984 or something**  
-<img src="https://preview.redd.it/o3dxlgqe4fif1.gif?width=216&crop=smart&format=png8&s=be0b6d334640afb76d881cf3dae8cfea280d8c52" alt="Random Meme" width="500"/>
+**Contoversial meme**  
+<img src="https://preview.redd.it/ghoo4w0d3nif1.png?width=320&crop=smart&auto=webp&s=5c587f7c33fd5937475df8f1da76dfa1b0ec6ad9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
