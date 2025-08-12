@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's a secret storage pouch.**  
-<img src="https://preview.redd.it/0u8cmy5d2eif1.png?width=960&crop=smart&auto=webp&s=26d3e344698d7e702aa8af900f61ad9072e7c290" alt="Random Meme" width="500"/>
+**Just need to take a quick peek**  
+<img src="https://preview.redd.it/iiviebrhbeif1.gif?width=640&crop=smart&format=png8&s=37669cee05ee602194a8f083db3a6ad5ba23428a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
