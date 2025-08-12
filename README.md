@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Megatron reacts to the Youtube news**  
-<img src="https://preview.redd.it/f4dwbskcylif1.png?width=640&crop=smart&auto=webp&s=7dbedba39c803d67e7470f0a70c321dcc66f7291" alt="Random Meme" width="500"/>
+**"Does anyone like black coffee anymore?"**  
+<img src="https://preview.redd.it/4f4poyaza7if1.gif?width=320&crop=smart&format=png8&s=c6a85f7e8a5b156cd10c28a7fda5b28b0a2070e1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
