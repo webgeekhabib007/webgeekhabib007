@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ihm58mt3viif1.png?width=1080&crop=smart&auto=webp&s=81efada5f0292dbbe7ba1bf35f16f98b58838ea0" alt="Random Meme" width="500"/>
+**Megatron reacts to the Youtube news**  
+<img src="https://preview.redd.it/f4dwbskcylif1.png?width=640&crop=smart&auto=webp&s=7dbedba39c803d67e7470f0a70c321dcc66f7291" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
