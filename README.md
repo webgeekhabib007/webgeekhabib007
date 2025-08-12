@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/vv9qb8mwfbif1.png?width=1080&crop=smart&auto=webp&s=94a10fd74517b3aaca512e64bb66c374bf07247e" alt="Random Meme" width="500"/>
+**Current State of Streaming Platforms**  
+<img src="https://preview.redd.it/gd4p9psfakif1.gif?width=320&crop=smart&format=png8&s=cbd030d140fe736422963e4667d8c709f8514083" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
