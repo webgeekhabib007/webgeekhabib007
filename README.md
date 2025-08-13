@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Will it ever go away?**  
-<img src="https://preview.redd.it/682rsbq4vnif1.png?width=960&crop=smart&auto=webp&s=5b649ef4ed4924f1edb435af3e10ca31f029c1db" alt="Random Meme" width="500"/>
+**It'll never be the same again**  
+<img src="https://preview.redd.it/hmovbo7zmpif1.png?width=640&crop=smart&auto=webp&s=a2fb34a3c02397d7216b6d8915fa772408a16d15" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
