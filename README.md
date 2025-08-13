@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ready to grill… my presentation.**  
-<img src="https://preview.redd.it/zpqcjaukdqif1.png?width=1080&crop=smart&auto=webp&s=22777b495291d7c66fe3ced337ae4cb8d1f438f4" alt="Random Meme" width="500"/>
+**Say it again**  
+<img src="https://preview.redd.it/xjcvq11fqrif1.gif?width=640&crop=smart&format=png8&s=e3a6925000b6256c83af1d2f7e125a7d8303de69" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
