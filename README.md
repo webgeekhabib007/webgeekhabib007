@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Say it again**  
-<img src="https://preview.redd.it/xjcvq11fqrif1.gif?width=640&crop=smart&format=png8&s=e3a6925000b6256c83af1d2f7e125a7d8303de69" alt="Random Meme" width="500"/>
+**Only they can save us now**  
+<img src="https://preview.redd.it/8pe7l38y9nif1.gif?width=320&crop=smart&format=png8&s=46be118c48a55a7df211ed602271a36e316e08ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
