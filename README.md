@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mods are gods**  
-<img src="https://preview.redd.it/d4vedasyqnif1.png?width=640&crop=smart&auto=webp&s=ba934e8517d8b3ef54aa538c9cd1d72f1136e6af" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/djz2dtgriuif1.png?width=1080&crop=smart&auto=webp&s=d2535bf1a6354b7cc8eadcd2bece046648386a9c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
