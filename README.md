@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You people have NO IDEA what an extreme feminist look like.**  
-<img src="https://preview.redd.it/yey9ggkduiif1.png?width=1080&crop=smart&auto=webp&s=5e2933ffc07167a364fee794c89f90ee8f857b4f" alt="Random Meme" width="500"/>
+**Well u dont**  
+<img src="https://preview.redd.it/4zu22i60soif1.png?width=1080&crop=smart&auto=webp&s=0385e7de0e3f4ee9ac8a44f401ed3f62769e4311" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
