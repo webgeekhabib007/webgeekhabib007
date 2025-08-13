@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It'll never be the same again**  
-<img src="https://preview.redd.it/hmovbo7zmpif1.png?width=640&crop=smart&auto=webp&s=a2fb34a3c02397d7216b6d8915fa772408a16d15" alt="Random Meme" width="500"/>
+**Ready to grill… my presentation.**  
+<img src="https://preview.redd.it/zpqcjaukdqif1.png?width=1080&crop=smart&auto=webp&s=22777b495291d7c66fe3ced337ae4cb8d1f438f4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
