@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Too many holes!**  
-<img src="https://preview.redd.it/8astrfx8flif1.gif?width=216&crop=smart&format=png8&s=1b28778b38655fed033e1647ff821e5baf4bb8a7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/vm9guhfapyif1.png?width=640&crop=smart&auto=webp&s=d038230ffbb8793a71d72142c701de976c2ce8c7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
