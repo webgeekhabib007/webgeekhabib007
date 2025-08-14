@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There are a *Few* of them**  
-<img src="https://preview.redd.it/bohgktogmzif1.png?width=1080&crop=smart&auto=webp&s=4567e6e2610dbf358987fbfeae7123ffd40047e2" alt="Random Meme" width="500"/>
+**[OC] Artist life - Silly Memes**  
+<img src="https://preview.redd.it/b51j8mp910jf1.png?width=1080&crop=smart&auto=webp&s=ea516785af084f6ca98446fba645fcfaf1d6cced" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
