@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Truly tragic**  
-<img src="https://preview.redd.it/bkibcy056vif1.png?width=1080&crop=smart&auto=webp&s=e0f40da754b32130fab06b213b94eada0c9224af" alt="Random Meme" width="500"/>
+**Too many holes!**  
+<img src="https://preview.redd.it/8astrfx8flif1.gif?width=216&crop=smart&format=png8&s=1b28778b38655fed033e1647ff821e5baf4bb8a7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
