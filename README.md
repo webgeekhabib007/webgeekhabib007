@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**One down one more to go**  
-<img src="https://preview.redd.it/rkdlrvj6llif1.gif?width=320&crop=smart&format=png8&s=dfd51224ce86fe0873ec84c06b863197e247ff30" alt="Random Meme" width="500"/>
+**We don't have to be hypocrites...**  
+<img src="https://preview.redd.it/8ptjmklm2uif1.png?width=960&crop=smart&auto=webp&s=837a503700f496fe52ee1fe48098407d17d08fdb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
