@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Abnormal me**  
-<img src="https://preview.redd.it/vfvgpzk1t6jf1.png?width=1080&crop=smart&auto=webp&s=0fcf7b1a40ce0a91e00aef43d21f30366abd7e72" alt="Random Meme" width="500"/>
+**Don't.. do.. that..**  
+<img src="https://preview.redd.it/wgbt1e5btxif1.png?width=1080&crop=smart&auto=webp&s=65407229e4858bbe955b40d455e563326d3948b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
