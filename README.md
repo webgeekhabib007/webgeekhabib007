@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**New depression**  
-<img src="https://preview.redd.it/tzq18gs0z6jf1.png?width=1080&crop=smart&auto=webp&s=e47a19318c2d67971d197788645d1837c328d83b" alt="Random Meme" width="500"/>
+**[OC] Artist life - Silly Memes**  
+<img src="https://preview.redd.it/b51j8mp910jf1.png?width=1080&crop=smart&auto=webp&s=ea516785af084f6ca98446fba645fcfaf1d6cced" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
