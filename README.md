@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And yes, he's still around**  
-<img src="https://preview.redd.it/8an77q0n92jf1.png?width=1080&crop=smart&auto=webp&s=2d9b899cd648b4916b9c0bffd082faef4ce675cb" alt="Random Meme" width="500"/>
+**A Jamaican title.**  
+<img src="https://preview.redd.it/5f5ao2xfpwif1.png?width=640&crop=smart&auto=webp&s=8f0ccf9eac8a5ab567aeea33ff669c87426fa642" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
