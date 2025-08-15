@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Now I get it**  
-<img src="https://preview.redd.it/ixz5wn2m23jf1.png?width=1080&crop=smart&auto=webp&s=2e5ce384d1b277d9a95a8fcffd0dbf8c24c1faca" alt="Random Meme" width="500"/>
+**I don't know anything about cars**  
+<img src="https://preview.redd.it/o6mg5wkfb5jf1.gif?width=216&crop=smart&format=png8&s=00237deca45a8cb7de3e5b0f8efd8a40abc5a22a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
