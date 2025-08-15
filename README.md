@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Blessed be open source**  
-<img src="https://preview.redd.it/9nyy1wtrj1jf1.png?width=960&crop=smart&auto=webp&s=e10bfb862927149781f8a448abe4e8218516853a" alt="Random Meme" width="500"/>
+**I got this.**  
+<img src="https://preview.redd.it/21251me3rpif1.gif?width=320&crop=smart&format=png8&s=ac29f4e73a8a3f8f1e4ede576f7640cf3f1f19ce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
