@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**New depression**  
-<img src="https://preview.redd.it/tzq18gs0z6jf1.png?width=1080&crop=smart&auto=webp&s=e47a19318c2d67971d197788645d1837c328d83b" alt="Random Meme" width="500"/>
+**Bunch of keyboard doctors**  
+<img src="https://preview.redd.it/9hc6fpwsc7jf1.png?width=320&crop=smart&auto=webp&s=fdab817342bf1885c8898175c2f22984acdbe9cd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
