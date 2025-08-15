@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bunch of keyboard doctors**  
-<img src="https://preview.redd.it/9hc6fpwsc7jf1.png?width=320&crop=smart&auto=webp&s=fdab817342bf1885c8898175c2f22984acdbe9cd" alt="Random Meme" width="500"/>
+**Why do yall care so much. It's a phone.**  
+<img src="https://preview.redd.it/rndtum2ya7jf1.png?width=640&crop=smart&auto=webp&s=4427ea1a43fbc2b9fc7de2d203eba41faae27091" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
