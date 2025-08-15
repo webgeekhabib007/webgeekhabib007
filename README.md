@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't.. do.. that..**  
-<img src="https://preview.redd.it/wgbt1e5btxif1.png?width=1080&crop=smart&auto=webp&s=65407229e4858bbe955b40d455e563326d3948b1" alt="Random Meme" width="500"/>
+**New depression**  
+<img src="https://preview.redd.it/tzq18gs0z6jf1.png?width=1080&crop=smart&auto=webp&s=e47a19318c2d67971d197788645d1837c328d83b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
