@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why do yall care so much. It's a phone.**  
-<img src="https://preview.redd.it/rndtum2ya7jf1.png?width=640&crop=smart&auto=webp&s=4427ea1a43fbc2b9fc7de2d203eba41faae27091" alt="Random Meme" width="500"/>
+**New depression**  
+<img src="https://preview.redd.it/tzq18gs0z6jf1.png?width=1080&crop=smart&auto=webp&s=e47a19318c2d67971d197788645d1837c328d83b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
