@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i put this on my resume to apply as a 4chan mod**  
-<img src="https://preview.redd.it/4g42c4dy2vif1.png?width=320&crop=smart&auto=webp&s=0a519206c589979c7f6a196d349039f39a1f29ee" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/eb20qw458tif1.png?width=320&crop=smart&auto=webp&s=377286349e86ad9ad0233f34c86bf71f92ac14df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
