@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**AOL is dropping dialup internet this year.**  
-<img src="https://preview.redd.it/ko1n67h303jf1.png?width=640&crop=smart&auto=webp&s=401354a6407cf2d40486b293af7d9b712207b5ca" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/wawmr7b7t4jf1.png?width=1080&crop=smart&auto=webp&s=22b21614ce7c6d2ab1abd1bfb463392c4b26851b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
