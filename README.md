@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A Jamaican title.**  
-<img src="https://preview.redd.it/5f5ao2xfpwif1.png?width=640&crop=smart&auto=webp&s=8f0ccf9eac8a5ab567aeea33ff669c87426fa642" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cwgwmt6qzzif1.png?width=1080&crop=smart&auto=webp&s=b3d6da9729ad72f299c7a328371534a214d2074d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
