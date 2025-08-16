@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There are too many**  
-<img src="https://preview.redd.it/2fm34r1wd6jf1.png?width=1080&crop=smart&auto=webp&s=525c31d393e39eaf707724a2c13ab7dea08c9f5e" alt="Random Meme" width="500"/>
+**difference between samurai and ninja**  
+<img src="https://preview.redd.it/p9rxywl8u6jf1.png?width=320&crop=smart&auto=webp&s=2e177d4a8b4c470e8754714668e56f8f82dd9adb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
