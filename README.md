@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**LOL I LOVE IT**  
-<img src="https://preview.redd.it/kvzoswns17jf1.png?width=640&crop=smart&auto=webp&s=4357a11e07d90204d551a98c119ae65a1494c534" alt="Random Meme" width="500"/>
+**If only i could rest in the bus...**  
+<img src="https://preview.redd.it/kvey0vkqt0jf1.png?width=640&crop=smart&auto=webp&s=c6bbad72dc53028b082738b3244f5af1c9782beb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
