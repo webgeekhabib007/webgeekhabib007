@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chomps of cheddar**  
-<img src="https://preview.redd.it/fy9f5x677wif1.png?width=640&crop=smart&auto=webp&s=0deea3cb15906fc30261ad7df894afa79f59805b" alt="Random Meme" width="500"/>
+**Put Half of your name and let strangers finish it for you**  
+<img src="https://preview.redd.it/tfqbal8hz6jf1.png?width=640&crop=smart&auto=webp&s=db93838f5b821972e6b770110074e5fcfde28559" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
