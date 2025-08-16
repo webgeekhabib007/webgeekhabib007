@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Man receives aggressive facial massage by two oiled up ham hocks**  
-<img src="https://preview.redd.it/jcx0g80xnbjf1.png?width=320&crop=smart&auto=webp&s=78e8173015e5e3b4fc5e19a89e07e42a309bb8a8" alt="Random Meme" width="500"/>
+**LOL I LOVE IT**  
+<img src="https://preview.redd.it/kvzoswns17jf1.png?width=640&crop=smart&auto=webp&s=4357a11e07d90204d551a98c119ae65a1494c534" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
