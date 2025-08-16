@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/ekm6y76ty5jf1.png?width=320&crop=smart&auto=webp&s=79dc38506f8d05662440ea02231ac8f9c21d615e" alt="Random Meme" width="500"/>
+**Man receives aggressive facial massage by two oiled up ham hocks**  
+<img src="https://preview.redd.it/jcx0g80xnbjf1.png?width=320&crop=smart&auto=webp&s=78e8173015e5e3b4fc5e19a89e07e42a309bb8a8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
