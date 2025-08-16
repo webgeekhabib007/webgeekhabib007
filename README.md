@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Put Half of your name and let strangers finish it for you**  
-<img src="https://preview.redd.it/tfqbal8hz6jf1.png?width=640&crop=smart&auto=webp&s=db93838f5b821972e6b770110074e5fcfde28559" alt="Random Meme" width="500"/>
+**oopı̣ɹǝƃpı̣ꓷ**  
+<img src="https://preview.redd.it/719zgba25wif1.gif?width=320&crop=smart&format=png8&s=98bfe2a9ebecc7f4a76c5c80ed481cb32647ad12" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
