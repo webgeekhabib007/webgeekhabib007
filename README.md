@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If only i could rest in the bus...**  
-<img src="https://preview.redd.it/kvey0vkqt0jf1.png?width=640&crop=smart&auto=webp&s=c6bbad72dc53028b082738b3244f5af1c9782beb" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/ekm6y76ty5jf1.png?width=320&crop=smart&auto=webp&s=79dc38506f8d05662440ea02231ac8f9c21d615e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
