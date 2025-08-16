@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**difference between samurai and ninja**  
-<img src="https://preview.redd.it/p9rxywl8u6jf1.png?width=320&crop=smart&auto=webp&s=2e177d4a8b4c470e8754714668e56f8f82dd9adb" alt="Random Meme" width="500"/>
+**Chomps of cheddar**  
+<img src="https://preview.redd.it/fy9f5x677wif1.png?width=640&crop=smart&auto=webp&s=0deea3cb15906fc30261ad7df894afa79f59805b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
