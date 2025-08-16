@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**LOL I LOVE IT**  
-<img src="https://preview.redd.it/kvzoswns17jf1.png?width=640&crop=smart&auto=webp&s=4357a11e07d90204d551a98c119ae65a1494c534" alt="Random Meme" width="500"/>
+**Still love seeing those videos after all this years**  
+<img src="https://preview.redd.it/cb5m37194ejf1.png?width=1080&crop=smart&auto=webp&s=52531d29009c9e330c4ff20f5a7085184f0037c1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
