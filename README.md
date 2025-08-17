@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I suddenly had this realization. It was a cautionary tale all along.**  
-<img src="https://preview.redd.it/9t38pll4kfjf1.png?width=320&crop=smart&auto=webp&s=eb58f3ebd335cf1022f1c15d9a9c64ef57ea34c5" alt="Random Meme" width="500"/>
+**He and she**  
+<img src="https://preview.redd.it/dwzjyp88sijf1.png?width=1080&crop=smart&auto=webp&s=cc1076507a84dd7e9e435bcdadd1df4194174718" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
