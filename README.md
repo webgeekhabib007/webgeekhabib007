@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sheep mentality**  
-<img src="https://preview.redd.it/6oy9xqqvxfjf1.png?width=960&crop=smart&auto=webp&s=e9e754a4d045f213beceda6f96dcde519370841b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/6669dfydzgjf1.png?width=1080&crop=smart&auto=webp&s=a3f948206bfe9b553bc36df63d641a2a72832fe2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
