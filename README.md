@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You just can't prove it**  
-<img src="https://preview.redd.it/6ylaf5pemkjf1.png?width=1080&crop=smart&auto=webp&s=5c8d9c05463ae455868899a4cba8ad7d962bb25d" alt="Random Meme" width="500"/>
+**Sheep mentality**  
+<img src="https://preview.redd.it/6oy9xqqvxfjf1.png?width=960&crop=smart&auto=webp&s=e9e754a4d045f213beceda6f96dcde519370841b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
