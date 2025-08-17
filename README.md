@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Quietly exiting the party**  
-<img src="https://preview.redd.it/ei5brqbpmhjf1.png?width=320&crop=smart&auto=webp&s=8583ccd73f01dfe4a7f15d81deafd92e81443c0a" alt="Random Meme" width="500"/>
+**top 10 insane anime plot twists**  
+<img src="https://preview.redd.it/u4mbimzjm3jf1.png?width=320&crop=smart&auto=webp&s=722a0140ca1bd934c8007c1ef12c57122b1b8a69" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
