@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He and she**  
-<img src="https://preview.redd.it/dwzjyp88sijf1.png?width=1080&crop=smart&auto=webp&s=cc1076507a84dd7e9e435bcdadd1df4194174718" alt="Random Meme" width="500"/>
+**That's terrible officer**  
+<img src="https://preview.redd.it/e6myjsrwhijf1.gif?width=1080&crop=smart&format=png8&s=f4c471af90ae9de4716a7444129f07bf64bede4a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
