@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ihwlq1f8dcjf1.png?width=1080&crop=smart&auto=webp&s=a68ddfbc07c8fa0925944614dfc5703990dab10a" alt="Random Meme" width="500"/>
+**This is the darkest timeline**  
+<img src="https://preview.redd.it/7onx5hseq1jf1.gif?width=640&crop=smart&format=png8&s=4dd47a74e245b9069a7fa8d7dbf32fe3cfac0fa3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
