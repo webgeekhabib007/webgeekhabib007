@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**just leave them at home**  
-<img src="https://preview.redd.it/qpakai9btajf1.png?width=320&crop=smart&auto=webp&s=e1f1fc5fedc80378eebf8da49d664f91b4694257" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ihwlq1f8dcjf1.png?width=1080&crop=smart&auto=webp&s=a68ddfbc07c8fa0925944614dfc5703990dab10a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
