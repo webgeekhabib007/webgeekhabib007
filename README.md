@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He and she**  
-<img src="https://preview.redd.it/dwzjyp88sijf1.png?width=1080&crop=smart&auto=webp&s=cc1076507a84dd7e9e435bcdadd1df4194174718" alt="Random Meme" width="500"/>
+**just leave them at home**  
+<img src="https://preview.redd.it/qpakai9btajf1.png?width=320&crop=smart&auto=webp&s=e1f1fc5fedc80378eebf8da49d664f91b4694257" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
