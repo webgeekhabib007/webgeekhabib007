@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You read that right**  
-<img src="https://preview.redd.it/7fdvzuwdn7jf1.png?width=640&crop=smart&auto=webp&s=0973033c72ab693c4cd4574e2d8aec4395fb87ef" alt="Random Meme" width="500"/>
+**That's terrible officer**  
+<img src="https://preview.redd.it/e6myjsrwhijf1.gif?width=1080&crop=smart&format=png8&s=f4c471af90ae9de4716a7444129f07bf64bede4a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
