@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is the darkest timeline**  
-<img src="https://preview.redd.it/7onx5hseq1jf1.gif?width=640&crop=smart&format=png8&s=4dd47a74e245b9069a7fa8d7dbf32fe3cfac0fa3" alt="Random Meme" width="500"/>
+**You just can't prove it**  
+<img src="https://preview.redd.it/6ylaf5pemkjf1.png?width=1080&crop=smart&auto=webp&s=5c8d9c05463ae455868899a4cba8ad7d962bb25d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
