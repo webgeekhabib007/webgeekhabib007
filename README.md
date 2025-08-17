@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**top 10 insane anime plot twists**  
-<img src="https://preview.redd.it/u4mbimzjm3jf1.png?width=320&crop=smart&auto=webp&s=722a0140ca1bd934c8007c1ef12c57122b1b8a69" alt="Random Meme" width="500"/>
+**I suddenly had this realization. It was a cautionary tale all along.**  
+<img src="https://preview.redd.it/9t38pll4kfjf1.png?width=320&crop=smart&auto=webp&s=eb58f3ebd335cf1022f1c15d9a9c64ef57ea34c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
