@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Time to get to work**  
-<img src="https://preview.redd.it/c5vtuusrebjf1.gif?width=640&crop=smart&format=png8&s=56b9fb5770e1c29430b72beb899c9acd2914c458" alt="Random Meme" width="500"/>
+**He and she**  
+<img src="https://preview.redd.it/dwzjyp88sijf1.png?width=1080&crop=smart&auto=webp&s=cc1076507a84dd7e9e435bcdadd1df4194174718" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
