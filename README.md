@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The gaslighting of the entire world caught in 4k.**  
-<img src="https://preview.redd.it/5l5twnf454jf1.png?width=1080&crop=smart&auto=webp&s=382d4aee404c7331b26116bf1507400f2bf6fb5e" alt="Random Meme" width="500"/>
+**He Gets Us**  
+<img src="https://preview.redd.it/q0fhlj1rmfjf1.png?width=960&crop=smart&auto=webp&s=5da9846364bc7c4bd5185e9cb600e1b6816864fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
