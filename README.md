@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He and she**  
-<img src="https://preview.redd.it/dwzjyp88sijf1.png?width=1080&crop=smart&auto=webp&s=cc1076507a84dd7e9e435bcdadd1df4194174718" alt="Random Meme" width="500"/>
+**Total control**  
+<img src="https://preview.redd.it/wdf4qfnwqsjf1.gif?width=640&crop=smart&format=png8&s=d87ac56673593f47ebfc6fbf2634aaf23b27064e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
