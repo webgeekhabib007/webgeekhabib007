@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Total control**  
-<img src="https://preview.redd.it/wdf4qfnwqsjf1.gif?width=640&crop=smart&format=png8&s=d87ac56673593f47ebfc6fbf2634aaf23b27064e" alt="Random Meme" width="500"/>
+**Three types of gym-goers**  
+<img src="https://preview.redd.it/nxancigkgljf1.png?width=1080&crop=smart&auto=webp&s=51c1216861337f94cd862fc94aa3d001616d55d2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
