@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sheep mentality**  
-<img src="https://preview.redd.it/6oy9xqqvxfjf1.png?width=960&crop=smart&auto=webp&s=e9e754a4d045f213beceda6f96dcde519370841b" alt="Random Meme" width="500"/>
+**Hybrid english**  
+<img src="https://preview.redd.it/j7415ezm2qjf1.png?width=640&crop=smart&auto=webp&s=ed600d674dccbf4e2c28d9ca49c168d3ceaf45e6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
