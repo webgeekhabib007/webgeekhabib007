@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**15 kilometers uphill BOTH WAYS**  
-<img src="https://preview.redd.it/1b15qri27njf1.gif?width=1080&crop=smart&format=png8&s=60ec8bbce9b56395c074a631768463977c82e56e" alt="Random Meme" width="500"/>
+**Worst human experience**  
+<img src="https://preview.redd.it/dv8768hpaojf1.png?width=1080&crop=smart&auto=webp&s=5aa3359e8cb5399f9d64e66750e100a1d8f3eeeb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
