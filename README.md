@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/s1c118k44kjf1.png?width=1080&crop=smart&auto=webp&s=30b1ef14939ff55c27fb52060bee3179493103b5" alt="Random Meme" width="500"/>
+**15 kilometers uphill BOTH WAYS**  
+<img src="https://preview.redd.it/1b15qri27njf1.gif?width=1080&crop=smart&format=png8&s=60ec8bbce9b56395c074a631768463977c82e56e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
