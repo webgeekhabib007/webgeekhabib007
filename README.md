@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hybrid english**  
-<img src="https://preview.redd.it/j7415ezm2qjf1.png?width=640&crop=smart&auto=webp&s=ed600d674dccbf4e2c28d9ca49c168d3ceaf45e6" alt="Random Meme" width="500"/>
+**Now You Can Sleep With The Fishes, Er, Horse, Forever...**  
+<img src="https://preview.redd.it/3micwt3ttqjf1.png?width=640&crop=smart&auto=webp&s=cefa383019058baaa52e1bfe1af5e7ad38432af7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
