@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ihwlq1f8dcjf1.png?width=1080&crop=smart&auto=webp&s=a68ddfbc07c8fa0925944614dfc5703990dab10a" alt="Random Meme" width="500"/>
+**Slang has gotten dumber the same way humanity have gotten dumber. I know this because when I was a kid in school, when I said I had uncles who were my age all the kids laughed and told me they weren’t my uncles but my cousins. Yeah well guess what I had the highest grade in the whole school.**  
+<img src="https://preview.redd.it/8oq4b978qhjf1.gif?width=640&crop=smart&format=png8&s=7bd7be48b47fba3e35993445c03274a19eef2f1a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
