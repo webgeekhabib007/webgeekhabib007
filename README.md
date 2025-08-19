@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**cherry tomatoes too.**  
-<img src="https://preview.redd.it/2qubvrno3qjf1.gif?width=320&crop=smart&format=png8&s=dd99ceecc1e3d8d78f9d0c76c1943115f3720497" alt="Random Meme" width="500"/>
+**Also vapers, I don't like them.**  
+<img src="https://preview.redd.it/3tucmyeifqjf1.png?width=1080&crop=smart&auto=webp&s=efd82c49e0748b74b967fd863cc5ac5f48464b31" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
