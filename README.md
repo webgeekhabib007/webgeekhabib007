@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**IT'S. ALL. TIMES NEW ROMAN.**  
-<img src="https://preview.redd.it/npsqztm9myjf1.png?width=640&crop=smart&auto=webp&s=dfb1f97bfbc5676666514b8f6ba21abe450ffe04" alt="Random Meme" width="500"/>
+**Total control**  
+<img src="https://preview.redd.it/wdf4qfnwqsjf1.gif?width=640&crop=smart&format=png8&s=d87ac56673593f47ebfc6fbf2634aaf23b27064e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
