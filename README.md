@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It sucks waking up to this fact.**  
-<img src="https://preview.redd.it/j4f080agusjf1.png?width=320&crop=smart&auto=webp&s=6b67ef55765068cbb6d9739e8c31f22d0fe686f0" alt="Random Meme" width="500"/>
+**This is how light bulb manufacturers look**  
+<img src="https://preview.redd.it/ym969gda0wjf1.png?width=1080&crop=smart&auto=webp&s=8adfd5607e102638c816940fb75f7e4c78e6135a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
