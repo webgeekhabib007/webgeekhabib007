@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is how light bulb manufacturers look**  
-<img src="https://preview.redd.it/ym969gda0wjf1.png?width=1080&crop=smart&auto=webp&s=8adfd5607e102638c816940fb75f7e4c78e6135a" alt="Random Meme" width="500"/>
+**cherry tomatoes too.**  
+<img src="https://preview.redd.it/2qubvrno3qjf1.gif?width=320&crop=smart&format=png8&s=dd99ceecc1e3d8d78f9d0c76c1943115f3720497" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
