@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Or the next year**  
-<img src="https://preview.redd.it/kbhgltf6hdjf1.png?width=640&crop=smart&auto=webp&s=c3d0a51d0da216c33299a9baf419cc3e6825ce08" alt="Random Meme" width="500"/>
+**🗿🗿 boyfriend**  
+<img src="https://preview.redd.it/3t4x8rszjrjf1.gif?width=640&crop=smart&format=png8&s=94705cc90b9e56ce75bb8a971f83911cd27b8026" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
