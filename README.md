@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Also vapers, I don't like them.**  
-<img src="https://preview.redd.it/3tucmyeifqjf1.png?width=1080&crop=smart&auto=webp&s=efd82c49e0748b74b967fd863cc5ac5f48464b31" alt="Random Meme" width="500"/>
+**"Wait, that wasn't suppose to happen."**  
+<img src="https://preview.redd.it/87eyr9s4unjf1.png?width=640&crop=smart&auto=webp&s=445d1f7c092a55014c1fa8dc17e88d8a19adbc76" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
