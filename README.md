@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What I Have Told You Is True, From A Certain Maths Point Of View...**  
-<img src="https://preview.redd.it/urj7vatoyyjf1.png?width=320&crop=smart&auto=webp&s=e9f5ab5a50f391b7eb9d43ed7095ef9732c6d883" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/nth6g6z2pwjf1.png?width=1080&crop=smart&auto=webp&s=769eb65009b50c9bf24f26ca2a8b4bf6d65081fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
