@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**🗿🗿 boyfriend**  
-<img src="https://preview.redd.it/3t4x8rszjrjf1.gif?width=640&crop=smart&format=png8&s=94705cc90b9e56ce75bb8a971f83911cd27b8026" alt="Random Meme" width="500"/>
+**It sucks waking up to this fact.**  
+<img src="https://preview.redd.it/j4f080agusjf1.png?width=320&crop=smart&auto=webp&s=6b67ef55765068cbb6d9739e8c31f22d0fe686f0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
