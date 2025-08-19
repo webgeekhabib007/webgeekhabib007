@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Behold my giant face**  
-<img src="https://preview.redd.it/2ucro09suzjf1.png?width=216&crop=smart&auto=webp&s=e96a01e4393f7dc07c36785cad69b772b53b18eb" alt="Random Meme" width="500"/>
+**Total control**  
+<img src="https://preview.redd.it/wdf4qfnwqsjf1.gif?width=640&crop=smart&format=png8&s=d87ac56673593f47ebfc6fbf2634aaf23b27064e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
