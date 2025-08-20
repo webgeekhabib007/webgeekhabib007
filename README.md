@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Too much energy is wasted in fights and arguments**  
-<img src="https://preview.redd.it/5d65tkf215kf1.png?width=1080&crop=smart&auto=webp&s=14653194281a10c5fb661f13e135468429097f04" alt="Random Meme" width="500"/>
+**No more Windows updates yay!**  
+<img src="https://preview.redd.it/aw6b2vu7b2kf1.png?width=1080&crop=smart&auto=webp&s=ce1e275236353ec4a2afe1497e8cad68d83d0005" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
