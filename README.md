@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/dtljemd903kf1.png?width=1080&crop=smart&auto=webp&s=f7a608cb84228a11dbac205abe0d0bc69c06319d" alt="Random Meme" width="500"/>
+**And it's always something like "lmao rofl"**  
+<img src="https://preview.redd.it/qofvmb5cnyjf1.png?width=640&crop=smart&auto=webp&s=5e35c4af2b304e28065abbcffb446e874a2c9d78" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
