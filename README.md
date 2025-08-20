@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**upvote downvote noodles don't noodles same thing**  
-<img src="https://preview.redd.it/a95127zub3kf1.gif?width=320&crop=smart&format=png8&s=caf0bab35d7326513e06ac20149521f04f490757" alt="Random Meme" width="500"/>
+**Too much energy is wasted in fights and arguments**  
+<img src="https://preview.redd.it/5d65tkf215kf1.png?width=1080&crop=smart&auto=webp&s=14653194281a10c5fb661f13e135468429097f04" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
