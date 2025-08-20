@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Seems like every other time there's something new or different...**  
-<img src="https://preview.redd.it/ov5ahl7o1zjf1.png?width=640&crop=smart&auto=webp&s=567ec552e0f26151de7b584d32000fe329ed657f" alt="Random Meme" width="500"/>
+**turtle enjoying a massage**  
+<img src="https://preview.redd.it/3p3b6yovp4kf1.gif?width=216&crop=smart&format=png8&s=bcabdb8420f92be4b45f27fef85c85f5632dabc9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
