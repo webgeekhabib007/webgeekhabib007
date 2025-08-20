@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It really can't be that hard to open?**  
-<img src="https://preview.redd.it/anw844lqa5kf1.png?width=320&crop=smart&auto=webp&s=62f9e1ad81f92da6d709c4e2f50dd5b411fcc59b" alt="Random Meme" width="500"/>
+**It's also works with superhero movies.**  
+<img src="https://preview.redd.it/zoowrme9ctjf1.png?width=1080&crop=smart&auto=webp&s=39d40aa7ceacb8f074dbf51134b944a2be44901b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
