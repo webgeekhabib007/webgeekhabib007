@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And it's always something like "lmao rofl"**  
-<img src="https://preview.redd.it/qofvmb5cnyjf1.png?width=640&crop=smart&auto=webp&s=5e35c4af2b304e28065abbcffb446e874a2c9d78" alt="Random Meme" width="500"/>
+**The Bay Harbour Lovers**  
+<img src="https://preview.redd.it/gzhfea6xu1kf1.png?width=1080&crop=smart&auto=webp&s=0c0452985954906c1cd79e591a83e4d63a27e3b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
