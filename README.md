@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**turtle enjoying a massage**  
-<img src="https://preview.redd.it/3p3b6yovp4kf1.gif?width=216&crop=smart&format=png8&s=bcabdb8420f92be4b45f27fef85c85f5632dabc9" alt="Random Meme" width="500"/>
+**How dare my snacks not respawn.**  
+<img src="https://preview.redd.it/g6anujk1c1kf1.png?width=960&crop=smart&auto=webp&s=49b3cbdc96796502870aa43d038b1009f3fe4ce1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
