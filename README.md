@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's also works with superhero movies.**  
-<img src="https://preview.redd.it/zoowrme9ctjf1.png?width=1080&crop=smart&auto=webp&s=39d40aa7ceacb8f074dbf51134b944a2be44901b" alt="Random Meme" width="500"/>
+**Welll**  
+<img src="https://preview.redd.it/5u2gpz3em0kf1.png?width=1080&crop=smart&auto=webp&s=93f21ab17d61af02191cea78c4540d7b65e6f9fd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
