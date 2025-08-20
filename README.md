@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How dare my snacks not respawn.**  
-<img src="https://preview.redd.it/g6anujk1c1kf1.png?width=960&crop=smart&auto=webp&s=49b3cbdc96796502870aa43d038b1009f3fe4ce1" alt="Random Meme" width="500"/>
+**Eltit***  
+<img src="https://preview.redd.it/uu3h5d984wjf1.png?width=640&crop=smart&auto=webp&s=4e9ffa9b8218ca6759f916e24614226fc23e4250" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
