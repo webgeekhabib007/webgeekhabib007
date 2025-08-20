@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No more Windows updates yay!**  
-<img src="https://preview.redd.it/aw6b2vu7b2kf1.png?width=1080&crop=smart&auto=webp&s=ce1e275236353ec4a2afe1497e8cad68d83d0005" alt="Random Meme" width="500"/>
+**It really can't be that hard to open?**  
+<img src="https://preview.redd.it/anw844lqa5kf1.png?width=320&crop=smart&auto=webp&s=62f9e1ad81f92da6d709c4e2f50dd5b411fcc59b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
