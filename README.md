@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It is unacceptable!**  
-<img src="https://preview.redd.it/smmyahapk0kf1.png?width=1080&crop=smart&auto=webp&s=c0f0ffdba09a9cb8393675f5fd42594f97478aed" alt="Random Meme" width="500"/>
+**It's pretty scary 😅**  
+<img src="https://preview.redd.it/i16dtgecxxjf1.png?width=640&crop=smart&auto=webp&s=1113154ec88ec6bae28a3ab176e8f95d6d4a761f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
