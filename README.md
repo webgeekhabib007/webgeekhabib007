@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wow that gameplay trailer for perfect dark looks cool. Wait it got caned? Didn't it just get revealed**  
-<img src="https://preview.redd.it/2ws14r588dkf1.gif?width=640&crop=smart&format=png8&s=f2c2c0a3e9921b7790025380869200f0896430df" alt="Random Meme" width="500"/>
+**Welll**  
+<img src="https://preview.redd.it/5u2gpz3em0kf1.png?width=1080&crop=smart&auto=webp&s=93f21ab17d61af02191cea78c4540d7b65e6f9fd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
