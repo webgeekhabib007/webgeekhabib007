@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Airpods are as***les**  
-<img src="https://preview.redd.it/rxugdkwi00kf1.png?width=1080&crop=smart&auto=webp&s=2118f5cb00c429d9f71cff8d5f66ca7716c17215" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/k6r3jkmc68kf1.png?width=1080&crop=smart&auto=webp&s=d67d5888b0c0a7c3d3f888c332a2487aca2fee84" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
