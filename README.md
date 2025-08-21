@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What a bright kid**  
-<img src="https://preview.redd.it/r9gn11qvbekf1.gif?width=320&crop=smart&format=png8&s=ceef73180f0457a5733ab4e52f8e8f1c585d0f1d" alt="Random Meme" width="500"/>
+**Truth hurts sometimes**  
+<img src="https://preview.redd.it/nrtqzuylv5kf1.gif?width=640&crop=smart&format=png8&s=849c75929340611cc20eea259908718353fdc9d2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
