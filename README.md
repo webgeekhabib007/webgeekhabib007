@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/pw9f1hj01akf1.png?width=1080&crop=smart&auto=webp&s=c494d390dd6a4cbb9bb58d725629fc2a5793b0ac" alt="Random Meme" width="500"/>
+**Curse you Paramore!**  
+<img src="https://preview.redd.it/vswffkpou9kf1.png?width=640&crop=smart&auto=webp&s=ae8b58f997978085eeb7431f81955c99cb1e7593" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
