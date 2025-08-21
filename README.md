@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/k6r3jkmc68kf1.png?width=1080&crop=smart&auto=webp&s=d67d5888b0c0a7c3d3f888c332a2487aca2fee84" alt="Random Meme" width="500"/>
+**lego star wars**  
+<img src="https://preview.redd.it/x3sggudztxjf1.png?width=320&crop=smart&auto=webp&s=b9c45e096a42f16063458a35749b32b636866781" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
