@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Babe, put the plasma cannon down."**  
-<img src="https://preview.redd.it/k9fkv95h4tjf1.png?width=640&crop=smart&auto=webp&s=5fbca55071958fba7aa85c7aa12162fad1aa48bc" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/v5l4qpcvx2kf1.png?width=1080&crop=smart&auto=webp&s=386f41da1c2289f5bf9ad6fad3adc73bbeee64da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
