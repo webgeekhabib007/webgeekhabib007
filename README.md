@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Truth hurts sometimes**  
-<img src="https://preview.redd.it/nrtqzuylv5kf1.gif?width=640&crop=smart&format=png8&s=849c75929340611cc20eea259908718353fdc9d2" alt="Random Meme" width="500"/>
+**After watching any adaptation**  
+<img src="https://preview.redd.it/jsm9vb680dkf1.png?width=640&crop=smart&auto=webp&s=76a12911c329bdc1847090f41c215564a7eb7785" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
