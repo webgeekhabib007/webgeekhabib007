@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It’s not fair**  
-<img src="https://preview.redd.it/cilxt42mqrjf1.gif?width=640&crop=smart&format=png8&s=27be8399523260f8a64615ecfab96e6cf2f57a39" alt="Random Meme" width="500"/>
+**Different flags, same brain**  
+<img src="https://preview.redd.it/6mtv4wdryfkf1.png?width=960&crop=smart&auto=webp&s=2dd7f358925cf65bcc604459d37a587a39fb5eb3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
