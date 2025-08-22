@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ask her to toss and catch you to establish dominance.**  
-<img src="https://preview.redd.it/iotpp8ax98kf1.png?width=640&crop=smart&auto=webp&s=1c0d4aed9cd8fd25ca51d8948033509e11383583" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/o0yindz4ybkf1.png?width=1080&crop=smart&auto=webp&s=1240592df7bc5c131e82e2f0037f789fc32173ba" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
