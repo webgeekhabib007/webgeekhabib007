@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Education is key**  
-<img src="https://preview.redd.it/ar1c4291w1kf1.gif?width=640&crop=smart&format=png8&s=8c92c98c622eed963c7f044f89be222838678980" alt="Random Meme" width="500"/>
+**No, i don't think i will**  
+<img src="https://preview.redd.it/wjfdqq87tkkf1.png?width=640&crop=smart&auto=webp&s=aff39b838aa54e7e30414e53b8e6bfb98a084092" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
