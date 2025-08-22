@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We locking the chakras with that itch**  
-<img src="https://preview.redd.it/2vjl0jmbxfkf1.gif?width=640&crop=smart&format=png8&s=b3f2b172820984f33b334ec2b500e5cb7b5356e0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/z4475ltvc9kf1.png?width=640&crop=smart&auto=webp&s=45eb2b40ee02cb6ad51a128a03b90ef495790c8f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
