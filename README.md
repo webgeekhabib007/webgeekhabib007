@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**lego star wars**  
-<img src="https://preview.redd.it/x3sggudztxjf1.png?width=320&crop=smart&auto=webp&s=b9c45e096a42f16063458a35749b32b636866781" alt="Random Meme" width="500"/>
+**Wow that gameplay trailer for perfect dark looks cool. Wait it got caned? Didn't it just get revealed**  
+<img src="https://preview.redd.it/2ws14r588dkf1.gif?width=640&crop=smart&format=png8&s=f2c2c0a3e9921b7790025380869200f0896430df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
