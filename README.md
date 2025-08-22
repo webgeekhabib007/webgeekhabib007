@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Different flags, same brain**  
-<img src="https://preview.redd.it/6mtv4wdryfkf1.png?width=960&crop=smart&auto=webp&s=2dd7f358925cf65bcc604459d37a587a39fb5eb3" alt="Random Meme" width="500"/>
+**lego star wars**  
+<img src="https://preview.redd.it/x3sggudztxjf1.png?width=320&crop=smart&auto=webp&s=b9c45e096a42f16063458a35749b32b636866781" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
