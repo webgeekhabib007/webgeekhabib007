@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We're best friends**  
-<img src="https://preview.redd.it/olx5rniv6dkf1.gif?width=640&crop=smart&format=png8&s=c14ffe489386b1838849a16899bfe4d89693228f" alt="Random Meme" width="500"/>
+**Just because you had money didn't necessarily mean you were educated.**  
+<img src="https://preview.redd.it/pta43swrm7kf1.png?width=640&crop=smart&auto=webp&s=a9b7cb97ff1ebd790ee6eec9fd33857929503faf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
