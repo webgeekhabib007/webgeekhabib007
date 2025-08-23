@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Imagine having your own garage.**  
-<img src="https://external-preview.redd.it/S6eYpsU_7cuXqpb8nP8Avj1X6jtRrmUHyZJNw6cAYic.png?width=320&crop=smart&auto=webp&s=02af875ff75055549a25205a7e16d1ee95b3eff1" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/36zp8oejwikf1.png?width=1080&crop=smart&auto=webp&s=2bd9792af13c0529e0502f1d498e6b1142cd7691" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
