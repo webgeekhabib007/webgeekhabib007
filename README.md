@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-***accidentally sharts* Oh thank goodness.**  
-<img src="https://preview.redd.it/sofv9wmd8pkf1.png?width=640&crop=smart&auto=webp&s=55143b79856aff12da62f3b8b122fc192c274ecf" alt="Random Meme" width="500"/>
+**Ohh I See, 🧐🧐🧐🧐🧐🧐**  
+<img src="https://preview.redd.it/xxedct7b1ikf1.png?width=1080&crop=smart&auto=webp&s=ccb0a547704ccbea82c50af09afcb91f8d7abcf5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
