@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ftpkgijfofkf1.png?width=1080&crop=smart&auto=webp&s=42c4fcc68d22f3be9e0cb643f79ac973d9eb0586" alt="Random Meme" width="500"/>
+***chuckles* "I'm in danger."**  
+<img src="https://preview.redd.it/6thbmux8dpkf1.png?width=640&crop=smart&auto=webp&s=427d90de77bd0b701ac817d35ac28bf26cd07ca0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
