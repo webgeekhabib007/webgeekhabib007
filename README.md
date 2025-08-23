@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/36zp8oejwikf1.png?width=1080&crop=smart&auto=webp&s=2bd9792af13c0529e0502f1d498e6b1142cd7691" alt="Random Meme" width="500"/>
+**Driving hack**  
+<img src="https://preview.redd.it/x0wrn8bg8lkf1.gif?width=640&crop=smart&format=png8&s=b2967b30bd4e3b9afc7dfe41f4f554b17b1ced3e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
