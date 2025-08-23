@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ohh I See, 🧐🧐🧐🧐🧐🧐**  
-<img src="https://preview.redd.it/xxedct7b1ikf1.png?width=1080&crop=smart&auto=webp&s=ccb0a547704ccbea82c50af09afcb91f8d7abcf5" alt="Random Meme" width="500"/>
+**Greene is the evil (and fun) version of Carnegie**  
+<img src="https://preview.redd.it/2wp7a4tdurkf1.png?width=320&crop=smart&auto=webp&s=3acb04239d2b8c39d9c5614491e66087738ee44d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
