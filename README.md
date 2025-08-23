@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/acpez8gwzjkf1.png?width=640&crop=smart&auto=webp&s=a514b5576baf15331b1f03d994afd009b6a01750" alt="Random Meme" width="500"/>
+**Detonatus Acetonae**  
+<img src="https://preview.redd.it/3cdgz3q657kf1.gif?width=640&crop=smart&format=png8&s=9b77ba563bd324acf42359795e07d6b8970b70d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
