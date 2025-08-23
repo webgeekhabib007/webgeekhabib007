@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just because you had money didn't necessarily mean you were educated.**  
-<img src="https://preview.redd.it/pta43swrm7kf1.png?width=640&crop=smart&auto=webp&s=a9b7cb97ff1ebd790ee6eec9fd33857929503faf" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cx9hovy6vekf1.png?width=1080&crop=smart&auto=webp&s=4871127188052b6805973081d8158eb715a60af0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
