@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**that's prepared?**  
-<img src="https://preview.redd.it/wi3bzk18njkf1.png?width=960&crop=smart&auto=webp&s=46feff2f5c3ba007d005bfa25e4c145278eda84f" alt="Random Meme" width="500"/>
+**We're best friends**  
+<img src="https://preview.redd.it/olx5rniv6dkf1.gif?width=640&crop=smart&format=png8&s=c14ffe489386b1838849a16899bfe4d89693228f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
