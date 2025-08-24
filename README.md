@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**🌲🌲plant trees 😠**  
-<img src="https://preview.redd.it/jktc7tdppwkf1.png?width=640&crop=smart&auto=webp&s=91aa792ede337be6627bea77c1e92d9bce5a9387" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/j730qrl4iykf1.png?width=640&crop=smart&auto=webp&s=6918c9259d4b29708c787c0d39e1594f6f98597b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
