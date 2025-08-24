@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/8ivv2j726lkf1.png?width=320&crop=smart&auto=webp&s=8c95022b014e39e4a4353b3dc2fdb40847363bcf" alt="Random Meme" width="500"/>
+**Open AI's CEO Sam Altman would**  
+<img src="https://preview.redd.it/90vzxsgo7rkf1.png?width=1080&crop=smart&auto=webp&s=51e0d31f30d026df2f4cec6ee7609550672e3756" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
