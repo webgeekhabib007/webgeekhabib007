@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**what a nice image of a plata- WAIT A MINUTE-**  
-<img src="https://preview.redd.it/6ihlu7ricwkf1.png?width=640&crop=smart&auto=webp&s=aa98e0f936949f051058133cd1e76218561d7252" alt="Random Meme" width="500"/>
+**Driving hack**  
+<img src="https://preview.redd.it/x0wrn8bg8lkf1.gif?width=640&crop=smart&format=png8&s=b2967b30bd4e3b9afc7dfe41f4f554b17b1ced3e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
