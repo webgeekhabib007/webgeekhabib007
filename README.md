@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Um, nice to meet you, gentlemen.**  
-<img src="https://preview.redd.it/hpvkg1kavjkf1.png?width=1080&crop=smart&auto=webp&s=be7840c878dd2a9dc1ccd1faf0a3e3ac46b627ca" alt="Random Meme" width="500"/>
+**smort (this probably will not work)**  
+<img src="https://preview.redd.it/9keqh253zykf1.png?width=640&crop=smart&auto=webp&s=d16609c88c93451245258bafd24a0632aac14070" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
