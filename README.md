@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Open AI's CEO Sam Altman would**  
-<img src="https://preview.redd.it/90vzxsgo7rkf1.png?width=1080&crop=smart&auto=webp&s=51e0d31f30d026df2f4cec6ee7609550672e3756" alt="Random Meme" width="500"/>
+**This timeline is truly one of the timelines ever**  
+<img src="https://preview.redd.it/fc5ajtjq9rkf1.png?width=960&crop=smart&auto=webp&s=25c4addbefcd077e43a941a02e3dd258b2941af2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
