@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This timeline is truly one of the timelines ever**  
-<img src="https://preview.redd.it/fc5ajtjq9rkf1.png?width=960&crop=smart&auto=webp&s=25c4addbefcd077e43a941a02e3dd258b2941af2" alt="Random Meme" width="500"/>
+**what a nice image of a plata- WAIT A MINUTE-**  
+<img src="https://preview.redd.it/6ihlu7ricwkf1.png?width=640&crop=smart&auto=webp&s=aa98e0f936949f051058133cd1e76218561d7252" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
