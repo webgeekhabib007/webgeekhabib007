@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Classic Mom**  
-<img src="https://preview.redd.it/9gn34pnl4vkf1.gif?width=320&crop=smart&format=png8&s=9033edbcfa4a195df2f7f8b8161e0e4d3040e4ee" alt="Random Meme" width="500"/>
+**It is old historical image**  
+<img src="https://preview.redd.it/kovpaxc0izkf1.png?width=320&crop=smart&auto=webp&s=f676e714e76a0147b13fbef960790e161dc48741" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
