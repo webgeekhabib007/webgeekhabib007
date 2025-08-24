@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It is old historical image**  
-<img src="https://preview.redd.it/kovpaxc0izkf1.png?width=320&crop=smart&auto=webp&s=f676e714e76a0147b13fbef960790e161dc48741" alt="Random Meme" width="500"/>
+**history exams be like**  
+<img src="https://preview.redd.it/obwozl6uzzkf1.png?width=640&crop=smart&auto=webp&s=f66808a200de395053a604d72b6d12b05f649f30" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
