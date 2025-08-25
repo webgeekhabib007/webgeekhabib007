@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A unique title.**  
-<img src="https://preview.redd.it/odla4r0t4xkf1.png?width=640&crop=smart&auto=webp&s=69695b280d5ef63479909b5045f7c8488941f740" alt="Random Meme" width="500"/>
+**I'm no better than a man**  
+<img src="https://preview.redd.it/17hbndu871lf1.png?width=320&crop=smart&auto=webp&s=d858f1eeaf7c5229c47ef0334983fabd75e81260" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
