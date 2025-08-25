@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta complain so I have something to complain about**  
-<img src="https://preview.redd.it/rv230765dskf1.gif?width=320&crop=smart&format=png8&s=c3f7202cf25c8038c5c8d5e95f4d55468b2b4f2f" alt="Random Meme" width="500"/>
+**For Real.**  
+<img src="https://preview.redd.it/tov9wzem4tkf1.gif?width=320&crop=smart&format=png8&s=1c9473e8575cb4a8b5aba6b78e4c91b057af2c36" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
