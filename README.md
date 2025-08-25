@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And that's how I ended up spending a day playing DnD with the guy who had a crush on me**  
-<img src="https://preview.redd.it/bmt53arx81lf1.png?width=320&crop=smart&auto=webp&s=175a25bfe4020c7e9ea84d6c90ce1ae20f5d8581" alt="Random Meme" width="500"/>
+**A unique title.**  
+<img src="https://preview.redd.it/odla4r0t4xkf1.png?width=640&crop=smart&auto=webp&s=69695b280d5ef63479909b5045f7c8488941f740" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
