@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They owe $80,000 in legal fees**  
-<img src="https://preview.redd.it/ubyhzzb035lf1.gif?width=320&crop=smart&format=png8&s=65a3b284d8c580adeb9cd5e62feabcb6eae1381e" alt="Random Meme" width="500"/>
+**O(rangutan]. C(harlie) edit**  
+<img src="https://preview.redd.it/p1nb5gyyf2lf1.png?width=1080&crop=smart&auto=webp&s=0569e42a6db40b9a3f165d156bbd17110f9b7ef7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
