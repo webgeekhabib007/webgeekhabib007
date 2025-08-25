@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/36zp8oejwikf1.png?width=1080&crop=smart&auto=webp&s=2bd9792af13c0529e0502f1d498e6b1142cd7691" alt="Random Meme" width="500"/>
+**And that's how I ended up spending a day playing DnD with the guy who had a crush on me**  
+<img src="https://preview.redd.it/bmt53arx81lf1.png?width=320&crop=smart&auto=webp&s=175a25bfe4020c7e9ea84d6c90ce1ae20f5d8581" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
