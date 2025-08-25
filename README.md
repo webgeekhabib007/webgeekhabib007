@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For Real.**  
-<img src="https://preview.redd.it/tov9wzem4tkf1.gif?width=320&crop=smart&format=png8&s=1c9473e8575cb4a8b5aba6b78e4c91b057af2c36" alt="Random Meme" width="500"/>
+***accidentally sharts* Oh thank goodness.**  
+<img src="https://preview.redd.it/sofv9wmd8pkf1.png?width=640&crop=smart&auto=webp&s=55143b79856aff12da62f3b8b122fc192c274ecf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
