@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I think I'm ready to propose**  
-<img src="https://preview.redd.it/c9s1oikoe1lf1.gif?width=216&crop=smart&format=png8&s=c1fa534eae99b27a78c86fd2d95aadc6bae82013" alt="Random Meme" width="500"/>
+**The cartoon from the early 2000s is more culturally relevant and than his billion dollar movies lol**  
+<img src="https://preview.redd.it/7setnpx2w6lf1.gif?width=640&crop=smart&format=png8&s=4737d10e6dd5f53ebcd2480e3caa65970d4db78f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
