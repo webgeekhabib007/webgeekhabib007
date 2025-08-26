@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not gonna buy my dream bike😞**  
-<img src="https://preview.redd.it/5yq8mfhgxdlf1.png?width=640&crop=smart&auto=webp&s=4eacded2d9bf6720b63f7f9c1e4a24c202db29c1" alt="Random Meme" width="500"/>
+**I thought Christmas was bad?**  
+<img src="https://preview.redd.it/1a0vzt6icflf1.png?width=1080&crop=smart&auto=webp&s=f4887e66bf2e22736958119bfadb73a80bfe7c28" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
