@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The cartoon from the early 2000s is more culturally relevant and than his billion dollar movies lol**  
-<img src="https://preview.redd.it/7setnpx2w6lf1.gif?width=640&crop=smart&format=png8&s=4737d10e6dd5f53ebcd2480e3caa65970d4db78f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/pme4uxopf6lf1.png?width=960&crop=smart&auto=webp&s=d4b1b4a36d247ded13ef997cc4be7f620c1ff82b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
