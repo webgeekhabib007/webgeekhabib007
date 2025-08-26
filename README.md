@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I think I'm ready to propose**  
-<img src="https://preview.redd.it/c9s1oikoe1lf1.gif?width=216&crop=smart&format=png8&s=c1fa534eae99b27a78c86fd2d95aadc6bae82013" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/h0al873bldlf1.png?width=1080&crop=smart&auto=webp&s=2696653cbe49c648ef0d74ac6d9cfe496ea2a1e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
