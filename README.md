@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I guess the saying is true if you can do comedy you can also do drama**  
-<img src="https://preview.redd.it/l55psm2cjvkf1.gif?width=640&crop=smart&format=png8&s=70c2ee0ce157575ae9e9a45d705686a0931ed196" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/12vvnxjhcclf1.png?width=960&crop=smart&auto=webp&s=129bc95ad35cb0ab51b3825d138a4779a5a1f7d4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
