@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Women, am I right?**  
-<img src="https://preview.redd.it/h8l3hihu68lf1.png?width=640&crop=smart&auto=webp&s=3f24a48175c33aaa1587038fabaef57cf13a8218" alt="Random Meme" width="500"/>
+**bsydvdkke already exists**  
+<img src="https://preview.redd.it/y7jeuzbavblf1.png?width=1080&crop=smart&auto=webp&s=42570d524d9f44e06be407a4f5a01c4844a5eec5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
