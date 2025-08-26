@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just like me fr**  
-<img src="https://preview.redd.it/qakquq9f0xkf1.png?width=1080&crop=smart&auto=webp&s=8800d38bdc76934f7829371c68428cba70d5bfe5" alt="Random Meme" width="500"/>
+**I think I'm ready to propose**  
+<img src="https://preview.redd.it/c9s1oikoe1lf1.gif?width=216&crop=smart&format=png8&s=c1fa534eae99b27a78c86fd2d95aadc6bae82013" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
