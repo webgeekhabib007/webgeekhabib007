@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**bsydvdkke already exists**  
-<img src="https://preview.redd.it/y7jeuzbavblf1.png?width=1080&crop=smart&auto=webp&s=42570d524d9f44e06be407a4f5a01c4844a5eec5" alt="Random Meme" width="500"/>
+**That one homie be like:**  
+<img src="https://preview.redd.it/q7tj75xa1blf1.png?width=960&crop=smart&auto=webp&s=abe42e078cffced8ffc3c2fd1f6f087f19dba9c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
