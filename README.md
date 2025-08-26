@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me👤irl**  
-<img src="https://preview.redd.it/c8pls5bl44lf1.png?width=640&crop=smart&auto=webp&s=a402dd4ee12ca154ccdfb9eafb19844a77d60eab" alt="Random Meme" width="500"/>
+**Honestly sad to see people forgetting that real artists still exist**  
+<img src="https://preview.redd.it/zcm04oort0lf1.png?width=960&crop=smart&auto=webp&s=547022f3ffb6b13d7a79187c40101f6ee969e244" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
