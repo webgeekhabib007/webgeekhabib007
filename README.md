@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not everybody plays Dark Souls**  
-<img src="https://preview.redd.it/ow3epqj2n5lf1.png?width=640&crop=smart&auto=webp&s=545ce090e61efc5f80b651406d4f0040377ba260" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/gab4mdou8dlf1.png?width=640&crop=smart&auto=webp&s=a12268bbcb450b2a6897df5f8b52b2ac039865e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
