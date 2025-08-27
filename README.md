@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I thought he just wore a funny hat**  
-<img src="https://preview.redd.it/3m7qouvnqalf1.png?width=640&crop=smart&auto=webp&s=72e658526d6f82c3bbc9b31f15034d0bbdef053c" alt="Random Meme" width="500"/>
+**Day off........**  
+<img src="https://preview.redd.it/da89z1mqdglf1.png?width=1080&crop=smart&auto=webp&s=ad9088d09428b7e2181d479372e3e0232842ce9e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
