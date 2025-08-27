@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/gab4mdou8dlf1.png?width=640&crop=smart&auto=webp&s=a12268bbcb450b2a6897df5f8b52b2ac039865e2" alt="Random Meme" width="500"/>
+**Either way they ain't leavin until 6 in the morn**  
+<img src="https://preview.redd.it/tjv8erst6flf1.png?width=1080&crop=smart&auto=webp&s=a0aa7d742879cfee74bdef5c68a539997dbb72cf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
