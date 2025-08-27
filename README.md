@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I thought Christmas was bad?**  
-<img src="https://preview.redd.it/1a0vzt6icflf1.png?width=1080&crop=smart&auto=webp&s=f4887e66bf2e22736958119bfadb73a80bfe7c28" alt="Random Meme" width="500"/>
+**Not everybody plays Dark Souls**  
+<img src="https://preview.redd.it/ow3epqj2n5lf1.png?width=640&crop=smart&auto=webp&s=545ce090e61efc5f80b651406d4f0040377ba260" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
