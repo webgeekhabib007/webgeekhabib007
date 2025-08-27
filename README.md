@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ruined my day again**  
-<img src="https://preview.redd.it/acyfm1al2llf1.png?width=960&crop=smart&auto=webp&s=0dae7fce6d7bf6205706a7580cbee930b9c67cf4" alt="Random Meme" width="500"/>
+**manyn'ter beans**  
+<img src="https://preview.redd.it/y9y1c9841elf1.png?width=320&crop=smart&auto=webp&s=b9714ee13c25b9a7a10f3a7895aa3ac744aa5520" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
