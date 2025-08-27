@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A Russian title.**  
-<img src="https://preview.redd.it/xbyw8avaj0lf1.png?width=640&crop=smart&auto=webp&s=eba4bad67b4a5ffea4421538989a640acfd57bff" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/4mlf3cehcmlf1.png?width=320&crop=smart&auto=webp&s=2d418c03ef665bb21a96db91aeb4d6dd678404c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
