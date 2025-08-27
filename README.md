@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**manyn'ter beans**  
-<img src="https://preview.redd.it/y9y1c9841elf1.png?width=320&crop=smart&auto=webp&s=b9714ee13c25b9a7a10f3a7895aa3ac744aa5520" alt="Random Meme" width="500"/>
+**A Russian title.**  
+<img src="https://preview.redd.it/xbyw8avaj0lf1.png?width=640&crop=smart&auto=webp&s=eba4bad67b4a5ffea4421538989a640acfd57bff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
