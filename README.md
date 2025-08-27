@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have committed crimes against England and it's people, what say you in your defense?**  
-<img src="https://preview.redd.it/q5quzn96ehlf1.png?width=640&crop=smart&auto=webp&s=152b6c0457babf0764e20777aa418f0b8037a5cd" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/vf8guloukclf1.png?width=1080&crop=smart&auto=webp&s=8118580d095c3440e3d229a8cec0eda0a31abd75" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
