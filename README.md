@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Makes you feel like a celeb**  
-<img src="https://preview.redd.it/ma6f3u6t2elf1.gif?width=320&crop=smart&format=png8&s=ee98dacadb691a9eb711c539203ea74de0406f94" alt="Random Meme" width="500"/>
+**No internet is better than slow internet**  
+<img src="https://preview.redd.it/shc4nf59lolf1.png?width=640&crop=smart&auto=webp&s=de8115764795e628ada0f481dd6459e95c65cd25" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
