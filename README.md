@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wow another one and how original. At least be creative because you ain’t going to be remembered like Zodiac and Dahmer are**  
-<img src="https://preview.redd.it/92y09k0zfnlf1.gif?width=320&crop=smart&format=png8&s=09916244b34e94fae127ec496137dad1af90a529" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/h0al873bldlf1.png?width=1080&crop=smart&auto=webp&s=2696653cbe49c648ef0d74ac6d9cfe496ea2a1e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
