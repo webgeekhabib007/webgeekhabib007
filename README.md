@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**TIL American grading system**  
-<img src="https://preview.redd.it/likwkab188lf1.png?width=640&crop=smart&auto=webp&s=eda68c35aa4ee2dc2ade4c3fef3df850f06a8071" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/mqyd00p4uilf1.png?width=1080&crop=smart&auto=webp&s=a117e00d4239e7013a3e87e2d15291ffe5eb52ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
