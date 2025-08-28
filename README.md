@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I like to think men have better taste in other men than women do which is why I don’t get asked out.**  
-<img src="https://preview.redd.it/8jn775d9kdlf1.gif?width=320&crop=smart&format=png8&s=854c65d1847ef980e1a313775ef52adcf48b60e2" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/12vvnxjhcclf1.png?width=960&crop=smart&auto=webp&s=129bc95ad35cb0ab51b3825d138a4779a5a1f7d4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
