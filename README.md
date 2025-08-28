@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Legit extinct**  
-<img src="https://preview.redd.it/s1opqbidmqlf1.png?width=320&crop=smart&auto=webp&s=e7a72b35a892e308c6466ce7e0c104be237b8dfe" alt="Random Meme" width="500"/>
+**Makes you feel like a celeb**  
+<img src="https://preview.redd.it/ma6f3u6t2elf1.gif?width=320&crop=smart&format=png8&s=ee98dacadb691a9eb711c539203ea74de0406f94" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
