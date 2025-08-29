@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It will work trust me**  
-<img src="https://preview.redd.it/6cdlrsd3nslf1.png?width=640&crop=smart&auto=webp&s=c9c1dfe93f37d0954459a510a43edc6f74aa6c64" alt="Random Meme" width="500"/>
+**Every time**  
+<img src="https://preview.redd.it/njipan5x00mf1.png?width=320&crop=smart&auto=webp&s=ad23529956e471c623c29a62cba4ca7d75d12a7a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
