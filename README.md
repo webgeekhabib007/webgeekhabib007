@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Tell me about your culture**  
-<img src="https://preview.redd.it/ymwr6wa4bwlf1.png?width=1080&crop=smart&auto=webp&s=b299109999ec71700b3a439e1c183918f91a636a" alt="Random Meme" width="500"/>
+**Made this, think it's funny**  
+<img src="https://preview.redd.it/dkhl7cm03rlf1.png?width=1080&crop=smart&auto=webp&s=2d2fb608c799d1f043c35e800012ef2b4eae94f0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
