@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Saw this on Linkedin. Couldn't help sharing :D. For my fellow designers.**  
-<img src="https://preview.redd.it/d0pkz4kvrvlf1.png?width=1080&crop=smart&auto=webp&s=678823a3c46c18d00f5561289e1fdfe677bfb5f4" alt="Random Meme" width="500"/>
+**Tell me about your culture**  
+<img src="https://preview.redd.it/ymwr6wa4bwlf1.png?width=1080&crop=smart&auto=webp&s=b299109999ec71700b3a439e1c183918f91a636a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
