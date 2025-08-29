@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Jokes on now. I'm now into that shit!"**  
-<img src="https://preview.redd.it/3rlesml77plf1.png?width=640&crop=smart&auto=webp&s=9cd31839f5e792508fa45b08e02a6235a5cb4a80" alt="Random Meme" width="500"/>
+**No tip for you**  
+<img src="https://preview.redd.it/lqiutwsayulf1.gif?width=320&crop=smart&format=png8&s=0cd7f507b7b9a7a6f7aa3343fca785581a83c962" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
