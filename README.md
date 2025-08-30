@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Apple to EU : Laughs in ‘Pay us to compete’**  
-<img src="https://external-preview.redd.it/mCTfArARMvEz5h52cveXkf8YHtpuvds5bjN1PBeNi7M.jpeg?width=1080&crop=smart&auto=webp&s=9b8c2cde01360be8734d7f83d41b2e9d79560e9b" alt="Random Meme" width="500"/>
+**Why it be like that**  
+<img src="https://preview.redd.it/ie8ms4cnpylf1.png?width=640&crop=smart&auto=webp&s=90f1e273e4ccca9cb61984d7e791ce56cd72800c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
