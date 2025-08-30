@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta admit, the older women’s reaction is pretty endearing**  
-<img src="https://preview.redd.it/wductvjwx2mf1.gif?width=640&crop=smart&format=png8&s=9554d3d542c126cda1474ec3a25f049676171413" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/r33xbyd3qvlf1.png?width=1080&crop=smart&auto=webp&s=27fe2e0255db4cd6395a3e0c8ce07dcc403f1e91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
