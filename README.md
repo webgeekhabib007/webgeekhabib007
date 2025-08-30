@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/r33xbyd3qvlf1.png?width=1080&crop=smart&auto=webp&s=27fe2e0255db4cd6395a3e0c8ce07dcc403f1e91" alt="Random Meme" width="500"/>
+**What predators?**  
+<img src="https://preview.redd.it/urgo0ow4gvlf1.png?width=1080&crop=smart&auto=webp&s=4f8e94d19d697fe4bd20604113201a5cf8837ff6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
