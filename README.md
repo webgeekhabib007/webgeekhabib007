@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Taylor Swift’s engagement diamond ring has sparked a diamond rush**  
-<img src="https://preview.redd.it/bs6hoab5yslf1.png?width=320&crop=smart&auto=webp&s=aa5364b3e4b2bd176181ecfdd2e55cf188539b7a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/307vgw5oorlf1.png?width=640&crop=smart&auto=webp&s=2b2ff61fe79465b9aa51faa92618dc152b225e4b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
