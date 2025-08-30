@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**is he stupid, or am i just that boring?**  
-<img src="https://preview.redd.it/jegap5uz3rlf1.png?width=640&crop=smart&auto=webp&s=7868bf47d7d575a85cf1f25bf27e4eab1d2bcc68" alt="Random Meme" width="500"/>
+**An aquatic title.**  
+<img src="https://preview.redd.it/29llm4a5nvlf1.png?width=640&crop=smart&auto=webp&s=9ac785e77b745ac6a3882eae226aeb8d26e9da31" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
