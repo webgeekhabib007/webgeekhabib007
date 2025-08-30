@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta admit, the older women’s reaction is pretty endearing**  
-<img src="https://preview.redd.it/wductvjwx2mf1.gif?width=640&crop=smart&format=png8&s=9554d3d542c126cda1474ec3a25f049676171413" alt="Random Meme" width="500"/>
+**"I won, but at what cost?"**  
+<img src="https://preview.redd.it/povvrtxwpvlf1.png?width=640&crop=smart&auto=webp&s=68ee94c57d386b6f610caa7abae99110f9200c4f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
