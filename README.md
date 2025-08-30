@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"I won, but at what cost?"**  
-<img src="https://preview.redd.it/povvrtxwpvlf1.png?width=640&crop=smart&auto=webp&s=68ee94c57d386b6f610caa7abae99110f9200c4f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/bqh2bdsw4vlf1.png?width=320&crop=smart&auto=webp&s=dc0c147d67b432cc197347c602022e2d3390e5db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
