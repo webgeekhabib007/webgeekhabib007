@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**An aquatic title.**  
-<img src="https://preview.redd.it/29llm4a5nvlf1.png?width=640&crop=smart&auto=webp&s=9ac785e77b745ac6a3882eae226aeb8d26e9da31" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/r33xbyd3qvlf1.png?width=1080&crop=smart&auto=webp&s=27fe2e0255db4cd6395a3e0c8ce07dcc403f1e91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
