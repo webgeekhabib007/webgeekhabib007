@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They finally made one the right size.**  
-<img src="https://preview.redd.it/rer9ps8vullf1.png?width=1080&crop=smart&auto=webp&s=d1b50b9bdc780b8915d2b71a30d90ad1324a5363" alt="Random Meme" width="500"/>
+**gotta pull the power move**  
+<img src="https://preview.redd.it/tbbga0xvrzlf1.png?width=1080&crop=smart&auto=webp&s=77005be2dca5c9f90c4d9df2cc1fc557bd940268" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
