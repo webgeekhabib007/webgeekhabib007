@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Freelancer need every single workingf day**  
-<img src="https://preview.redd.it/bjfmyt7k5llf1.gif?width=640&crop=smart&format=png8&s=f25c9b395f80a60bb3f8e4e6063a276ff5a8ea2a" alt="Random Meme" width="500"/>
+**I AM READY TO TAKE OVER**  
+<img src="https://preview.redd.it/5t0yib4xp3mf1.png?width=1080&crop=smart&auto=webp&s=409fb472c1d4700ff313a3c07c8908c25563d70a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
