@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What are some technologies that have reached their peak?**  
-<img src="https://preview.redd.it/igwnqkqmy1mf1.png?width=960&crop=smart&auto=webp&s=e40be1362a8200b1e195883958a9963eccc53e09" alt="Random Meme" width="500"/>
+**Gotta admit, the older women’s reaction is pretty endearing**  
+<img src="https://preview.redd.it/wductvjwx2mf1.gif?width=640&crop=smart&format=png8&s=9554d3d542c126cda1474ec3a25f049676171413" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
