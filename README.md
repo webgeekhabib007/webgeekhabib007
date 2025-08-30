@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I AM READY TO TAKE OVER**  
-<img src="https://preview.redd.it/5t0yib4xp3mf1.png?width=1080&crop=smart&auto=webp&s=409fb472c1d4700ff313a3c07c8908c25563d70a" alt="Random Meme" width="500"/>
+**Taylor Swift’s engagement diamond ring has sparked a diamond rush**  
+<img src="https://preview.redd.it/bs6hoab5yslf1.png?width=320&crop=smart&auto=webp&s=aa5364b3e4b2bd176181ecfdd2e55cf188539b7a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
