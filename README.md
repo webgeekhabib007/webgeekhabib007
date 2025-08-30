@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/r33xbyd3qvlf1.png?width=1080&crop=smart&auto=webp&s=27fe2e0255db4cd6395a3e0c8ce07dcc403f1e91" alt="Random Meme" width="500"/>
+**What are some technologies that have reached their peak?**  
+<img src="https://preview.redd.it/igwnqkqmy1mf1.png?width=960&crop=smart&auto=webp&s=e40be1362a8200b1e195883958a9963eccc53e09" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
