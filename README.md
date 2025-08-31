@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You guys know it's gonna happen.**  
-<img src="https://preview.redd.it/m2mt795ghbmf1.gif?width=640&crop=smart&format=png8&s=8dd8fc9f6fcce0016bc1fe6568c24c7714d65b61" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/vsoueam8x0mf1.png?width=1080&crop=smart&auto=webp&s=321d01edeb6d4a2da35a0a373796800eaf679b19" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
