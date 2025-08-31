@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/zc10lq7p2xlf1.png?width=1080&crop=smart&auto=webp&s=7af314e6a4522e323497ca410c456dfdc2ae3c3e" alt="Random Meme" width="500"/>
+**The first three movies Tim Burton directed (In reverse order)**  
+<img src="https://preview.redd.it/kiki3i4yj6mf1.png?width=320&crop=smart&auto=webp&s=c5413c35e796e282717b8e5fcb2470903970f8ab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
