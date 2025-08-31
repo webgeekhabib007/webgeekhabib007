@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**like no way y'all thought..**  
-<img src="https://preview.redd.it/ta3ewj6twcmf1.png?width=1080&crop=smart&auto=webp&s=af47cbc80bdac2fa481188dc1330ce8815925626" alt="Random Meme" width="500"/>
+**British people trying to edit a wikipedia article:**  
+<img src="https://preview.redd.it/ld47xtbth7mf1.png?width=640&crop=smart&auto=webp&s=7287d34367c5a638b67490003b4e754befac41d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
