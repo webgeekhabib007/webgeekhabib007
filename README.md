@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I won’t be surprised if she like girls now**  
-<img src="https://preview.redd.it/lupvgmm5ddmf1.gif?width=320&crop=smart&format=png8&s=6dca8773e61831ee1a111057a19c568be7369342" alt="Random Meme" width="500"/>
+**This leaves me sleepless**  
+<img src="https://preview.redd.it/hbo8rd6ts6mf1.png?width=1080&crop=smart&auto=webp&s=8e998f61ffc9fc2c6e1a9008b60884b827c8602f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
