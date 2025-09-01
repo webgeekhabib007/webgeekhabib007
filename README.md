@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/j49azss0gamf1.png?width=640&crop=smart&auto=webp&s=8bd5a46d839c161e50cb214856c5ba4201435da3" alt="Random Meme" width="500"/>
+**Be like Spongebob**  
+<img src="https://preview.redd.it/kpdi4ncxz6mf1.png?width=640&crop=smart&auto=webp&s=78b0c4a74ff36670a6eb51fad65562722b5318bb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
