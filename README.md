@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"live realized drama show," as they call it**  
-<img src="https://preview.redd.it/5khcpuvi1jmf1.png?width=960&crop=smart&auto=webp&s=ec1413c00cf96a2606560d6b7e4738c6509b6ad3" alt="Random Meme" width="500"/>
+**Title***  
+<img src="https://preview.redd.it/wokgi2kvykmf1.png?width=640&crop=smart&auto=webp&s=177c21edfe5a0ea3147cdc0ded2662f1b8505b01" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
