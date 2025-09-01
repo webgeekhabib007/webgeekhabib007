@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This leaves me sleepless**  
-<img src="https://preview.redd.it/hbo8rd6ts6mf1.png?width=1080&crop=smart&auto=webp&s=8e998f61ffc9fc2c6e1a9008b60884b827c8602f" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/47mr5zelkcmf1.png?width=1080&crop=smart&auto=webp&s=c5e9dc6bcf758e7348f5142c916813f16aa93302" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
