@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why do they get all the dinosaur t-shirts and blankets? ITS NOT FAIR!**  
-<img src="https://preview.redd.it/2gbetzpi1gmf1.png?width=640&crop=smart&auto=webp&s=4ea573eb1f961712bbbff908f4c0ab4b9e62f6ad" alt="Random Meme" width="500"/>
+**Every time I get a views notification**  
+<img src="https://preview.redd.it/w8gwleim8amf1.png?width=640&crop=smart&auto=webp&s=cf784c69d8e74047cf84645dc0812fff4e8a81a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
