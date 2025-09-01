@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**tbh i've done this before**  
-<img src="https://preview.redd.it/g31w61ve3bmf1.png?width=320&crop=smart&auto=webp&s=e61d386876721e0c4316be3d631f94610d362270" alt="Random Meme" width="500"/>
+**shut up mom**  
+<img src="https://preview.redd.it/np576qlru4mf1.png?width=640&crop=smart&auto=webp&s=4b1f1aa2263d1115e9b714c8b7e7575abe56d767" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
