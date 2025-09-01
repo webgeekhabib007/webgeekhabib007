@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Remember the meaning of this day.**  
-<img src="https://preview.redd.it/apb3uokwpgmf1.png?width=640&crop=smart&auto=webp&s=c82cc534d96953f301a1510c2fc248b88f2bb4f5" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/hyur31naycmf1.png?width=640&crop=smart&auto=webp&s=bfb4ba15ae73a0a7550e395ea6358ff5138cf367" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
