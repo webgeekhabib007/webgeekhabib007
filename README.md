@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This happens too much...**  
-<img src="https://preview.redd.it/mfejrf8hqsmf1.png?width=960&crop=smart&auto=webp&s=87e288b6a5b746e21637df5a8a376d1ad2ef505c" alt="Random Meme" width="500"/>
+**My time has come**  
+<img src="https://preview.redd.it/5zgas3061imf1.gif?width=640&crop=smart&format=png8&s=acb71d14596270f06701b294eb4f53244697a496" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
