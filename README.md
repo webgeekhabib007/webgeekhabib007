@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Does this mean that women are the problem in the relationship if they can’t even stand themselves. I’ve never heard a gay man talk bad about his lover but with a lesbian all I hear is drama. I’m joking btw**  
-<img src="https://preview.redd.it/2ifhwat1lomf1.gif?width=640&crop=smart&format=png8&s=bc087c6abe7aeba07c34d404ba6c1def5d55442f" alt="Random Meme" width="500"/>
+**This new product will blow your mind**  
+<img src="https://preview.redd.it/p4deet5ggnmf1.png?width=1080&crop=smart&auto=webp&s=5c244bde24f59210c1bbc00dc5bb99c9c5609799" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
