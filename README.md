@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My time has come**  
-<img src="https://preview.redd.it/5zgas3061imf1.gif?width=640&crop=smart&format=png8&s=acb71d14596270f06701b294eb4f53244697a496" alt="Random Meme" width="500"/>
+**Right into the kisser**  
+<img src="https://preview.redd.it/dduda5i6irmf1.gif?width=640&crop=smart&format=png8&s=f20c32a9c738c4ea32b518142157540c1d5b97fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
