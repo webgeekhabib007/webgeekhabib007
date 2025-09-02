@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This new product will blow your mind**  
-<img src="https://preview.redd.it/p4deet5ggnmf1.png?width=1080&crop=smart&auto=webp&s=5c244bde24f59210c1bbc00dc5bb99c9c5609799" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/7gwxrenkmamf1.png?width=960&crop=smart&auto=webp&s=986c391c67a42a07baf69126f1087a65a83a49e5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
