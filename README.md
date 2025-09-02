@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**With great power comes**  
-<img src="https://preview.redd.it/dntflgi523mf1.gif?width=320&crop=smart&format=png8&s=cfc9e3d850662cc394992a23c19df4ceb7723963" alt="Random Meme" width="500"/>
+**That is nasty**  
+<img src="https://preview.redd.it/roh0osg9fnmf1.png?width=1080&crop=smart&auto=webp&s=d65ddb5d6586c20f1c15306ac2df272e5743a956" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
