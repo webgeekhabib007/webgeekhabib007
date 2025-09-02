@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Right into the kisser**  
-<img src="https://preview.redd.it/dduda5i6irmf1.gif?width=640&crop=smart&format=png8&s=f20c32a9c738c4ea32b518142157540c1d5b97fe" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/8tuua6v01emf1.png?width=1080&crop=smart&auto=webp&s=ba3edd6f911224a6f0803242d048c20411ea6eba" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
