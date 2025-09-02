@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**She is not proud of me**  
-<img src="https://preview.redd.it/ipove1vnxqmf1.png?width=1080&crop=smart&auto=webp&s=37dfed8bf1cc2c9d31d6ba5beecc7f9f1b479092" alt="Random Meme" width="500"/>
+**This happens too much...**  
+<img src="https://preview.redd.it/mfejrf8hqsmf1.png?width=960&crop=smart&auto=webp&s=87e288b6a5b746e21637df5a8a376d1ad2ef505c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
