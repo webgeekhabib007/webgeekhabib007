@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That is nasty**  
-<img src="https://preview.redd.it/roh0osg9fnmf1.png?width=1080&crop=smart&auto=webp&s=d65ddb5d6586c20f1c15306ac2df272e5743a956" alt="Random Meme" width="500"/>
+**The Sandlot, Forrest Gump and Back to the future. Reverse time when people were nostalgic for the 80s.**  
+<img src="https://preview.redd.it/coxs9hap0rmf1.gif?width=640&crop=smart&format=png8&s=22a83d88999388d7dd27428eff9f0d78b0769a7d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
