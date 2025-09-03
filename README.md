@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why lie tho**  
-<img src="https://preview.redd.it/pc4oaq8ufhmf1.gif?width=640&crop=smart&format=png8&s=495ac387ff9ec930092054d547a12362c314d847" alt="Random Meme" width="500"/>
+**i dont apologise for this subpar post**  
+<img src="https://preview.redd.it/g3naz8aorxmf1.png?width=960&crop=smart&auto=webp&s=ef2f2943d9aa5481273e0ee13b725d0f54c45b66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
