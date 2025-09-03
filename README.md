@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yin and Yang of Memes**  
-<img src="https://preview.redd.it/dlebw18c7vmf1.png?width=320&crop=smart&auto=webp&s=1c55696474ffd53b8357bb56d812d2f8f951f498" alt="Random Meme" width="500"/>
+**That is nasty**  
+<img src="https://preview.redd.it/roh0osg9fnmf1.png?width=1080&crop=smart&auto=webp&s=d65ddb5d6586c20f1c15306ac2df272e5743a956" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
