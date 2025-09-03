@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/qp6ydlnvcnmf1.png?width=1080&crop=smart&auto=webp&s=6df87496976fc3d64551d7d0ecf5555daa883021" alt="Random Meme" width="500"/>
+**Especially African parents**  
+<img src="https://preview.redd.it/542kam7g9smf1.png?width=640&crop=smart&auto=webp&s=bd6edbbe674f0575b289704aa9391de22edacdca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
