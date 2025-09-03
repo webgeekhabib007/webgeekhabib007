@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If my “guy” friend had a vagina wouldn’t that mean they’re a girl and therefore I’m straight. Kinda sexist that a girl can’t be masculine and wear masculine clothing and do masculine things. Who decided how girls and boys should act and dress decides the other person sexuality.**  
-<img src="https://preview.redd.it/q9fi2yfioomf1.gif?width=320&crop=smart&format=png8&s=1c7ba7388537cb4f228d711ba78c1333d8f94de8" alt="Random Meme" width="500"/>
+**Yin and Yang of Memes**  
+<img src="https://preview.redd.it/dlebw18c7vmf1.png?width=320&crop=smart&auto=webp&s=1c55696474ffd53b8357bb56d812d2f8f951f498" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
