@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**XKCD #1589 or something**  
-<img src="https://preview.redd.it/z8whnscz3tmf1.gif?width=1080&crop=smart&format=png8&s=d595e80b2f0795d466f44125dc3f4216fffd5195" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/qp6ydlnvcnmf1.png?width=1080&crop=smart&auto=webp&s=6df87496976fc3d64551d7d0ecf5555daa883021" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
