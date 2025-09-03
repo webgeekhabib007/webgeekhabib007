@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**XKCD #1589 or something**  
-<img src="https://preview.redd.it/z8whnscz3tmf1.gif?width=1080&crop=smart&format=png8&s=d595e80b2f0795d466f44125dc3f4216fffd5195" alt="Random Meme" width="500"/>
+**I really like this template, man. Just wish it was used for sum else.**  
+<img src="https://preview.redd.it/h9ajvfsw3tmf1.gif?width=320&crop=smart&format=png8&s=847c6a032dfb608c50b93405ca5a9ec243efb783" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
