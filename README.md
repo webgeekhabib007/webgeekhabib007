@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I really like this template, man. Just wish it was used for sum else.**  
-<img src="https://preview.redd.it/h9ajvfsw3tmf1.gif?width=320&crop=smart&format=png8&s=847c6a032dfb608c50b93405ca5a9ec243efb783" alt="Random Meme" width="500"/>
+**Title***  
+<img src="https://preview.redd.it/wokgi2kvykmf1.png?width=640&crop=smart&auto=webp&s=177c21edfe5a0ea3147cdc0ded2662f1b8505b01" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
