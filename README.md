@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ikhmwy2ef2nf1.png?width=320&crop=smart&auto=webp&s=ca39e408f42782a55cb55ed802420e209ead4a07" alt="Random Meme" width="500"/>
+**Marvel may be failing in their shows and movies but in their games though.**  
+<img src="https://preview.redd.it/z71pzerer0nf1.gif?width=320&crop=smart&format=png8&s=b6e8bce347454e0845b7cc8af32f35aec01d0889" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
