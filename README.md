@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Marvel may be failing in their shows and movies but in their games though.**  
-<img src="https://preview.redd.it/z71pzerer0nf1.gif?width=320&crop=smart&format=png8&s=b6e8bce347454e0845b7cc8af32f35aec01d0889" alt="Random Meme" width="500"/>
+**Domino effect**  
+<img src="https://preview.redd.it/t2ruu3bxezmf1.png?width=1080&crop=smart&auto=webp&s=30cb7dffe85254ae889b9a65d4c597f6e454f901" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
