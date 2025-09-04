@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Some just can not keep a promise.**  
-<img src="https://preview.redd.it/pbr26amvazmf1.png?width=960&crop=smart&auto=webp&s=8387e67745fb599f05ac6c4421c2b27f0455aa9d" alt="Random Meme" width="500"/>
+**People say ts about anything now**  
+<img src="https://preview.redd.it/gupd7bbyy2nf1.png?width=1080&crop=smart&auto=webp&s=c39cb72147b92268f80fb4092d34dbf6a526d6ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
