@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**People say ts about anything now**  
-<img src="https://preview.redd.it/gupd7bbyy2nf1.png?width=1080&crop=smart&auto=webp&s=c39cb72147b92268f80fb4092d34dbf6a526d6ae" alt="Random Meme" width="500"/>
+**Anyone can relate?**  
+<img src="https://preview.redd.it/avrig0dkd2nf1.png?width=1080&crop=smart&auto=webp&s=1dd53674665e25b10c8a9aacf62521b420f9c706" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
