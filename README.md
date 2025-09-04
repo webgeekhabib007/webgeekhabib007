@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anyone can relate?**  
-<img src="https://preview.redd.it/avrig0dkd2nf1.png?width=1080&crop=smart&auto=webp&s=1dd53674665e25b10c8a9aacf62521b420f9c706" alt="Random Meme" width="500"/>
+**Silk**  
+<img src="https://preview.redd.it/hea42ppbg0nf1.gif?width=320&crop=smart&format=png8&s=a37bbb11cdfcc0d5ebb5ac94fbd7ae730e742d40" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
