@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I love my pet fish**  
-<img src="https://preview.redd.it/x0205fq7c9nf1.gif?width=320&crop=smart&format=png8&s=cbb7c3a91a247b15e031e6b0169a997baf6fe091" alt="Random Meme" width="500"/>
+**Every time!**  
+<img src="https://preview.redd.it/6blsaf36g9nf1.png?width=640&crop=smart&auto=webp&s=2749d790e40717d0c033ae4558be3054d6b3dec8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
