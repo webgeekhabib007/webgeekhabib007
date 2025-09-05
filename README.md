@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Very suspicious**  
-<img src="https://preview.redd.it/7f0df72jyxmf1.png?width=1080&crop=smart&auto=webp&s=f0bcf45288d350ae111aa337638befc5305112f2" alt="Random Meme" width="500"/>
+**Both Of Us Are Lost**  
+<img src="https://preview.redd.it/itby2x78cdnf1.png?width=640&crop=smart&auto=webp&s=c400e696f514867cc2e789cb81ab4d00817b4691" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
