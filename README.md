@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**hang on Half-Life bros...**  
-<img src="https://preview.redd.it/04xuax32a9nf1.gif?width=320&crop=smart&format=png8&s=a141b3cef7756ee54a8bb0caa436b1921e864dec" alt="Random Meme" width="500"/>
+**I was being honest**  
+<img src="https://preview.redd.it/na9hkxx9p6nf1.gif?width=216&crop=smart&format=png8&s=deb85f72a80660081f41f3c20c4aae8e3aea712e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
