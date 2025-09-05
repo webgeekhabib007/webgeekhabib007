@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/i69kw0j5w9nf1.png?width=960&crop=smart&auto=webp&s=3aa28d2b3a6bac01c8225110af969f5874d429b5" alt="Random Meme" width="500"/>
+**Still happy for all the fans whose wait is finally over**  
+<img src="https://preview.redd.it/glu34kw87anf1.gif?width=216&crop=smart&format=png8&s=5e48bad775791e6bc7e37fd8e5f4194daba86b29" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
