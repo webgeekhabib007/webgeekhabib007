@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/gc61213wb7nf1.png?width=960&crop=smart&auto=webp&s=a6502a35eb095d3af1fb6f076866489d352609da" alt="Random Meme" width="500"/>
+**I love my pet fish**  
+<img src="https://preview.redd.it/x0205fq7c9nf1.gif?width=320&crop=smart&format=png8&s=cbb7c3a91a247b15e031e6b0169a997baf6fe091" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
