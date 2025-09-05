@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And they call it gentle parenting**  
-<img src="https://preview.redd.it/bkddgp09zxmf1.gif?width=320&crop=smart&format=png8&s=7fc093980f72112ba17946bbdc7740128d1fbee1" alt="Random Meme" width="500"/>
+**Alright that's it banned**  
+<img src="https://preview.redd.it/instke9clumf1.png?width=1080&crop=smart&auto=webp&s=8fd0191c38b5222692c73c32291f2be8d32a2a5e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
