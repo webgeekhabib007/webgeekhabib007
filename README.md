@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/s58yh72w45nf1.png?width=1080&crop=smart&auto=webp&s=85f716e9be15f10c6c4faafc1b7c803040ccfdbd" alt="Random Meme" width="500"/>
+**Would You call Him a Clanker?**  
+<img src="https://preview.redd.it/ogbn85vgwanf1.png?width=1080&crop=smart&auto=webp&s=d356bb1b68af63446c74bd6290693aed6fb0675c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
