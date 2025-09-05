@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Both Of Us Are Lost**  
-<img src="https://preview.redd.it/itby2x78cdnf1.png?width=640&crop=smart&auto=webp&s=c400e696f514867cc2e789cb81ab4d00817b4691" alt="Random Meme" width="500"/>
+**Oi bruv oi oi**  
+<img src="https://preview.redd.it/58qntrc977nf1.gif?width=640&crop=smart&format=png8&s=5b1edb2b0a8573d8481f82acaed140a71ddda129" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
