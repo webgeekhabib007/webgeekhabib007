@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oi bruv oi oi**  
-<img src="https://preview.redd.it/58qntrc977nf1.gif?width=640&crop=smart&format=png8&s=5b1edb2b0a8573d8481f82acaed140a71ddda129" alt="Random Meme" width="500"/>
+**No, Jerab! We Are Not Going To Fuck Perry, Our Platypus!**  
+<img src="https://preview.redd.it/bwn0y6b4eenf1.png?width=1080&crop=smart&auto=webp&s=33b2159b3c30dc80213d7b57fd2dfeba6bdde259" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
