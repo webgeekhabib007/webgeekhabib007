@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**God, what have I done?**  
-<img src="https://preview.redd.it/ysm72wyusknf1.png?width=1080&crop=smart&auto=webp&s=7d91d62c835a4f28e39d239ae8cafd91970fdaeb" alt="Random Meme" width="500"/>
+**Fuck almonds**  
+<img src="https://preview.redd.it/lbzrwjoldgnf1.png?width=640&crop=smart&auto=webp&s=9f958d8d7ded25c80f7f83ba8e7b6e860e28d650" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
