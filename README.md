@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**parents really acted like their bedroom was Area 51**  
-<img src="https://preview.redd.it/n4itq8prkdnf1.png?width=1080&crop=smart&auto=webp&s=154589ed0944e7f4dbadb81845c0de9fe0f8f4de" alt="Random Meme" width="500"/>
+**God, what have I done?**  
+<img src="https://preview.redd.it/ysm72wyusknf1.png?width=1080&crop=smart&auto=webp&s=7d91d62c835a4f28e39d239ae8cafd91970fdaeb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
