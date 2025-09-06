@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Phillies Karen core**  
-<img src="https://preview.redd.it/2bihz6w8uknf1.png?width=1080&crop=smart&auto=webp&s=cd538a6d2c3f53957dd0c2afb7b18415da05cd51" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/jpfo89go6knf1.png?width=640&crop=smart&auto=webp&s=9d74cec0403265fd2d6b8de54644e65a36b2fc9d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
