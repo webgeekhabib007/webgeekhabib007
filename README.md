@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**kindred spirits**  
-<img src="https://preview.redd.it/fwm6p7a9kbnf1.png?width=960&crop=smart&auto=webp&s=48e8c822cd3befc8f785d1835a46f0e3d3208c52" alt="Random Meme" width="500"/>
+**There are no problems in Ba Sing Se**  
+<img src="https://preview.redd.it/002vs4rpj6nf1.png?width=640&crop=smart&auto=webp&s=90d44495ddd951086aa99877cd75e5d7ff3527ba" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
