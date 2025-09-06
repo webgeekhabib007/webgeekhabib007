@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am brainrotted !**  
-<img src="https://preview.redd.it/0f0gna0wdenf1.png?width=1080&crop=smart&auto=webp&s=22e344effffd629b96834821295a00daa295460f" alt="Random Meme" width="500"/>
+**Great reward,eh?**  
+<img src="https://preview.redd.it/5rv7r2r57gnf1.png?width=1080&crop=smart&auto=webp&s=c00e044fcc42e7036e4c0a3d2071bb59ce715a56" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
