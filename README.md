@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There are no problems in Ba Sing Se**  
-<img src="https://preview.redd.it/002vs4rpj6nf1.png?width=640&crop=smart&auto=webp&s=90d44495ddd951086aa99877cd75e5d7ff3527ba" alt="Random Meme" width="500"/>
+**Insert favvvv show__ and here weeeeeee goooo**  
+<img src="https://preview.redd.it/0epc6bs70hnf1.png?width=640&crop=smart&auto=webp&s=8df4dcb499e417958e7557c55f921995c81c93a7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
