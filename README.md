@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fuck almonds**  
-<img src="https://preview.redd.it/lbzrwjoldgnf1.png?width=640&crop=smart&auto=webp&s=9f958d8d7ded25c80f7f83ba8e7b6e860e28d650" alt="Random Meme" width="500"/>
+**Phillies Karen core**  
+<img src="https://preview.redd.it/2bihz6w8uknf1.png?width=1080&crop=smart&auto=webp&s=cd538a6d2c3f53957dd0c2afb7b18415da05cd51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
