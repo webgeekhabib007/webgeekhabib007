@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Now turn into an octopus!"**  
-<img src="https://preview.redd.it/xyiwb5vr4anf1.png?width=1080&crop=smart&auto=webp&s=6da3f505080416870a78faca8a129074be2ffcb1" alt="Random Meme" width="500"/>
+**I am brainrotted !**  
+<img src="https://preview.redd.it/0f0gna0wdenf1.png?width=1080&crop=smart&auto=webp&s=22e344effffd629b96834821295a00daa295460f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
