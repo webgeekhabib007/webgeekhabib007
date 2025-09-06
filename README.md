@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Great reward,eh?**  
-<img src="https://preview.redd.it/5rv7r2r57gnf1.png?width=1080&crop=smart&auto=webp&s=c00e044fcc42e7036e4c0a3d2071bb59ce715a56" alt="Random Meme" width="500"/>
+**parents really acted like their bedroom was Area 51**  
+<img src="https://preview.redd.it/n4itq8prkdnf1.png?width=1080&crop=smart&auto=webp&s=154589ed0944e7f4dbadb81845c0de9fe0f8f4de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
