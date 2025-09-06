@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mundo Acuático**  
-<img src="https://preview.redd.it/5ieb6ftt5bnf1.gif?width=640&crop=smart&format=png8&s=fe934994ef529d1eea91bed77f3695d0834b472a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/s58yh72w45nf1.png?width=1080&crop=smart&auto=webp&s=85f716e9be15f10c6c4faafc1b7c803040ccfdbd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
