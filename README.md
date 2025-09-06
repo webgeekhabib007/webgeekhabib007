@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/1lo11vnguhnf1.gif?width=320&crop=smart&format=png8&s=dea651040ef2348f4de532b564ea5ccbb6ed2118" alt="Random Meme" width="500"/>
+**"Now turn into an octopus!"**  
+<img src="https://preview.redd.it/xyiwb5vr4anf1.png?width=1080&crop=smart&auto=webp&s=6da3f505080416870a78faca8a129074be2ffcb1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
