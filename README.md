@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/jpfo89go6knf1.png?width=640&crop=smart&auto=webp&s=9d74cec0403265fd2d6b8de54644e65a36b2fc9d" alt="Random Meme" width="500"/>
+**The 80's were 20 years ago ..... right??? 🥺🥺**  
+<img src="https://preview.redd.it/mdfw8wgh8lnf1.png?width=1080&crop=smart&auto=webp&s=650ddd2e6ac68c9b5915ece97f6d196bf98025d2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
