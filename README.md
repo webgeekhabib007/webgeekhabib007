@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why always me**  
-<img src="https://preview.redd.it/lbc8rv9ycknf1.png?width=1080&crop=smart&auto=webp&s=0258b69aec626394f53048a8c7f5ee73602b8b3d" alt="Random Meme" width="500"/>
+**PERRY THE DUDE IN PLATYPUS COSTUME?**  
+<img src="https://preview.redd.it/bkdjnzcyepnf1.png?width=1080&crop=smart&auto=webp&s=3f864dec694dd59d55b5bc80938e7d4886d95484" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
