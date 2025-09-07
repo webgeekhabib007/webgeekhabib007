@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When your friend likes one of your toys**  
-<img src="https://preview.redd.it/hnl909uevknf1.png?width=320&crop=smart&auto=webp&s=d27af174bbf4de026eb979c16fde22595ddf7371" alt="Random Meme" width="500"/>
+**Don't you dare tell me how to live**  
+<img src="https://preview.redd.it/5s1t1hefqmnf1.gif?width=320&crop=smart&format=png8&s=cb62857593e81caf2cda02e899a8da54396f160a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
