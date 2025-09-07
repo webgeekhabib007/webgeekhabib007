@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I must be happy**  
-<img src="https://preview.redd.it/fqnu6sum9jnf1.png?width=1080&crop=smart&auto=webp&s=934864431223edbe4270fae2a478ee4cbed32f65" alt="Random Meme" width="500"/>
+**achievement unlocked**  
+<img src="https://preview.redd.it/gmpw87c5m3nf1.png?width=1080&crop=smart&auto=webp&s=6054b9527b10057caa2b1693d5340b9f7a72228e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
