@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My jaw dropped when I learnt this fact**  
-<img src="https://preview.redd.it/b8h7cctyclnf1.png?width=1080&crop=smart&auto=webp&s=47fa18574db211318cd99eae256fc23c84d8b40c" alt="Random Meme" width="500"/>
+**When your friend likes one of your toys**  
+<img src="https://preview.redd.it/hnl909uevknf1.png?width=320&crop=smart&auto=webp&s=d27af174bbf4de026eb979c16fde22595ddf7371" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
