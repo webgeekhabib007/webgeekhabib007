@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This might be the perfect time to make this**  
-<img src="https://preview.redd.it/a3yeo44v7pnf1.png?width=1080&crop=smart&auto=webp&s=8645cf959602c72c37f3565497da00610beb5916" alt="Random Meme" width="500"/>
+**Call it intuition**  
+<img src="https://preview.redd.it/20le7iepa6nf1.png?width=640&crop=smart&auto=webp&s=c0e87bee62b0dd75481ed834920cf993c24e0cf4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
