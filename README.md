@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't you dare tell me how to live**  
-<img src="https://preview.redd.it/5s1t1hefqmnf1.gif?width=320&crop=smart&format=png8&s=cb62857593e81caf2cda02e899a8da54396f160a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/jpfo89go6knf1.png?width=640&crop=smart&auto=webp&s=9d74cec0403265fd2d6b8de54644e65a36b2fc9d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
