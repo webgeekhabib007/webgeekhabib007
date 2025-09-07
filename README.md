@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The 80's were 20 years ago ..... right??? 🥺🥺**  
-<img src="https://preview.redd.it/mdfw8wgh8lnf1.png?width=1080&crop=smart&auto=webp&s=650ddd2e6ac68c9b5915ece97f6d196bf98025d2" alt="Random Meme" width="500"/>
+**This might be the perfect time to make this**  
+<img src="https://preview.redd.it/a3yeo44v7pnf1.png?width=1080&crop=smart&auto=webp&s=8645cf959602c72c37f3565497da00610beb5916" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
