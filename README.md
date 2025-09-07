@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**achievement unlocked**  
-<img src="https://preview.redd.it/gmpw87c5m3nf1.png?width=1080&crop=smart&auto=webp&s=6054b9527b10057caa2b1693d5340b9f7a72228e" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/mmjof4lekqnf1.png?width=1080&crop=smart&auto=webp&s=b3230385a93f3e67a505ba59ac7744afd00b3c86" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
