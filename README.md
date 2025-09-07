@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wait what you mean framing Enrica in SC: Double Agent is canon. She was the most interesting and hot**  
-<img src="https://preview.redd.it/dz7vrrhb5nnf1.gif?width=640&crop=smart&format=png8&s=bda03da04a3290f46ecb37c0a3262f0618889c1a" alt="Random Meme" width="500"/>
+**Why always me**  
+<img src="https://preview.redd.it/lbc8rv9ycknf1.png?width=1080&crop=smart&auto=webp&s=0258b69aec626394f53048a8c7f5ee73602b8b3d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
