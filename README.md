@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**PERRY THE DUDE IN PLATYPUS COSTUME?**  
-<img src="https://preview.redd.it/bkdjnzcyepnf1.png?width=1080&crop=smart&auto=webp&s=3f864dec694dd59d55b5bc80938e7d4886d95484" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/1lo11vnguhnf1.gif?width=320&crop=smart&format=png8&s=dea651040ef2348f4de532b564ea5ccbb6ed2118" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
