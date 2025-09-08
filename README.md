@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Signature Look Of Superiority**  
-<img src="https://preview.redd.it/8jsvrj959snf1.png?width=1080&crop=smart&auto=webp&s=177ce87eeac167b3280d987ba4180ad83af4a6de" alt="Random Meme" width="500"/>
+**who would win**  
+<img src="https://preview.redd.it/1yskyu1iwsnf1.gif?width=108&crop=smart&format=png8&s=8f3c3fdf7bc7285c70ab1d4deea43b3ddf78c614" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
