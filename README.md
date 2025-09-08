@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me every day since 2012**  
-<img src="https://preview.redd.it/f6m99vpzgtnf1.png?width=960&crop=smart&auto=webp&s=b558898f7d65843b464622eb86944975ea33894b" alt="Random Meme" width="500"/>
+**Persist Forever**  
+<img src="https://preview.redd.it/grorp0ukzznf1.png?width=1080&crop=smart&auto=webp&s=5bf8d9d3d38f595818dfce65e02786ac468a68c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
