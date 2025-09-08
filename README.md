@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fun things are often wretched and villainous.**  
-<img src="https://preview.redd.it/irsj8j3l0snf1.png?width=1080&crop=smart&auto=webp&s=9cda2ed25b2f663ef39c03321e2a78ff5b47fbd6" alt="Random Meme" width="500"/>
+**I mean sweet but is it because I have soft and feminine features to me or something.**  
+<img src="https://preview.redd.it/fixikkjw6nnf1.gif?width=640&crop=smart&format=png8&s=7d504235087f56ccb3ef7538e2db9ddecb6447cd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
