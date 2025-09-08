@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Instagram.....**  
-<img src="https://preview.redd.it/x8vclfvd4wnf1.png?width=1080&crop=smart&auto=webp&s=2d9abfd05aa5aafb2f4d6082c55e7b08b234b786" alt="Random Meme" width="500"/>
+**Signature Look Of Superiority**  
+<img src="https://preview.redd.it/8jsvrj959snf1.png?width=1080&crop=smart&auto=webp&s=177ce87eeac167b3280d987ba4180ad83af4a6de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
