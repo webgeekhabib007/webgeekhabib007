@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I mean sweet but is it because I have soft and feminine features to me or something.**  
-<img src="https://preview.redd.it/fixikkjw6nnf1.gif?width=640&crop=smart&format=png8&s=7d504235087f56ccb3ef7538e2db9ddecb6447cd" alt="Random Meme" width="500"/>
+**Me every day since 2012**  
+<img src="https://preview.redd.it/f6m99vpzgtnf1.png?width=960&crop=smart&auto=webp&s=b558898f7d65843b464622eb86944975ea33894b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
