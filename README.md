@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Cable TV is genuinely better than this bullshit**  
-<img src="https://preview.redd.it/zklcx2cguxnf1.png?width=1080&crop=smart&auto=webp&s=3b1c853b9ee217774316dbcfc420224b9bd2d4b9" alt="Random Meme" width="500"/>
+**It's going downhill and I got nobody to talk to**  
+<img src="https://preview.redd.it/1odi3i1c8rnf1.png?width=1080&crop=smart&auto=webp&s=de71e2c0982483ccead7e954fb5e7ac8b5d27228" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
