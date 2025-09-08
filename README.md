@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**who would win**  
-<img src="https://preview.redd.it/1yskyu1iwsnf1.gif?width=108&crop=smart&format=png8&s=8f3c3fdf7bc7285c70ab1d4deea43b3ddf78c614" alt="Random Meme" width="500"/>
+**Who loves Smoothed Brown Noise 8-Hours - Remastered, for Relaxation, Sleep, Studying and Tinnitus?**  
+<img src="https://preview.redd.it/ifxve0md2ynf1.png?width=640&crop=smart&auto=webp&s=f9a6c4af07f491b7f3f2abb23b17f99ccb3207f8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
