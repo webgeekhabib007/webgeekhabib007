@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's going downhill and I got nobody to talk to**  
-<img src="https://preview.redd.it/1odi3i1c8rnf1.png?width=1080&crop=smart&auto=webp&s=de71e2c0982483ccead7e954fb5e7ac8b5d27228" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/k3umx175yqnf1.png?width=1080&crop=smart&auto=webp&s=082814d92d05de1ae95dd68a6c8d43b5c50eb86c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
