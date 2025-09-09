@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**While you were partying, I studied...**  
-<img src="https://preview.redd.it/7stdf7nzoznf1.png?width=960&crop=smart&auto=webp&s=b83e329389d3a98c15e7a30c3a43fb10a4cdb172" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/2tit4830jznf1.gif?width=320&crop=smart&format=png8&s=fc0b96fa95b9f7c43a33e7839188fbef6ed613c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
