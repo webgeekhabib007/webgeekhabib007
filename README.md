@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ophpj0rkmqnf1.gif?width=320&crop=smart&format=png8&s=9bc1e7ba8c81baa09eac29c7c94d185890d7cd08" alt="Random Meme" width="500"/>
+**So what’s my reward ladies.**  
+<img src="https://preview.redd.it/03izwppxxznf1.gif?width=640&crop=smart&format=png8&s=87dcc0d84b6e75111f1d5f126e90402e31f28d72" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
