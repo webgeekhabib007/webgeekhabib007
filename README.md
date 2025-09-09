@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**So what’s my reward ladies.**  
-<img src="https://preview.redd.it/03izwppxxznf1.gif?width=640&crop=smart&format=png8&s=87dcc0d84b6e75111f1d5f126e90402e31f28d72" alt="Random Meme" width="500"/>
+**Persist Forever**  
+<img src="https://preview.redd.it/grorp0ukzznf1.png?width=1080&crop=smart&auto=webp&s=5bf8d9d3d38f595818dfce65e02786ac468a68c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
