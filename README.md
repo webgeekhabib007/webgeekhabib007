@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/zsso2qtecsnf1.png?width=1080&crop=smart&auto=webp&s=5e36565a0597533bc092d491663f754f0cf1b1ab" alt="Random Meme" width="500"/>
+**That or Cockroaches**  
+<img src="https://preview.redd.it/yar4morbr1of1.png?width=640&crop=smart&auto=webp&s=33e1c1713448c4e469fe3ee843b76ab4c2f845b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
