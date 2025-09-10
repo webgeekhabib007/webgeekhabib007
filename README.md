@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Home Décor**  
-<img src="https://preview.redd.it/xr10w5fl5dof1.png?width=320&crop=smart&auto=webp&s=c5ab9c1c1555d6082afcf6ff27585c8e30df12e1" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/txt6poks9aof1.png?width=1080&crop=smart&auto=webp&s=dc40719fc2332baa2b57a944b183ed61301a1404" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
