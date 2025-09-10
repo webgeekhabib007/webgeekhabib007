@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Marked for life**  
-<img src="https://preview.redd.it/r1200a5exbof1.png?width=1080&crop=smart&auto=webp&s=d6b0b82095d7d25c20ee4c39e8f73e5368793e3c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/vax0r2aumdof1.png?width=640&crop=smart&auto=webp&s=8ca55295bd8a0429ac5dbaaed060b2c5e04ac709" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
