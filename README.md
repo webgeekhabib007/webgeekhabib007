@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/fq91ijh416of1.png?width=960&crop=smart&auto=webp&s=d5835a4fb9aaa292812f348498ad24f028c9d384" alt="Random Meme" width="500"/>
+**South Asia at a glance**  
+<img src="https://preview.redd.it/zp71auji77of1.png?width=1080&crop=smart&auto=webp&s=dd55e551d83d5c713e38c7e4b4baa28bed4f7e93" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
