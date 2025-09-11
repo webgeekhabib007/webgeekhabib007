@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/s2wlb1evcznf1.png?width=640&crop=smart&auto=webp&s=49b6ff513b1d102578e065124261ad9537b91c31" alt="Random Meme" width="500"/>
+**no that ball isn't for your tummy**  
+<img src="https://preview.redd.it/0hgz5vj5gdof1.png?width=640&crop=smart&auto=webp&s=3f76396d39b446894ca92e2590965725aa2adace" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
