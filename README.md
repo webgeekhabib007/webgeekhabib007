@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**no that ball isn't for your tummy**  
-<img src="https://preview.redd.it/0hgz5vj5gdof1.png?width=640&crop=smart&auto=webp&s=3f76396d39b446894ca92e2590965725aa2adace" alt="Random Meme" width="500"/>
+**How do painkillers always find the pain like they’re on a side quest?**  
+<img src="https://preview.redd.it/8wzcsj4q84of1.gif?width=1080&crop=smart&format=png8&s=668fb4687066f7c56da8fba31b925f14df6b09fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
