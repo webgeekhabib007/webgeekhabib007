@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How do painkillers always find the pain like they’re on a side quest?**  
-<img src="https://preview.redd.it/8wzcsj4q84of1.gif?width=1080&crop=smart&format=png8&s=668fb4687066f7c56da8fba31b925f14df6b09fb" alt="Random Meme" width="500"/>
+**Please don't mail me a pipe bomb...**  
+<img src="https://preview.redd.it/zk41umoi7aof1.png?width=320&crop=smart&auto=webp&s=cdade1a1650e1bc8c6d61789af8f512f1e1bcb5e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
