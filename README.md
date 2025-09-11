@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta be the best variant of this meme, succulently subtle**  
-<img src="https://preview.redd.it/m7u7hha8nbof1.png?width=640&crop=smart&auto=webp&s=3729e7667bedcbac50c5863563df082db3dde2f0" alt="Random Meme" width="500"/>
+**Fuck ye-aww**  
+<img src="https://preview.redd.it/3p1nuny738of1.png?width=640&crop=smart&auto=webp&s=2cdfe69e55e805f074eb0a2a279bc5abe7ca1077" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
