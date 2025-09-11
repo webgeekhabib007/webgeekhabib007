@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why the actual fuck is it on there**  
-<img src="https://preview.redd.it/egskwg32n9of1.png?width=320&crop=smart&auto=webp&s=e7e59f4a10647836ba126adb0112158c47223a9c" alt="Random Meme" width="500"/>
+**How do painkillers always find the pain like they’re on a side quest?**  
+<img src="https://preview.redd.it/8wzcsj4q84of1.gif?width=1080&crop=smart&format=png8&s=668fb4687066f7c56da8fba31b925f14df6b09fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
