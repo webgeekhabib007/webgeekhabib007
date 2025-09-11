@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Please don't mail me a pipe bomb...**  
-<img src="https://preview.redd.it/zk41umoi7aof1.png?width=320&crop=smart&auto=webp&s=cdade1a1650e1bc8c6d61789af8f512f1e1bcb5e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/npf1r9quacof1.png?width=216&crop=smart&auto=webp&s=cefbc397e30c7931c2d71c9c732372ca1dd76aaf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
