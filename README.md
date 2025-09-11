@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can't win gang**  
-<img src="https://preview.redd.it/lp6zxmodu2of1.png?width=1080&crop=smart&auto=webp&s=9b1af5c0869a7b0ec2f7b14be8b001781ef35e26" alt="Random Meme" width="500"/>
+**How do painkillers always find the pain like they’re on a side quest?**  
+<img src="https://preview.redd.it/8wzcsj4q84of1.gif?width=1080&crop=smart&format=png8&s=668fb4687066f7c56da8fba31b925f14df6b09fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
