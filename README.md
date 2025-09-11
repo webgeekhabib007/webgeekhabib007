@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/hfsxtwn6sjof1.png?width=1080&crop=smart&auto=webp&s=c78cb2e674d3989ab333cd91f3cb22d0dc37c6b4" alt="Random Meme" width="500"/>
+**I'm sure Bwipo never gets angry at League**  
+<img src="https://preview.redd.it/djhet5nsqdof1.png?width=320&crop=smart&auto=webp&s=533584f944105647fe7c050ad0bacf1874a37b33" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
