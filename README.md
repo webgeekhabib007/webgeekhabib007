@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm sure Bwipo never gets angry at League**  
-<img src="https://preview.redd.it/djhet5nsqdof1.png?width=320&crop=smart&auto=webp&s=533584f944105647fe7c050ad0bacf1874a37b33" alt="Random Meme" width="500"/>
+**But how was Tel'tak #7 destroyed?**  
+<img src="https://preview.redd.it/d5em48g32kof1.png?width=1080&crop=smart&auto=webp&s=a64b05a9892f053a3639eb9ad04c85c65293c03d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
