@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jesus…the first gay polygamous icon.**  
-<img src="https://preview.redd.it/3t668o4is3of1.gif?width=640&crop=smart&format=png8&s=19d3861b4e57b3499d2acacf00139dcde155a581" alt="Random Meme" width="500"/>
+**You're two seconds late for work boy**  
+<img src="https://preview.redd.it/dzx2jb8tcgof1.png?width=640&crop=smart&auto=webp&s=72b1ffe05b243c40708d0b4da432c6027cca9e92" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
