@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**All clankers are robots but….not all robots are clankers but instead…brothers…Brobots**  
-<img src="https://preview.redd.it/7aj9nhgrfrof1.gif?width=640&crop=smart&format=png8&s=a29bdc7f51e5f2d3ae1b3331305a6aa5afc59bad" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/dyjiyv9wtdof1.png?width=640&crop=smart&auto=webp&s=6db04bdc48c460f2ae9911279bdadfc53edb2606" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
