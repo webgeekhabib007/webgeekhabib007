@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Rest in peace, brother.**  
-<img src="https://preview.redd.it/ernjl13qygof1.png?width=640&crop=smart&auto=webp&s=9034335b6d2526a45eb60f55b0dae2bc1905300a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/wl6bp9ksyjof1.png?width=1080&crop=smart&auto=webp&s=fa20655396731b2eacf98c1d4317203c7cae2a7f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
