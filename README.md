@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When science works too well....but at what cost?**  
-<img src="https://preview.redd.it/hrtgvomrlkof1.gif?width=320&crop=smart&format=png8&s=b6eaa298b6eedbe9cbeb2e050ac6ec10ca4de68c" alt="Random Meme" width="500"/>
+**I'm boutta go deaf**  
+<img src="https://preview.redd.it/jrwtieaobrof1.png?width=320&crop=smart&auto=webp&s=27172fafa046995efe0a585d6b7cbb3837b297de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
