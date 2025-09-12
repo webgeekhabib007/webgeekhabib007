@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/dyjiyv9wtdof1.png?width=640&crop=smart&auto=webp&s=6db04bdc48c460f2ae9911279bdadfc53edb2606" alt="Random Meme" width="500"/>
+**When science works too well....but at what cost?**  
+<img src="https://preview.redd.it/hrtgvomrlkof1.gif?width=320&crop=smart&format=png8&s=b6eaa298b6eedbe9cbeb2e050ac6ec10ca4de68c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
