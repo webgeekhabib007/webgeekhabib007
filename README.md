@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Genius upgrade**  
-<img src="https://preview.redd.it/6afc04q84pof1.png?width=1080&crop=smart&auto=webp&s=6dcf5f285c12d6ca4cc8322be818e8b7870152e5" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/hfsxtwn6sjof1.png?width=1080&crop=smart&auto=webp&s=c78cb2e674d3989ab333cd91f3cb22d0dc37c6b4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
