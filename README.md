@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/6sqtuw8s6jof1.png?width=1080&crop=smart&auto=webp&s=0665c1fa904ffdf17ef61ec69422cdc8d94c5d97" alt="Random Meme" width="500"/>
+**Violence is not the answer but allegedly Lee Harvey Oswald was an impressive shot. What who did you think I was talking about?**  
+<img src="https://preview.redd.it/7c3qcbrw1nof1.gif?width=640&crop=smart&format=png8&s=ace1215de24f50b16d5ff889078d162825c825db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
