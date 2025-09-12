@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You're two seconds late for work boy**  
-<img src="https://preview.redd.it/dzx2jb8tcgof1.png?width=640&crop=smart&auto=webp&s=72b1ffe05b243c40708d0b4da432c6027cca9e92" alt="Random Meme" width="500"/>
+**When science works too well....but at what cost?**  
+<img src="https://preview.redd.it/hrtgvomrlkof1.gif?width=320&crop=smart&format=png8&s=b6eaa298b6eedbe9cbeb2e050ac6ec10ca4de68c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
