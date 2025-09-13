@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/jjh5br2u6rof1.png?width=1080&crop=smart&auto=webp&s=b638b670ea0c155e5070ea598bb9d5db89b72ec3" alt="Random Meme" width="500"/>
+**Kowalski, analysis**  
+<img src="https://preview.redd.it/a5tulwngrxof1.png?width=1080&crop=smart&auto=webp&s=515da69ac26584721a19981bb7dc12331fead153" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
