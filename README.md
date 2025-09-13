@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/mlalexhtgoof1.png?width=1080&crop=smart&auto=webp&s=fc95f0b2a5c24167ed677ae999f09119904ee44d" alt="Random Meme" width="500"/>
+**There's no denying pumpkin spice, for as we both know, without pumpkin spice we would not exist. It is pumpkin spice that created us, pumpkin spice that connects us, pumpkin spice that pulls us, that guides us, that drives us; it is pumpkin spice that defines us...**  
+<img src="https://preview.redd.it/3gz639sp9jof1.png?width=960&crop=smart&auto=webp&s=877e91a8a8f3002a7cc4a7eb736ff81f18303493" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
