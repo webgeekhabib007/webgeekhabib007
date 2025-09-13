@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**But how was Tel'tak #7 destroyed?**  
-<img src="https://preview.redd.it/d5em48g32kof1.png?width=1080&crop=smart&auto=webp&s=a64b05a9892f053a3639eb9ad04c85c65293c03d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/mlalexhtgoof1.png?width=1080&crop=smart&auto=webp&s=fc95f0b2a5c24167ed677ae999f09119904ee44d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
