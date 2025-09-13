@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You spin me right round baby right round**  
-<img src="https://preview.redd.it/wyb4meoqorof1.png?width=640&crop=smart&auto=webp&s=25fb153131e0c5e1771ea8a4c27a428f3a33c04a" alt="Random Meme" width="500"/>
+**Poor me and my poor bank account**  
+<img src="https://preview.redd.it/8dnyamylliof1.png?width=320&crop=smart&auto=webp&s=1b9fc874d0b1b947b46a0355077e24e8853347a6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
