@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Every single Facebook Marketplace listing**  
-<img src="https://preview.redd.it/lww5qqtceqof1.png?width=1080&crop=smart&auto=webp&s=db81ba4b5e1e5d965772f840f43761778900bc04" alt="Random Meme" width="500"/>
+**But how was Tel'tak #7 destroyed?**  
+<img src="https://preview.redd.it/d5em48g32kof1.png?width=1080&crop=smart&auto=webp&s=a64b05a9892f053a3639eb9ad04c85c65293c03d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
