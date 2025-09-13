@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just for the science**  
-<img src="https://preview.redd.it/bok5etvw4xof1.png?width=1080&crop=smart&auto=webp&s=73364e34e1b6d4504b9ddee183af7e1fd425969a" alt="Random Meme" width="500"/>
+**Won't be surprised if they patent breathing**  
+<img src="https://preview.redd.it/h0ckvll8gqof1.gif?width=640&crop=smart&format=png8&s=eb26dbb0b786ccab80b16fd6c744d6ab6bf38da6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
