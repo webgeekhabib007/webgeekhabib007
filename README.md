@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Are reviews really that important?**  
-<img src="https://preview.redd.it/70jg3brr2rof1.png?width=1080&crop=smart&auto=webp&s=cbef0cac0beaa45d70e47cdc3d4bbe4ce839000c" alt="Random Meme" width="500"/>
+**Seriously, what happened? Was chudda right? Does nothing ever happen?**  
+<img src="https://preview.redd.it/ihdi25w2trof1.gif?width=216&crop=smart&format=png8&s=7bc07b0b042698100083a789253802d8dc3f99e0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
