@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You spin me right round baby right round**  
-<img src="https://preview.redd.it/wyb4meoqorof1.png?width=640&crop=smart&auto=webp&s=25fb153131e0c5e1771ea8a4c27a428f3a33c04a" alt="Random Meme" width="500"/>
+**For real.**  
+<img src="https://preview.redd.it/zkg3px4b9hof1.png?width=320&crop=smart&auto=webp&s=206c13aef30fbf12ca08cffd0ca9dd43291e9603" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
