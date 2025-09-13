@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Seriously, what happened? Was chudda right? Does nothing ever happen?**  
-<img src="https://preview.redd.it/ihdi25w2trof1.gif?width=216&crop=smart&format=png8&s=7bc07b0b042698100083a789253802d8dc3f99e0" alt="Random Meme" width="500"/>
+**Positive feedback scares me**  
+<img src="https://preview.redd.it/gth0zd20arof1.png?width=640&crop=smart&auto=webp&s=9c42ee29860b8e9810aaa8c3501256ea320921db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
