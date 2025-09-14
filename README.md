@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/qgty7zn362pf1.png?width=1080&crop=smart&auto=webp&s=bd644b4374448f8c6c0ecde44092155a9289236c" alt="Random Meme" width="500"/>
+**I can afford it but I'm still ghetto**  
+<img src="https://preview.redd.it/m9m3wdd2uxof1.png?width=1080&crop=smart&auto=webp&s=7acd300eb8feb117f2aa487d2a8e226b63bdb3d8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
