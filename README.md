@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jumba my boy!!!!**  
-<img src="https://preview.redd.it/6b0ap1tuuyof1.gif?width=640&crop=smart&format=png8&s=9afa24ab7b620013c51054540f4d01aa2a9ab1ac" alt="Random Meme" width="500"/>
+**So Much Wasted Potential for the Octopus**  
+<img src="https://preview.redd.it/e6sb4twxszof1.png?width=320&crop=smart&auto=webp&s=12ce05ea09f45043e9a47c37b1ed8f023e8dadfa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
