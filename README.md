@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Goodbye my friends**  
-<img src="https://preview.redd.it/nrduxgyjjsof1.png?width=640&crop=smart&auto=webp&s=2d4e2dc89205583bbcdf490bb64e7510b1921bca" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/qgtsycs65xof1.png?width=1080&crop=smart&auto=webp&s=5435768fb8e84130c7fa98c22077271b1e94af3f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
