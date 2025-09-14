@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/5yt4cd1l5nof1.png?width=1080&crop=smart&auto=webp&s=af1f9d31c866d706798fb45b45660fc97fd7eed3" alt="Random Meme" width="500"/>
+**Duolingo be like:**  
+<img src="https://preview.redd.it/rl9frcxkqyof1.png?width=320&crop=smart&auto=webp&s=4b06fe366e87fbda3044fed3e00a4eed3aea6b58" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
