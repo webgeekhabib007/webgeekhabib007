@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**New Outfit Same Cat Fur**  
-<img src="https://preview.redd.it/343tboy4kyof1.png?width=320&crop=smart&auto=webp&s=1ef4e799a8d0b34d84a6e83f1ecb3f045f52e680" alt="Random Meme" width="500"/>
+**That’s a deadly combination, only thing worse is a young blonde white girl.**  
+<img src="https://preview.redd.it/zs137ju7frof1.gif?width=640&crop=smart&format=png8&s=1c7708d734050bdba9f1e30ddea957d94c417336" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
