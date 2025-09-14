@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That’s a deadly combination, only thing worse is a young blonde white girl.**  
-<img src="https://preview.redd.it/zs137ju7frof1.gif?width=640&crop=smart&format=png8&s=1c7708d734050bdba9f1e30ddea957d94c417336" alt="Random Meme" width="500"/>
+**Jumba my boy!!!!**  
+<img src="https://preview.redd.it/6b0ap1tuuyof1.gif?width=640&crop=smart&format=png8&s=9afa24ab7b620013c51054540f4d01aa2a9ab1ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
