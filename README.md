@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**meme backwards**  
-<img src="https://preview.redd.it/lv1aqfh1n0pf1.png?width=640&crop=smart&auto=webp&s=3db0e36e9a776fcee8a8cb4227b7ea4ac46a2192" alt="Random Meme" width="500"/>
+**and here I thought spirited away was a kids movie**  
+<img src="https://preview.redd.it/6kftmhv6i3pf1.png?width=640&crop=smart&auto=webp&s=4723b3e1e0a811a62dd658d4392e59be38b526a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
