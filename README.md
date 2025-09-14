@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**So Much Wasted Potential for the Octopus**  
-<img src="https://preview.redd.it/e6sb4twxszof1.png?width=320&crop=smart&auto=webp&s=12ce05ea09f45043e9a47c37b1ed8f023e8dadfa" alt="Random Meme" width="500"/>
+***Eltit**  
+<img src="https://preview.redd.it/yuu3o5s4onof1.png?width=640&crop=smart&auto=webp&s=a513ac552c0e3ba858bc8ca3d299704d2caf6103" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
