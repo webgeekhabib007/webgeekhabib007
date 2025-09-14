@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can afford it but I'm still ghetto**  
-<img src="https://preview.redd.it/m9m3wdd2uxof1.png?width=1080&crop=smart&auto=webp&s=7acd300eb8feb117f2aa487d2a8e226b63bdb3d8" alt="Random Meme" width="500"/>
+**meme backwards**  
+<img src="https://preview.redd.it/lv1aqfh1n0pf1.png?width=640&crop=smart&auto=webp&s=3db0e36e9a776fcee8a8cb4227b7ea4ac46a2192" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
