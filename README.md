@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just a typical daybat the FBI**  
-<img src="https://preview.redd.it/f7o54549vbpf1.png?width=960&crop=smart&auto=webp&s=bc972e341e03a2d631576f6ebcaf8a13cf510cbc" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/6djzxzmmscpf1.png?width=640&crop=smart&auto=webp&s=937730c4db51fa797766bac5c60a7ae84c47c578" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
