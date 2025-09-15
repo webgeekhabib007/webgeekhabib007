@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I don't think so**  
-<img src="https://preview.redd.it/ei1e5zyi6bpf1.png?width=1080&crop=smart&auto=webp&s=9b2f29588ce2c6f17c50625132a213ab3d1f058e" alt="Random Meme" width="500"/>
+**Just a typical daybat the FBI**  
+<img src="https://preview.redd.it/f7o54549vbpf1.png?width=960&crop=smart&auto=webp&s=bc972e341e03a2d631576f6ebcaf8a13cf510cbc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
