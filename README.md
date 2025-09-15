@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/qgty7zn362pf1.png?width=1080&crop=smart&auto=webp&s=bd644b4374448f8c6c0ecde44092155a9289236c" alt="Random Meme" width="500"/>
+**That's too much ig**  
+<img src="https://preview.redd.it/sy9n6pjyt9pf1.png?width=960&crop=smart&auto=webp&s=66c18529998f967d9d53642c0576da5adf9dc255" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
