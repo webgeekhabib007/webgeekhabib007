@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Acting requires thoughts, thoughts require braincells, and am out of braincells**  
-<img src="https://preview.redd.it/9n0u1fl286pf1.png?width=1080&crop=smart&auto=webp&s=ba416e75ea45dd4952819adba722e9e0de9720f9" alt="Random Meme" width="500"/>
+**back in my day...**  
+<img src="https://preview.redd.it/atwtbaeyf3pf1.png?width=640&crop=smart&auto=webp&s=3a9a828b51158e29e38a4038e0466e6a322c0316" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
