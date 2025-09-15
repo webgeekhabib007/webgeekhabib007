@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Long lost answers**  
-<img src="https://preview.redd.it/93euxe5txcpf1.gif?width=640&crop=smart&format=png8&s=92175a8873c79ad4ce92a27ded09e2ee23948949" alt="Random Meme" width="500"/>
+**Gonna ask the guy in front of me for another pencil (fourth time this year) and hope for the best**  
+<img src="https://preview.redd.it/6p8q9jc8fepf1.png?width=640&crop=smart&auto=webp&s=7d871ed311f85ee47106e1acbb2c56b6a9fb2e4e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
