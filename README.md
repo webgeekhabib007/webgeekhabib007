@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Same thing different year**  
-<img src="https://preview.redd.it/7xs3h4x855pf1.gif?width=960&crop=smart&format=png8&s=41d916193fcf8523897fe4444efb40d44f65fc99" alt="Random Meme" width="500"/>
+**I don't think so**  
+<img src="https://preview.redd.it/ei1e5zyi6bpf1.png?width=1080&crop=smart&auto=webp&s=9b2f29588ce2c6f17c50625132a213ab3d1f058e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
