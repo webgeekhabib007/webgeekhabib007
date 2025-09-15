@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**true, she spoils her grandchildren**  
-<img src="https://preview.redd.it/j5xxuk6t34pf1.png?width=1080&crop=smart&auto=webp&s=46e132c6f8b5169b16ef9af82eff27a22ad7fc70" alt="Random Meme" width="500"/>
+**its not that deep**  
+<img src="https://preview.redd.it/jqk5t70nxbpf1.png?width=320&crop=smart&auto=webp&s=2a23b2b47e9a7a3c8ae092e4453df567c7ffe552" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
