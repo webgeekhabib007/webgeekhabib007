@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Patents space-time next**  
-<img src="https://preview.redd.it/cofkjqzg14pf1.gif?width=320&crop=smart&format=png8&s=2c59029dba84321d77e8786d6b4bf4db6507b581" alt="Random Meme" width="500"/>
+**Same thing different year**  
+<img src="https://preview.redd.it/7xs3h4x855pf1.gif?width=960&crop=smart&format=png8&s=41d916193fcf8523897fe4444efb40d44f65fc99" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
