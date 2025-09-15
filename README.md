@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**back in my day...**  
-<img src="https://preview.redd.it/atwtbaeyf3pf1.png?width=640&crop=smart&auto=webp&s=3a9a828b51158e29e38a4038e0466e6a322c0316" alt="Random Meme" width="500"/>
+**true, she spoils her grandchildren**  
+<img src="https://preview.redd.it/j5xxuk6t34pf1.png?width=1080&crop=smart&auto=webp&s=46e132c6f8b5169b16ef9af82eff27a22ad7fc70" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
