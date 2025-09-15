@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/y3ir3pz7hwof1.png?width=640&crop=smart&auto=webp&s=3f4f8ebb3a320b879b448c6b478413fcd595955b" alt="Random Meme" width="500"/>
+**Surviving with No Strategy**  
+<img src="https://preview.redd.it/dsobqgb5f6pf1.png?width=320&crop=smart&auto=webp&s=7f3a0a9afbd0662d1311c24da401554248fb763d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
