@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**that random split amnesia is worrisome**  
-<img src="https://preview.redd.it/4q32lc0s2ipf1.png?width=960&crop=smart&auto=webp&s=5d59568c7716e0a6185fabf27a653c8e2657468a" alt="Random Meme" width="500"/>
+**That is tiresome**  
+<img src="https://preview.redd.it/np89xmpd2epf1.png?width=640&crop=smart&auto=webp&s=8315287e85faeb43eeb08d40a8d7caf110a46eac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
