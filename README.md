@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/utf3ke3swbpf1.png?width=320&crop=smart&auto=webp&s=08fe2b82bafe579d67f9d9d7f0be352364cf2d52" alt="Random Meme" width="500"/>
+**Nintendo's POV:**  
+<img src="https://preview.redd.it/lxxkywlx4apf1.png?width=640&crop=smart&auto=webp&s=f961726a6a1033f173cb3aed60f7a7511177425b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
