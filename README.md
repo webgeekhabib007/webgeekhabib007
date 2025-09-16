@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just write a book bro**  
-<img src="https://preview.redd.it/c666k0ixd4pf1.png?width=640&crop=smart&auto=webp&s=4b4592bf0d38d05184d4963a2bfb3569013799d5" alt="Random Meme" width="500"/>
+**I always knew it**  
+<img src="https://preview.redd.it/4we1sytgfipf1.gif?width=320&crop=smart&format=png8&s=1506d01fe51d31e10c335c82a4adbe0a1372f8a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
