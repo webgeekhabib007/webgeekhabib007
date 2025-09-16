@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gonna ask the guy in front of me for another pencil (fourth time this year) and hope for the best**  
-<img src="https://preview.redd.it/6p8q9jc8fepf1.png?width=640&crop=smart&auto=webp&s=7d871ed311f85ee47106e1acbb2c56b6a9fb2e4e" alt="Random Meme" width="500"/>
+**Won't be surprised if they patent breathing**  
+<img src="https://preview.redd.it/9vkr55pbgqof1.gif?width=640&crop=smart&format=png8&s=c58830885f3b34ab907ab86966cec9347cfc7c66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
