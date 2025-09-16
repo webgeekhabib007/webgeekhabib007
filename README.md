@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**.eltit evitaerc A**  
-<img src="https://preview.redd.it/s49z2dkhbdpf1.png?width=640&crop=smart&auto=webp&s=a2c451a0c8df121b817acacd652d4a9d3c7b4aed" alt="Random Meme" width="500"/>
+**Me pretending I’ll change**  
+<img src="https://preview.redd.it/cm97qp747epf1.png?width=320&crop=smart&auto=webp&s=b05abceebf6e7481f8eb576f4d0d78b1d1b9658b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
