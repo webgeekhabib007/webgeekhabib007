@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Their names are so cool**  
-<img src="https://preview.redd.it/kctw6gwuwbpf1.png?width=1080&crop=smart&auto=webp&s=3a2e5d445697e8d9f7282782fcb5370621ee6b9a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/mr3ny5e2fepf1.png?width=640&crop=smart&auto=webp&s=3d11510f400c1bbad7e87dd749d32109d657a9e1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
