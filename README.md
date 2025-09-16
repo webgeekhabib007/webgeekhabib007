@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Clanking it**  
-<img src="https://preview.redd.it/j4ckmn13a5pf1.gif?width=320&crop=smart&format=png8&s=41a4e99bb03b4df5a28a7257d4d2658ed89505cb" alt="Random Meme" width="500"/>
+**.eltit evitaerc A**  
+<img src="https://preview.redd.it/s49z2dkhbdpf1.png?width=640&crop=smart&auto=webp&s=a2c451a0c8df121b817acacd652d4a9d3c7b4aed" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
