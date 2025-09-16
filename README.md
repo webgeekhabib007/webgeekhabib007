@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That is tiresome**  
-<img src="https://preview.redd.it/np89xmpd2epf1.png?width=640&crop=smart&auto=webp&s=8315287e85faeb43eeb08d40a8d7caf110a46eac" alt="Random Meme" width="500"/>
+**Just write a book bro**  
+<img src="https://preview.redd.it/c666k0ixd4pf1.png?width=640&crop=smart&auto=webp&s=4b4592bf0d38d05184d4963a2bfb3569013799d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
