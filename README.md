@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**2nd fastest hero**  
-<img src="https://preview.redd.it/eymkb0goggpf1.png?width=320&crop=smart&auto=webp&s=ff829c0f7882ac6d2e661fe0e461930a441c86f0" alt="Random Meme" width="500"/>
+**hmm what could it be?**  
+<img src="https://preview.redd.it/9dhfi3xe8jpf1.png?width=1080&crop=smart&auto=webp&s=d9cec21f954368ba2a52b22e73b6a9983340abbd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
