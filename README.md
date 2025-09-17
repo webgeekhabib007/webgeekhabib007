@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn, right below the belt.**  
-<img src="https://preview.redd.it/83ymgsp8hepf1.png?width=1080&crop=smart&auto=webp&s=c6ec496ef21a294bd1780430763ff6c90b7aeb6d" alt="Random Meme" width="500"/>
+**2nd fastest hero**  
+<img src="https://preview.redd.it/eymkb0goggpf1.png?width=320&crop=smart&auto=webp&s=ff829c0f7882ac6d2e661fe0e461930a441c86f0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
