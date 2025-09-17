@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It won't be long now, earthlings.**  
-<img src="https://preview.redd.it/j6xby8jty8pf1.gif?width=320&crop=smart&format=png8&s=a756fe8b440e3b36d9079a01fe93104ed518fada" alt="Random Meme" width="500"/>
+**Would they still go to war if there weren't a parking lot?**  
+<img src="https://preview.redd.it/a8n1lpu8rnpf1.png?width=1080&crop=smart&auto=webp&s=486e082bfbe338313c5b265c3577a166025f641a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
