@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nobody can’t stop me!! Not even the world leaders!!**  
-<img src="https://preview.redd.it/atcnm3s8s7pf1.gif?width=640&crop=smart&format=png8&s=046ff7ec53bb2a73b63c15b3f0956b3c828f3a9f" alt="Random Meme" width="500"/>
+**It won't be long now, earthlings.**  
+<img src="https://preview.redd.it/j6xby8jty8pf1.gif?width=320&crop=smart&format=png8&s=a756fe8b440e3b36d9079a01fe93104ed518fada" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
