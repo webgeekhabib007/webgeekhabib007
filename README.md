@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/9tscxkfubmpf1.png?width=640&crop=smart&auto=webp&s=074f3d768711de701c3670501aba8908702dbc3d" alt="Random Meme" width="500"/>
+**Tsundere Mail**  
+<img src="https://preview.redd.it/gyq9ai9jxipf1.gif?width=640&crop=smart&format=png8&s=e1adaff83b1a6399970f0d8ce36277b7e9377766" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
