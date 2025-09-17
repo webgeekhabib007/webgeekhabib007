@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/utf3ke3swbpf1.png?width=320&crop=smart&auto=webp&s=08fe2b82bafe579d67f9d9d7f0be352364cf2d52" alt="Random Meme" width="500"/>
+**Jelly filled is my favorite!**  
+<img src="https://preview.redd.it/0fdoy3u30opf1.png?width=1080&crop=smart&auto=webp&s=766ca4e44d939e8c89ba9e8bfb8e7367acf48efc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
