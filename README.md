@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Shouln't have tried it i guess**  
-<img src="https://preview.redd.it/smktq0x5x9pf1.png?width=640&crop=smart&auto=webp&s=3eb32dafaa9737b39e43f0b436169b12510b1a16" alt="Random Meme" width="500"/>
+**I can’t jerk off to this, it’s too cute!**  
+<img src="https://preview.redd.it/d8tjj4lwtfpf1.gif?width=320&crop=smart&format=png8&s=31f6ba2f91e223c9ce3a4c1b578211a159615fcd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
