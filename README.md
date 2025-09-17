@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/3mpz7vm9copf1.png?width=1080&crop=smart&auto=webp&s=95564e9fe5127492da98c952d6224c92644735ba" alt="Random Meme" width="500"/>
+**Half the time I don't leave with any books, just some oddly specific merch**  
+<img src="https://preview.redd.it/dri4ywb1mopf1.gif?width=320&crop=smart&format=png8&s=e22c3889a32cdca8151ef9fb422ad1e4acc896c3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
