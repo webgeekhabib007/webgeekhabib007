@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Almost every western country now.**  
-<img src="https://preview.redd.it/105yn8236dpf1.png?width=960&crop=smart&auto=webp&s=68b6cb2ee73213f4abc50865ae3e11cb37440138" alt="Random Meme" width="500"/>
+**imagine having the human right to privacy**  
+<img src="https://preview.redd.it/qkgm302neqpf1.png?width=1080&crop=smart&auto=webp&s=973b3827a6dff2a3667efe5998984b1042c6a2d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
