@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Clean Slate**  
-<img src="https://preview.redd.it/nfdg9hpp4upf1.png?width=320&crop=smart&auto=webp&s=f0d7351d6a89d3630fee44cc0941531d6fddda7e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/c20zbmj9mqpf1.png?width=1080&crop=smart&auto=webp&s=264cad54eb4365a2e21ecdd5fb06ee9035335c78" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
