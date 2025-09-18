@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I always knew it**  
-<img src="https://preview.redd.it/4we1sytgfipf1.gif?width=320&crop=smart&format=png8&s=1506d01fe51d31e10c335c82a4adbe0a1372f8a4" alt="Random Meme" width="500"/>
+**My first meme here ahh**  
+<img src="https://preview.redd.it/axwft9wsqnpf1.png?width=320&crop=smart&auto=webp&s=e7bdbb53daae883337b800398a1570dedad8e9da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
