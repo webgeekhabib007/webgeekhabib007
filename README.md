@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Awfully hot, teapot.**  
-<img src="https://preview.redd.it/48mkn7zkiypf1.png?width=1080&crop=smart&auto=webp&s=ab9ad5586456ce5aa2ff920d9f07854c820c30e6" alt="Random Meme" width="500"/>
+**Clank clank**  
+<img src="https://preview.redd.it/f5gbm9v9tqpf1.gif?width=320&crop=smart&format=png8&s=4fb73f723945e0a6029aa09122bbaa4271a28b30" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
