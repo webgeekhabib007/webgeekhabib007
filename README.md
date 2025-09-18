@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/c20zbmj9mqpf1.png?width=1080&crop=smart&auto=webp&s=264cad54eb4365a2e21ecdd5fb06ee9035335c78" alt="Random Meme" width="500"/>
+**Awfully hot, teapot.**  
+<img src="https://preview.redd.it/48mkn7zkiypf1.png?width=1080&crop=smart&auto=webp&s=ab9ad5586456ce5aa2ff920d9f07854c820c30e6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
