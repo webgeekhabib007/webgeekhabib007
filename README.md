@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My first meme here ahh**  
-<img src="https://preview.redd.it/axwft9wsqnpf1.png?width=320&crop=smart&auto=webp&s=e7bdbb53daae883337b800398a1570dedad8e9da" alt="Random Meme" width="500"/>
+**They're hunting down all the birds or something**  
+<img src="https://preview.redd.it/4j6hrp92cqpf1.png?width=640&crop=smart&auto=webp&s=13142938e249a4e103265df0fca88503367764e4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
