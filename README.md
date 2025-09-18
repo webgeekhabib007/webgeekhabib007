@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**still works though**  
-<img src="https://preview.redd.it/mu3anatgtrpf1.png?width=640&crop=smart&auto=webp&s=771d38decac653c6bf8547548c4e2f3e1d9140f2" alt="Random Meme" width="500"/>
+**They better not break anything...**  
+<img src="https://preview.redd.it/c6l85mbnvjpf1.gif?width=320&crop=smart&format=png8&s=80713f9b81b5354e51703456142779fb9f286159" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
