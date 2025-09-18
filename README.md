@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**must be fun to be a politician**  
-<img src="https://preview.redd.it/66zqwedikupf1.png?width=640&crop=smart&auto=webp&s=6ea57ab22219190f022af375e9b5078ab24fbfd7" alt="Random Meme" width="500"/>
+**still works though**  
+<img src="https://preview.redd.it/mu3anatgtrpf1.png?width=640&crop=smart&auto=webp&s=771d38decac653c6bf8547548c4e2f3e1d9140f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
