@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They're hunting down all the birds or something**  
-<img src="https://preview.redd.it/4j6hrp92cqpf1.png?width=640&crop=smart&auto=webp&s=13142938e249a4e103265df0fca88503367764e4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/y2r31kxlwhpf1.png?width=1080&crop=smart&auto=webp&s=de5efdd806aeef56f9cd504bf03d9e09b54b70de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
