@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me when numbers**  
-<img src="https://preview.redd.it/wjmdzg35x0qf1.png?width=320&crop=smart&auto=webp&s=e4c1d8eee16a93fdfd270391cae5fed730c8b52a" alt="Random Meme" width="500"/>
+**When I left my communication skills at home**  
+<img src="https://preview.redd.it/726q4jmzzypf1.png?width=1080&crop=smart&auto=webp&s=2fd77d77e5b29020554ae8cb79854e799173f9e1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
