@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not happening in my watch**  
-<img src="https://preview.redd.it/4fy753kjp1qf1.gif?width=320&crop=smart&format=png8&s=23b7834736a928f4bcc0654aae971de8f679e509" alt="Random Meme" width="500"/>
+**They're like animals**  
+<img src="https://preview.redd.it/tudy0o9ce0qf1.png?width=1080&crop=smart&auto=webp&s=0dc6b18a3f390ed5b044e7f278a575198cd1e0d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
