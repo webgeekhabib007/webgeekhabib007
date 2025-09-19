@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**it physically hurts**  
-<img src="https://preview.redd.it/46pnh5wxe1qf1.png?width=640&crop=smart&auto=webp&s=3a10bb805a53a052107ffcf45298c8ad2d26cfab" alt="Random Meme" width="500"/>
+**Give me your favourite dead memes**  
+<img src="https://preview.redd.it/n982vq1e23qf1.png?width=1080&crop=smart&auto=webp&s=bc7c346ba6660579d5f7afec2fe21d83893c46ce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
