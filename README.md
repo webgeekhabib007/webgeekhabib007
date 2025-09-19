@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He didn't even make fun of Kirk! He just made fun of Trump!**  
-<img src="https://preview.redd.it/itvuu0wig1qf1.png?width=320&crop=smart&auto=webp&s=b662edc06f347f3e229de5e8b88d97f133f3587c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3916fujegwpf1.png?width=640&crop=smart&auto=webp&s=a84bb2772fca0b24814b89dc5c160697654f4dbe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
