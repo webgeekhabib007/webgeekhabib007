@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The ending we all wanted.**  
-<img src="https://preview.redd.it/z1xay66a23qf1.png?width=1080&crop=smart&auto=webp&s=f527186c68c755b6ebdf742c90108a164bbbdc81" alt="Random Meme" width="500"/>
+**He didn't even make fun of Kirk! He just made fun of Trump!**  
+<img src="https://preview.redd.it/itvuu0wig1qf1.png?width=320&crop=smart&auto=webp&s=b662edc06f347f3e229de5e8b88d97f133f3587c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
