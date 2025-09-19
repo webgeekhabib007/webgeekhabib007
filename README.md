@@ -10,7 +10,7 @@
 - 🔭 I’m currently working on [**StreamFlare - Movie Recommendation System**](https://github.com/webgeekhabib007/StreamFlare)
 - 🌱 Exploring **NLP**, **Scikit-learn**, **TensorFlow**, and **PyTorch**
 - 👨‍💻 All my projects are here: [GitHub Repositories](https://github.com/webgeekhabib007?tab=repositories)
-- 📝 I write regularly on [Money-Hustler.com](https://money-hustler.com)
+- 📝 I write regularly on [Money-Hustler.com(Down now)](https://money-hustler.com)
 - 💬 Ask me about **React, Node.js, JavaScript**
 - 📫 Reach me at **hr665102@gmail.com**
 
