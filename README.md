@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They're like animals**  
-<img src="https://preview.redd.it/tudy0o9ce0qf1.png?width=1080&crop=smart&auto=webp&s=0dc6b18a3f390ed5b044e7f278a575198cd1e0d1" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/y1cdytbxnypf1.png?width=320&crop=smart&auto=webp&s=5a6443bc61538de9e33fa242e4b377467bead920" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
