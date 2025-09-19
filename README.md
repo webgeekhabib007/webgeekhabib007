@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The ending we all wanted.**  
-<img src="https://preview.redd.it/z1xay66a23qf1.png?width=1080&crop=smart&auto=webp&s=f527186c68c755b6ebdf742c90108a164bbbdc81" alt="Random Meme" width="500"/>
+**Not happening in my watch**  
+<img src="https://preview.redd.it/4fy753kjp1qf1.gif?width=320&crop=smart&format=png8&s=23b7834736a928f4bcc0654aae971de8f679e509" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
