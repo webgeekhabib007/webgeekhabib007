@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Give me your favourite dead memes**  
-<img src="https://preview.redd.it/n982vq1e23qf1.png?width=1080&crop=smart&auto=webp&s=bc7c346ba6660579d5f7afec2fe21d83893c46ce" alt="Random Meme" width="500"/>
+**The ending we all wanted.**  
+<img src="https://preview.redd.it/z1xay66a23qf1.png?width=1080&crop=smart&auto=webp&s=f527186c68c755b6ebdf742c90108a164bbbdc81" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
