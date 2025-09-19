@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can't find a single good quality of this show bro**  
-<img src="https://preview.redd.it/fj4fjvoud1qf1.gif?width=320&crop=smart&format=png8&s=112928e1db07aa60febcaed3043e5b5c83bcd015" alt="Random Meme" width="500"/>
+**Do y'all agree with me**  
+<img src="https://preview.redd.it/4pwqnieu45qf1.png?width=1080&crop=smart&auto=webp&s=16654cc2a8b0e58f2cb7038f287da0dada056954" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
