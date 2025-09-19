@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/yhm1gpjirxpf1.png?width=960&crop=smart&auto=webp&s=2604742410cc6a8694591253a3098acfa4d0bf0e" alt="Random Meme" width="500"/>
+**The Dark Lorde Returns**  
+<img src="https://preview.redd.it/uusisjcp90qf1.png?width=960&crop=smart&auto=webp&s=6336ca9529e6bbe6b3b3cb83c64e79e93ea271c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
