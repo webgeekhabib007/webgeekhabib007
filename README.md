@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yeet the kiddo**  
-<img src="https://preview.redd.it/hkmq6q9th6qf1.gif?width=320&crop=smart&format=png8&s=224474c710456170808e6c194f4e74f292ceb6f8" alt="Random Meme" width="500"/>
+**It’s just not the same without Matt. It’s like playing someone else save file. I don’t even like fnaf**  
+<img src="https://preview.redd.it/587qbjlel7qf1.gif?width=640&crop=smart&format=png8&s=d751d92208f9bb38e75f771d42b28d6398116b25" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
