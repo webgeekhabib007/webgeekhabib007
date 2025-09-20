@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The ending we all wanted.**  
-<img src="https://preview.redd.it/z1xay66a23qf1.png?width=1080&crop=smart&auto=webp&s=f527186c68c755b6ebdf742c90108a164bbbdc81" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3916fujegwpf1.png?width=640&crop=smart&auto=webp&s=a84bb2772fca0b24814b89dc5c160697654f4dbe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
