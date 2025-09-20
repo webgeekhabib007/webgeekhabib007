@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I like the song but I’m not happy about it**  
-<img src="https://preview.redd.it/l5fj124tfypf1.gif?width=640&crop=smart&format=png8&s=90bd2ac8bb01858326914bb361674e3d7c52b803" alt="Random Meme" width="500"/>
+**Yeet the kiddo**  
+<img src="https://preview.redd.it/hkmq6q9th6qf1.gif?width=320&crop=smart&format=png8&s=224474c710456170808e6c194f4e74f292ceb6f8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
