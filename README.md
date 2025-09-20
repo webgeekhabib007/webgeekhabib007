@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Doesn't look like they're lurking here**  
-<img src="https://preview.redd.it/misbl4l27tpf1.gif?width=640&crop=smart&format=png8&s=1921eafa7106b9e56da7e6d20c61dad1a342acfd" alt="Random Meme" width="500"/>
+**I don’t care if we’re not blood related it’s still weird!**  
+<img src="https://preview.redd.it/2522j11po7qf1.gif?width=640&crop=smart&format=png8&s=162d24baa307ba712837e89587c456c9005fdd34" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
