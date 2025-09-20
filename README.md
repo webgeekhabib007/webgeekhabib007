@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Would they still go to war if there weren't a parking lot?**  
-<img src="https://preview.redd.it/a8n1lpu8rnpf1.png?width=1080&crop=smart&auto=webp&s=486e082bfbe338313c5b265c3577a166025f641a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/pjk3rh3fc9qf1.png?width=640&crop=smart&auto=webp&s=ddd50c0459a9adac73b3a22275e46d339a8abd48" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
