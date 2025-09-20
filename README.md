@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Idk about that**  
-<img src="https://preview.redd.it/zukx2s81m7qf1.gif?width=320&crop=smart&format=png8&s=af0f68f6ac530a965a219b2678432a1f8a9f9ec9" alt="Random Meme" width="500"/>
+**Jeez Nintendo why does the game get dark.**  
+<img src="https://preview.redd.it/ts2871k0fypf1.gif?width=640&crop=smart&format=png8&s=a472c3c8eab6c1003bf255324a252425bc4c91ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
