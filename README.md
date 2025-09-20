@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Peace at last**  
-<img src="https://preview.redd.it/tel3xiypdcqf1.png?width=320&crop=smart&auto=webp&s=2032443a6879527706e3afdca84c3b91d3810579" alt="Random Meme" width="500"/>
+**How do you spell hatred?**  
+<img src="https://preview.redd.it/y6pdgmd60eqf1.png?width=1080&crop=smart&auto=webp&s=e45015d1fa0d2fd65d6f4388aa2a017b50f22c6d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
