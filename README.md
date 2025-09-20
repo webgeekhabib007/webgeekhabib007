@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can't find a single good quality of this show bro**  
-<img src="https://preview.redd.it/fj4fjvoud1qf1.gif?width=320&crop=smart&format=png8&s=112928e1db07aa60febcaed3043e5b5c83bcd015" alt="Random Meme" width="500"/>
+**Would they still go to war if there weren't a parking lot?**  
+<img src="https://preview.redd.it/a8n1lpu8rnpf1.png?width=1080&crop=smart&auto=webp&s=486e082bfbe338313c5b265c3577a166025f641a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
