@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Guys I know where you live**  
-<img src="https://preview.redd.it/f8vt94j7xfqf1.png?width=1080&crop=smart&auto=webp&s=e48fa94c0d8996210ddf1e07e8a0fce0eb63cff2" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/o23la7627fqf1.png?width=320&crop=smart&auto=webp&s=568354f6682361971048fe4972d0ecf66bce6d4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
