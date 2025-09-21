@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Aren't Snake Plissken and Captain Ron the same character?**  
-<img src="https://preview.redd.it/dvliv416peqf1.png?width=1080&crop=smart&auto=webp&s=854b3f3f1fa2ed17a1d4bc8c248d98a21b1d5782" alt="Random Meme" width="500"/>
+**Certified not-dank**  
+<img src="https://preview.redd.it/bcwilfw587qf1.png?width=960&crop=smart&auto=webp&s=c155dfb92f47dba3b9b7954f4bf2d59be53f09d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
