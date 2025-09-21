@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why is there so much step family stuff, where’s the holding hands and saying you love them category.**  
-<img src="https://preview.redd.it/rxkwod5lfypf1.gif?width=640&crop=smart&format=png8&s=6fa57a59b209e2b5a5d3d17281c51596374d1276" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/rmtahukmkgqf1.png?width=1080&crop=smart&auto=webp&s=1eeb667e2779a3b0c80af98347162a3d67678001" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
