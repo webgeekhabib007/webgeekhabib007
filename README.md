@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I believe I can fly, I believe I can tou-**  
-<img src="https://preview.redd.it/ccbt049bjdqf1.gif?width=640&crop=smart&format=png8&s=ce32bf86ea2d5ce96d6e99b38eb9d030ad8f58dc" alt="Random Meme" width="500"/>
+**Marvel plot twist**  
+<img src="https://preview.redd.it/i9slq50xokqf1.png?width=320&crop=smart&auto=webp&s=750f4db645fae4d6b469d2bfcb356d30a3bef7d2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
