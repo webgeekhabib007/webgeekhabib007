@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Only real OGs (Original guppies) get this one.**  
-<img src="https://preview.redd.it/0vg65pyb7fqf1.png?width=640&crop=smart&auto=webp&s=765e83a0d08d3d3003f572ccb418e63666214672" alt="Random Meme" width="500"/>
+**It should work better ig**  
+<img src="https://preview.redd.it/yomrstov3hqf1.png?width=1080&crop=smart&auto=webp&s=ca03bb754ffc45f7b982e3f037880cbea543be7f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
