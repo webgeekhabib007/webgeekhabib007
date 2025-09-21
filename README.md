@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hopefully she passes**  
-<img src="https://preview.redd.it/ip0p0yed5wpf1.gif?width=640&crop=smart&format=png8&s=2b370bfe4d64cb30da5704814f00b967a7e14abe" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/njfzkvfjoeqf1.png?width=320&crop=smart&auto=webp&s=0d67fee9787ba6a40162da0d0ce878c0adb42954" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
