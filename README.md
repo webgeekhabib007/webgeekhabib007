@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It should work better ig**  
-<img src="https://preview.redd.it/yomrstov3hqf1.png?width=1080&crop=smart&auto=webp&s=ca03bb754ffc45f7b982e3f037880cbea543be7f" alt="Random Meme" width="500"/>
+**Martin Luther King**  
+<img src="https://preview.redd.it/tl92wehpvbqf1.png?width=640&crop=smart&auto=webp&s=bdfe82e4df259be113b5757a810de7a32662bd8b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
