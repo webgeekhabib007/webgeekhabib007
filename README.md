@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Put those corporations on blast**  
-<img src="https://preview.redd.it/zz8i9r5xwdqf1.png?width=640&crop=smart&auto=webp&s=a8ce01b23d62229284c4a7f579588e9a3bf0c1bc" alt="Random Meme" width="500"/>
+**Aren't Snake Plissken and Captain Ron the same character?**  
+<img src="https://preview.redd.it/dvliv416peqf1.png?width=1080&crop=smart&auto=webp&s=854b3f3f1fa2ed17a1d4bc8c248d98a21b1d5782" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
