@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How could this help me with how to make a cake?!**  
-<img src="https://preview.redd.it/cbzwm0kamgqf1.png?width=1080&crop=smart&auto=webp&s=cbb3cebc1d3e0f877c2039a89718da38bf98156f" alt="Random Meme" width="500"/>
+**Why is there so much step family stuff, where’s the holding hands and saying you love them category.**  
+<img src="https://preview.redd.it/rxkwod5lfypf1.gif?width=640&crop=smart&format=png8&s=6fa57a59b209e2b5a5d3d17281c51596374d1276" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
