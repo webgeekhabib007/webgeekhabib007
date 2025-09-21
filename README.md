@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If you still believe Mojo Jojo's a victim, you never watched Powerpuff Girls properly**  
-<img src="https://preview.redd.it/mlv30amb4gqf1.png?width=640&crop=smart&auto=webp&s=7e71edf619e5a59dde690bef82ebb586679ec274" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/b94xtxqr1iqf1.png?width=640&crop=smart&auto=webp&s=43d0d68a650595cdd80f529a5fdd4adc5575908b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
