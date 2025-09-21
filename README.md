@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Martin Luther King**  
-<img src="https://preview.redd.it/tl92wehpvbqf1.png?width=640&crop=smart&auto=webp&s=bdfe82e4df259be113b5757a810de7a32662bd8b" alt="Random Meme" width="500"/>
+**If you still believe Mojo Jojo's a victim, you never watched Powerpuff Girls properly**  
+<img src="https://preview.redd.it/mlv30amb4gqf1.png?width=640&crop=smart&auto=webp&s=7e71edf619e5a59dde690bef82ebb586679ec274" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
