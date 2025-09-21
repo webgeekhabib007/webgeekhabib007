@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/b94xtxqr1iqf1.png?width=640&crop=smart&auto=webp&s=43d0d68a650595cdd80f529a5fdd4adc5575908b" alt="Random Meme" width="500"/>
+**I wonder why that cut such an important scene out of the movie**  
+<img src="https://preview.redd.it/yeedfwggb7qf1.gif?width=320&crop=smart&format=png8&s=4503a181c9d54ef5d703a85748f6b43c1270f8e6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
