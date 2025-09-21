@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Marvel plot twist**  
-<img src="https://preview.redd.it/i9slq50xokqf1.png?width=320&crop=smart&auto=webp&s=750f4db645fae4d6b469d2bfcb356d30a3bef7d2" alt="Random Meme" width="500"/>
+**Eco friendly jets I’m sure**  
+<img src="https://preview.redd.it/b68d896m1aqf1.gif?width=320&crop=smart&format=png8&s=64b0da7d9c4652faca59ad2d9f8a31a0b7f73225" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
