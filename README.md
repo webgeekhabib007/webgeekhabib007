@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/njfzkvfjoeqf1.png?width=320&crop=smart&auto=webp&s=0d67fee9787ba6a40162da0d0ce878c0adb42954" alt="Random Meme" width="500"/>
+**Put those corporations on blast**  
+<img src="https://preview.redd.it/zz8i9r5xwdqf1.png?width=640&crop=smart&auto=webp&s=a8ce01b23d62229284c4a7f579588e9a3bf0c1bc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
