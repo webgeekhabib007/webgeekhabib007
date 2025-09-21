@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It should work better ig**  
-<img src="https://preview.redd.it/yomrstov3hqf1.png?width=1080&crop=smart&auto=webp&s=ca03bb754ffc45f7b982e3f037880cbea543be7f" alt="Random Meme" width="500"/>
+**The Indian Subcontinent in 1971 was straight-up wild.**  
+<img src="https://preview.redd.it/nw5zikdfnwpf1.png?width=640&crop=smart&auto=webp&s=81dce4ec3ca999afc6514bf985f856eb49d0bfbd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
