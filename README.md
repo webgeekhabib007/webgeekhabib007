@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How do you spell hatred?**  
-<img src="https://preview.redd.it/y6pdgmd60eqf1.png?width=1080&crop=smart&auto=webp&s=e45015d1fa0d2fd65d6f4388aa2a017b50f22c6d" alt="Random Meme" width="500"/>
+**Hopefully she passes**  
+<img src="https://preview.redd.it/ip0p0yed5wpf1.gif?width=640&crop=smart&format=png8&s=2b370bfe4d64cb30da5704814f00b967a7e14abe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
