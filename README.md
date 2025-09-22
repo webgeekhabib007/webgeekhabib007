@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**So many important things to do out there...**  
-<img src="https://preview.redd.it/0hga9exuhrqf1.png?width=320&crop=smart&auto=webp&s=2ee77715c863e26a748a605fc20f8f78ca2c2ca1" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cprgzger5qqf1.png?width=1080&crop=smart&auto=webp&s=f00d5bbf4e84d1788aa7cea0b65e50c749900a43" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
