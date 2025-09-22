@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/h2dwaqc7kkqf1.png?width=1080&crop=smart&auto=webp&s=f006add2d7262e6b9802ace82fd14cc8d69bf7df" alt="Random Meme" width="500"/>
+**The drill is the answer**  
+<img src="https://preview.redd.it/addwwnxsv7qf1.png?width=1080&crop=smart&auto=webp&s=004055401f12426035b6431976c6fb7450ac79c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
