@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**All the signs are there**  
-<img src="https://preview.redd.it/wqypthl2clqf1.png?width=320&crop=smart&auto=webp&s=16693f2894211dab611e3344e9c9bcf312b91492" alt="Random Meme" width="500"/>
+**I don’t care if we’re not blood related it’s still weird!**  
+<img src="https://preview.redd.it/2522j11po7qf1.gif?width=640&crop=smart&format=png8&s=162d24baa307ba712837e89587c456c9005fdd34" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
