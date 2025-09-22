@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Eco friendly jets I’m sure**  
-<img src="https://preview.redd.it/b68d896m1aqf1.gif?width=320&crop=smart&format=png8&s=64b0da7d9c4652faca59ad2d9f8a31a0b7f73225" alt="Random Meme" width="500"/>
+**He'd just like to point out that...**  
+<img src="https://preview.redd.it/r4higelld5qf1.png?width=1080&crop=smart&auto=webp&s=7786a1415523720b3ea322f0aa9b5796954f4f18" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
