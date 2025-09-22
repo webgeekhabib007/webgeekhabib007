@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I don’t care if we’re not blood related it’s still weird!**  
-<img src="https://preview.redd.it/2522j11po7qf1.gif?width=640&crop=smart&format=png8&s=162d24baa307ba712837e89587c456c9005fdd34" alt="Random Meme" width="500"/>
+**Limited Sick days?**  
+<img src="https://preview.redd.it/3ht817h00eqf1.gif?width=320&crop=smart&format=png8&s=2e0d00959bc01091500ad7e9412c2aa68badae22" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
