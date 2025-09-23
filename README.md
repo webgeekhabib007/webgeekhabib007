@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Vanilla Sky.**  
-<img src="https://preview.redd.it/j9fih8h22lqf1.png?width=640&crop=smart&auto=webp&s=482bf8d96890e9d65ff14c84927db03d4b53fef9" alt="Random Meme" width="500"/>
+**Automatic forfeit**  
+<img src="https://preview.redd.it/5ug4eizb3vqf1.gif?width=320&crop=smart&format=png8&s=e9bb9cf2b2751e3ae79259b467c2a5fbaeda2848" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
