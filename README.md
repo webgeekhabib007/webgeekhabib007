@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sound off folks**  
-<img src="https://preview.redd.it/hyo48uujayqf1.png?width=960&crop=smart&auto=webp&s=266b4b0c9e4be68e549a64225ef1302e7ef38ddd" alt="Random Meme" width="500"/>
+**Worst experience was getting stuck in the middle of thousands of people...and nature was calling.**  
+<img src="https://preview.redd.it/nbciq2ltdwqf1.png?width=1080&crop=smart&auto=webp&s=276e96745c4d19fb0622e95c058b6d88eba3b504" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
