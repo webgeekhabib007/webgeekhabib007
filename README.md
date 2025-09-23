@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is this the 4th or 5th rapture?**  
-<img src="https://preview.redd.it/nnk5hon6uyqf1.png?width=320&crop=smart&auto=webp&s=321661c01d04fcfbc1f9780fc9cfdd2245123529" alt="Random Meme" width="500"/>
+**Sound off folks**  
+<img src="https://preview.redd.it/hyo48uujayqf1.png?width=960&crop=smart&auto=webp&s=266b4b0c9e4be68e549a64225ef1302e7ef38ddd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
