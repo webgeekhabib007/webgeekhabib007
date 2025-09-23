@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Suits are optional**  
-<img src="https://preview.redd.it/wd9ulgyc1sqf1.png?width=1080&crop=smart&auto=webp&s=2da49441562ca9b5fb0b5f0a7dc3b93a4cdb03d7" alt="Random Meme" width="500"/>
+**When the neighbors see inside your house**  
+<img src="https://preview.redd.it/unaqa9ywfuqf1.png?width=640&crop=smart&auto=webp&s=d84d1521d19cbbcf1a56170714d617770826914a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
