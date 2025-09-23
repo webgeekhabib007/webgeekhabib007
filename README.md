@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Scrolling through hell**  
-<img src="https://preview.redd.it/zvz4wutmijqf1.png?width=1080&crop=smart&auto=webp&s=f845205eca48ba57a751bbd726a478a4256bf88d" alt="Random Meme" width="500"/>
+**Kids look at me like I've lost my mind when I try to explain this**  
+<img src="https://preview.redd.it/8qp03g624rqf1.png?width=1080&crop=smart&auto=webp&s=b48413f1e8295eef152a1724c1bfc8de98cf4597" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
