@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A true mystery of our time**  
-<img src="https://preview.redd.it/g596khjshrqf1.png?width=1080&crop=smart&auto=webp&s=c171706a0b4bc831c2b7c11037fef24370b9eba8" alt="Random Meme" width="500"/>
+**Creepy santa**  
+<img src="https://preview.redd.it/srbqvy4b6tqf1.png?width=960&crop=smart&auto=webp&s=ccde05993e9983bd0d4d0144c269fa2cbcee8cb6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
