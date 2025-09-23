@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why are there no Thanksgiving songs?**  
-<img src="https://preview.redd.it/uhmaa1rgwnqf1.png?width=1080&crop=smart&auto=webp&s=1e3749ad88d05c8fd9228bc3b1799bec90bab951" alt="Random Meme" width="500"/>
+**Scrolling through hell**  
+<img src="https://preview.redd.it/zvz4wutmijqf1.png?width=1080&crop=smart&auto=webp&s=f845205eca48ba57a751bbd726a478a4256bf88d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
