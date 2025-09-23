@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Creepy santa**  
-<img src="https://preview.redd.it/srbqvy4b6tqf1.png?width=960&crop=smart&auto=webp&s=ccde05993e9983bd0d4d0144c269fa2cbcee8cb6" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/o23la7627fqf1.png?width=320&crop=smart&auto=webp&s=568354f6682361971048fe4972d0ecf66bce6d4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
