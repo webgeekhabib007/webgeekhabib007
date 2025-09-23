@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Rapture people waiting to do #2 like**  
-<img src="https://preview.redd.it/8oxzzinv9yqf1.png?width=320&crop=smart&auto=webp&s=9b5d7d0d935f6998f6d0d0ec998329156c248001" alt="Random Meme" width="500"/>
+**Is this the 4th or 5th rapture?**  
+<img src="https://preview.redd.it/nnk5hon6uyqf1.png?width=320&crop=smart&auto=webp&s=321661c01d04fcfbc1f9780fc9cfdd2245123529" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
