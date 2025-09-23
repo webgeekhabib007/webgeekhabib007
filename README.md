@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Scrolling through hell**  
-<img src="https://preview.redd.it/zvz4wutmijqf1.png?width=1080&crop=smart&auto=webp&s=f845205eca48ba57a751bbd726a478a4256bf88d" alt="Random Meme" width="500"/>
+**Rapture people waiting to do #2 like**  
+<img src="https://preview.redd.it/8oxzzinv9yqf1.png?width=320&crop=smart&auto=webp&s=9b5d7d0d935f6998f6d0d0ec998329156c248001" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
