@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Kids look at me like I've lost my mind when I try to explain this**  
-<img src="https://preview.redd.it/8qp03g624rqf1.png?width=1080&crop=smart&auto=webp&s=b48413f1e8295eef152a1724c1bfc8de98cf4597" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/94t3zjfsqrqf1.png?width=320&crop=smart&auto=webp&s=1f6991ab4f57e5cfba5d8de29c3528f3defb1216" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
