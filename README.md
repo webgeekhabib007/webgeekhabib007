@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/va1o4ja2axqf1.png?width=640&crop=smart&auto=webp&s=a505ab967d710e990a32dda704f0d44e6f9e85ea" alt="Random Meme" width="500"/>
+**The future is dark and full of horror**  
+<img src="https://preview.redd.it/kq0cw376i0rf1.png?width=320&crop=smart&auto=webp&s=0ba89b527d338c2efb21778029bd5f07eaf83159" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
