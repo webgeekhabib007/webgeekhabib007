@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It was the 2010s man**  
-<img src="https://preview.redd.it/rldocjtknzqf1.gif?width=216&crop=smart&format=png8&s=94bcbbdf048483487fa0515333992fd02ccd610a" alt="Random Meme" width="500"/>
+**Automatic forfeit**  
+<img src="https://preview.redd.it/5ug4eizb3vqf1.gif?width=320&crop=smart&format=png8&s=e9bb9cf2b2751e3ae79259b467c2a5fbaeda2848" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
