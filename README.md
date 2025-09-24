@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Stonks**  
-<img src="https://preview.redd.it/5i5t6rrqi5rf1.png?width=1080&crop=smart&auto=webp&s=9857aefe1d306138317b394b8e44ea46ab14cf02" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/h2uw3ypmy4rf1.png?width=640&crop=smart&auto=webp&s=085045077a9b75df3a9da1b244a30153e5b05744" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
