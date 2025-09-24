@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/9cqh0n0pdyqf1.png?width=640&crop=smart&auto=webp&s=9878d3659e61852195babdd2fe243a9dad25638f" alt="Random Meme" width="500"/>
+**I may or may not work at a grocery store**  
+<img src="https://preview.redd.it/dbsh9eovulqf1.png?width=640&crop=smart&auto=webp&s=c929fd901d67bd2d759ff1675c0a09565a09b057" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
