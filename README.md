@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The one and the only!**  
-<img src="https://preview.redd.it/y28slfhg4zqf1.png?width=1080&crop=smart&auto=webp&s=e518cf3f982aea46e85c4fa4adf82fff856933ea" alt="Random Meme" width="500"/>
+**Why must we awkwardly adjust our pace every 2 seconds**  
+<img src="https://preview.redd.it/k2byk1n1r2rf1.png?width=640&crop=smart&auto=webp&s=eb980e9505e683a770def40c8b3511ef413b0c2e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
