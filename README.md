@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**thanks, now i'm finally visible**  
-<img src="https://preview.redd.it/5ypy4fa30zqf1.png?width=960&crop=smart&auto=webp&s=3c49493c006d7ae5cc63a291d3fcd205c5b2246f" alt="Random Meme" width="500"/>
+**A ghey title.**  
+<img src="https://preview.redd.it/kcbudx6nv1rf1.png?width=640&crop=smart&auto=webp&s=8484fc893c31026653c1ecc24c9fe7742985ca5a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
