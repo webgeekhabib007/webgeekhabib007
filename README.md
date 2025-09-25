@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is this real gang? [I handmade this BTW]**  
-<img src="https://preview.redd.it/d2ufge95a8rf1.png?width=320&crop=smart&auto=webp&s=8d48a108f0f279ae4ffe9477376e455325915926" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ybcadu6564rf1.png?width=640&crop=smart&auto=webp&s=f5cf696cb31d81725590f3289e2e74686ec3fb54" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
