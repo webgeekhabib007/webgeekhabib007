@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It pays well to be lonely because I got on the that Millennium Falcon ride in 30 seconds. Granted I was with strangers but it was fun**  
-<img src="https://preview.redd.it/0flgelf0t1rf1.gif?width=640&crop=smart&format=png8&s=937943909a558838ba5dd59cb0183ba409d816d0" alt="Random Meme" width="500"/>
+**You have to be nice you know**  
+<img src="https://preview.redd.it/fan4xkchm4rf1.png?width=320&crop=smart&auto=webp&s=c54df3c3dd9034ff6c85764668960bc627983eac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
