@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jimmy Neutron = 🗿**  
-<img src="https://preview.redd.it/ocsspdgkk7rf1.png?width=1080&crop=smart&auto=webp&s=39db086ab26023823a997a5674f307267d19d274" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ybcadu6564rf1.png?width=640&crop=smart&auto=webp&s=f5cf696cb31d81725590f3289e2e74686ec3fb54" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
