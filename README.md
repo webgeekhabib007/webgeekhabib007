@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**thanks, now i'm finally visible**  
-<img src="https://preview.redd.it/5ypy4fa30zqf1.png?width=960&crop=smart&auto=webp&s=3c49493c006d7ae5cc63a291d3fcd205c5b2246f" alt="Random Meme" width="500"/>
+**You see kids, this was subscriptions before the internet**  
+<img src="https://preview.redd.it/vhebgx31jbrf1.gif?width=320&crop=smart&format=png8&s=f1dcc1b077271955e4bfbd81321ff2ac9445a3a5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
