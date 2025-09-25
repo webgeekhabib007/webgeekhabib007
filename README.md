@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happens every few years or so**  
-<img src="https://external-preview.redd.it/LvIEtdcLRSeevgvEMMYhxeElNSL_cDr1bRgm1Z3OMbk.jpeg?width=320&crop=smart&auto=webp&s=e899f522318e5587760ff9383dab16bf84cd14c0" alt="Random Meme" width="500"/>
+**Is this real gang? [I handmade this BTW]**  
+<img src="https://preview.redd.it/d2ufge95a8rf1.png?width=320&crop=smart&auto=webp&s=8d48a108f0f279ae4ffe9477376e455325915926" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
