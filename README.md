@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/0e9jq42t76rf1.png?width=960&crop=smart&auto=webp&s=f9bbafb4e1ac9ea2e56dac69ed5256b6cd121640" alt="Random Meme" width="500"/>
+**This is why I never lose aura 🗿**  
+<img src="https://preview.redd.it/tuyqewnwt4rf1.png?width=320&crop=smart&auto=webp&s=34909d8fc70b5c6c7d3ab8acb6287840700c8d0f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
