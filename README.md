@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dating app scammers be like**  
-<img src="https://preview.redd.it/aubokcxtm7rf1.png?width=320&crop=smart&auto=webp&s=d4b2ee1569b1eed71b4ea0257e161b04b653f84b" alt="Random Meme" width="500"/>
+**Jimmy Neutron = 🗿**  
+<img src="https://preview.redd.it/ocsspdgkk7rf1.png?width=1080&crop=smart&auto=webp&s=39db086ab26023823a997a5674f307267d19d274" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
