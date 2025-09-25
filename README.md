@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**sHe Is a woMan of Focus, Commitment and Sheer Fucking Will**  
-<img src="https://preview.redd.it/uytvnhoos6rf1.gif?width=320&crop=smart&format=png8&s=9f8b377eeb9c51a55e1345c51057419d5b4f42a8" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/9cqh0n0pdyqf1.png?width=640&crop=smart&auto=webp&s=9878d3659e61852195babdd2fe243a9dad25638f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
