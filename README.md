@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am special**  
-<img src="https://preview.redd.it/itss3tx0p0rf1.png?width=1080&crop=smart&auto=webp&s=5c83949f0cdddee2f0caae7c8940598c6e74c047" alt="Random Meme" width="500"/>
+**It pays well to be lonely because I got on the that Millennium Falcon ride in 30 seconds. Granted I was with strangers but it was fun**  
+<img src="https://preview.redd.it/0flgelf0t1rf1.gif?width=640&crop=smart&format=png8&s=937943909a558838ba5dd59cb0183ba409d816d0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
