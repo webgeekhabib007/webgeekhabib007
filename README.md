@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have to be nice you know**  
-<img src="https://preview.redd.it/fan4xkchm4rf1.png?width=320&crop=smart&auto=webp&s=c54df3c3dd9034ff6c85764668960bc627983eac" alt="Random Meme" width="500"/>
+**Dating app scammers be like**  
+<img src="https://preview.redd.it/aubokcxtm7rf1.png?width=320&crop=smart&auto=webp&s=d4b2ee1569b1eed71b4ea0257e161b04b653f84b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
