@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am special**  
-<img src="https://preview.redd.it/itss3tx0p0rf1.png?width=1080&crop=smart&auto=webp&s=5c83949f0cdddee2f0caae7c8940598c6e74c047" alt="Random Meme" width="500"/>
+**Wonder where these kids learned how to make hookah to be on dhoni’s team**  
+<img src="https://preview.redd.it/huhpe8y30brf1.png?width=1080&crop=smart&auto=webp&s=638956de96924d552c1866067fc539074d810188" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
