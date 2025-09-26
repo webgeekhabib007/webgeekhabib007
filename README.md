@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wonder where these kids learned how to make hookah to be on dhoni’s team**  
-<img src="https://preview.redd.it/huhpe8y30brf1.png?width=1080&crop=smart&auto=webp&s=638956de96924d552c1866067fc539074d810188" alt="Random Meme" width="500"/>
+**You have to be nice you know**  
+<img src="https://preview.redd.it/fan4xkchm4rf1.png?width=320&crop=smart&auto=webp&s=c54df3c3dd9034ff6c85764668960bc627983eac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
