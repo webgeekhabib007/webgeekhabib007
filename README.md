@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Feel free to correct any mistakes if seen on the map I made in MS Paint**  
-<img src="https://preview.redd.it/yqscm8ur7jrf1.png?width=1080&crop=smart&auto=webp&s=3976306029e700af4b80f48a1ce5e0e93e54ad61" alt="Random Meme" width="500"/>
+**Neither myself or anyone I know was good enough. Is it time to party?**  
+<img src="https://preview.redd.it/200senkm38rf1.png?width=1080&crop=smart&auto=webp&s=31f58f0657feda113cec5ce657c4619f2261fc00" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
