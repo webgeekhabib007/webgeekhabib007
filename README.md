@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ex684rs779rf1.png?width=640&crop=smart&auto=webp&s=8a318157b940d3bfed33844dcfb9d1266c639709" alt="Random Meme" width="500"/>
+**The final form of Autism, DAS Autismus**  
+<img src="https://preview.redd.it/sdem7m2dwcrf1.png?width=1080&crop=smart&auto=webp&s=6328d9f22ffd232af99999f2c2e3dca9c1a8330d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
