@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have to be nice you know**  
-<img src="https://preview.redd.it/fan4xkchm4rf1.png?width=320&crop=smart&auto=webp&s=c54df3c3dd9034ff6c85764668960bc627983eac" alt="Random Meme" width="500"/>
+**Would you look at the time**  
+<img src="https://preview.redd.it/hr0lld79z8rf1.gif?width=640&crop=smart&format=png8&s=abf851aca089d93d883084b604568e5140fc18c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
