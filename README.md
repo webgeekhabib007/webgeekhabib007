@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Now I gotta spend several minutes trying to find the episode I wanna watch**  
-<img src="https://preview.redd.it/lhowf3ukxerf1.png?width=1080&crop=smart&auto=webp&s=89486f84eef461034dc69b073b853a9e026990b9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/a5wt1hddzerf1.png?width=640&crop=smart&auto=webp&s=f657f9d600de71690fad2958c53029d848dd956d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
