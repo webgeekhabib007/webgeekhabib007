@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**LEVEL UP!!!**  
-<img src="https://preview.redd.it/4cn9zj6gacrf1.png?width=1080&crop=smart&auto=webp&s=b0164abe44f44711600002c352415bedb2171393" alt="Random Meme" width="500"/>
+**You have to be nice you know**  
+<img src="https://preview.redd.it/fan4xkchm4rf1.png?width=320&crop=smart&auto=webp&s=c54df3c3dd9034ff6c85764668960bc627983eac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
