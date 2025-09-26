@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Would you look at the time**  
-<img src="https://preview.redd.it/hr0lld79z8rf1.gif?width=640&crop=smart&format=png8&s=abf851aca089d93d883084b604568e5140fc18c4" alt="Random Meme" width="500"/>
+**Now I gotta spend several minutes trying to find the episode I wanna watch**  
+<img src="https://preview.redd.it/lhowf3ukxerf1.png?width=1080&crop=smart&auto=webp&s=89486f84eef461034dc69b073b853a9e026990b9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
