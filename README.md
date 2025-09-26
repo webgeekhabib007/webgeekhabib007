@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There was a lot of those jokes growing up and they put that thought in my brain and I got in trouble for asking.**  
-<img src="https://preview.redd.it/sv8pelrpsdrf1.gif?width=640&crop=smart&format=png8&s=123a802439a5d852742c0b86e079902f9f0e6229" alt="Random Meme" width="500"/>
+**SHE AGILE I SWEAR!!!**  
+<img src="https://preview.redd.it/97g4brk2bbrf1.png?width=1080&crop=smart&auto=webp&s=5710ec00998871e4efaccd51c16782bf420ead1b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
