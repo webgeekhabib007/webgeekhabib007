@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**you heard it here**  
-<img src="https://preview.redd.it/e9ksdzquo7rf1.png?width=640&crop=smart&auto=webp&s=1287104cfe1306b334bdbcbb789ca0109c43f456" alt="Random Meme" width="500"/>
+**There was a lot of those jokes growing up and they put that thought in my brain and I got in trouble for asking.**  
+<img src="https://preview.redd.it/sv8pelrpsdrf1.gif?width=640&crop=smart&format=png8&s=123a802439a5d852742c0b86e079902f9f0e6229" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
