@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**you heard it here**  
-<img src="https://preview.redd.it/e9ksdzquo7rf1.png?width=640&crop=smart&auto=webp&s=1287104cfe1306b334bdbcbb789ca0109c43f456" alt="Random Meme" width="500"/>
+**I am special**  
+<img src="https://preview.redd.it/itss3tx0p0rf1.png?width=1080&crop=smart&auto=webp&s=5c83949f0cdddee2f0caae7c8940598c6e74c047" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
