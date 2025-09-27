@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Feel free to correct any mistakes if seen on the map I made in MS Paint**  
-<img src="https://preview.redd.it/yqscm8ur7jrf1.png?width=1080&crop=smart&auto=webp&s=3976306029e700af4b80f48a1ce5e0e93e54ad61" alt="Random Meme" width="500"/>
+**THIS SHIT JUMPSCARED ME**  
+<img src="https://preview.redd.it/zjvnh6vi1nrf1.png?width=1080&crop=smart&auto=webp&s=bb8a3da2821a9b7a06b450641f8eb786d80360b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
