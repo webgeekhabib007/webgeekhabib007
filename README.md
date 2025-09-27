@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**YEARS OF MEMES**  
-<img src="https://preview.redd.it/za09zd80wprf1.png?width=320&crop=smart&auto=webp&s=00482cf3d4af815aaac96f0e6e15d31ce4614dc0" alt="Random Meme" width="500"/>
+**"so.... what do you do for a living? ... no no..."**  
+<img src="https://preview.redd.it/vxuz48eifqrf1.png?width=1080&crop=smart&auto=webp&s=1e5313c0a121fe51e24aa53133e781c532da8951" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
