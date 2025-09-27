@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i wish you'd stop saying odd shit**  
-<img src="https://preview.redd.it/x2j4wj86rlrf1.png?width=640&crop=smart&auto=webp&s=28e4aea835fa6a150ed37916166601171414d3fb" alt="Random Meme" width="500"/>
+**My pug bit me after I showed him this image**  
+<img src="https://preview.redd.it/3jcgxm95unrf1.png?width=1080&crop=smart&auto=webp&s=f78be7ac7723e2463d6c9e2219ff95ed566be05e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
