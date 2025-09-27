@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My pug bit me after I showed him this image**  
-<img src="https://preview.redd.it/3jcgxm95unrf1.png?width=1080&crop=smart&auto=webp&s=f78be7ac7723e2463d6c9e2219ff95ed566be05e" alt="Random Meme" width="500"/>
+**Put it in her ***t 🧠**  
+<img src="https://preview.redd.it/3viwqn7s6orf1.png?width=1080&crop=smart&auto=webp&s=f74a0db9a397dc6f7d7bf66acd9e8d8cd6db6c07" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
