@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Neither myself or anyone I know was good enough. Is it time to party?**  
-<img src="https://preview.redd.it/200senkm38rf1.png?width=1080&crop=smart&auto=webp&s=31f58f0657feda113cec5ce657c4619f2261fc00" alt="Random Meme" width="500"/>
+**grammar is important you guys**  
+<img src="https://preview.redd.it/qhogo1bnvirf1.png?width=320&crop=smart&auto=webp&s=a4c82092adcf5acfca1e8169b92ec683a3a76623" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
