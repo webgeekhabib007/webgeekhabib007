@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**THIS SHIT JUMPSCARED ME**  
-<img src="https://preview.redd.it/zjvnh6vi1nrf1.png?width=1080&crop=smart&auto=webp&s=bb8a3da2821a9b7a06b450641f8eb786d80360b6" alt="Random Meme" width="500"/>
+**Me, who loves metal**  
+<img src="https://preview.redd.it/cw6ua0sbpjrf1.png?width=640&crop=smart&auto=webp&s=9d6735c3fa601d3998e985a6014fe4e880fd6239" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
