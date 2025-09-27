@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**grammar is important you guys**  
-<img src="https://preview.redd.it/qhogo1bnvirf1.png?width=320&crop=smart&auto=webp&s=a4c82092adcf5acfca1e8169b92ec683a3a76623" alt="Random Meme" width="500"/>
+**When life gives you chilly winds, be your own heater.**  
+<img src="https://preview.redd.it/quvh8pr24qrf1.png?width=960&crop=smart&auto=webp&s=2e044b74f2b9353b1d154cabf0b43e345c4e81c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
