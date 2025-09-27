@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"so.... what do you do for a living? ... no no..."**  
-<img src="https://preview.redd.it/vxuz48eifqrf1.png?width=1080&crop=smart&auto=webp&s=1e5313c0a121fe51e24aa53133e781c532da8951" alt="Random Meme" width="500"/>
+**Why he double cheeked up on a Thursday?**  
+<img src="https://preview.redd.it/hk0zf2rjiorf1.png?width=1080&crop=smart&auto=webp&s=9d0e7e1de527d5baef614803087ecc9aa48b0ebf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
