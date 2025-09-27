@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me, who loves metal**  
-<img src="https://preview.redd.it/cw6ua0sbpjrf1.png?width=640&crop=smart&auto=webp&s=9d6735c3fa601d3998e985a6014fe4e880fd6239" alt="Random Meme" width="500"/>
+**i wish you'd stop saying odd shit**  
+<img src="https://preview.redd.it/x2j4wj86rlrf1.png?width=640&crop=smart&auto=webp&s=28e4aea835fa6a150ed37916166601171414d3fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
