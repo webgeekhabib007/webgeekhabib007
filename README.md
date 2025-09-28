@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Tastes like depression**  
-<img src="https://preview.redd.it/40j876pziwrf1.gif?width=320&crop=smart&format=png8&s=c6276a9781c6941140328a954adb0b27c82c942f" alt="Random Meme" width="500"/>
+**"Your honor, he managed to lose 2 pounds thanks to me. That’s gotta count for something, right?"**  
+<img src="https://preview.redd.it/anljpa90nmrf1.png?width=640&crop=smart&auto=webp&s=88afe95b288390ed94829bd504035d7988cc19f9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
