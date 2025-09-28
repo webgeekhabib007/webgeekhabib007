@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Clanker AI slop detected**  
-<img src="https://preview.redd.it/hol0gxrbzsrf1.png?width=320&crop=smart&auto=webp&s=5d0449ff31895190263ce146c0072d59cf521378" alt="Random Meme" width="500"/>
+**Tastes like depression**  
+<img src="https://preview.redd.it/40j876pziwrf1.gif?width=320&crop=smart&format=png8&s=c6276a9781c6941140328a954adb0b27c82c942f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
