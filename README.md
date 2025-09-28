@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You…..poisoned me**  
-<img src="https://preview.redd.it/c7fislasjrrf1.gif?width=640&crop=smart&format=png8&s=cc57e1c98429f60e1e5993c370c4565eab570200" alt="Random Meme" width="500"/>
+**This is what RFK Jr actually believes**  
+<img src="https://preview.redd.it/eeyspn0anirf1.png?width=640&crop=smart&auto=webp&s=4766f69483f29ee37505d44ef2866bcd2b68f144" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
