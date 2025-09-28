@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Your honor, he managed to lose 2 pounds thanks to me. That’s gotta count for something, right?"**  
-<img src="https://preview.redd.it/anljpa90nmrf1.png?width=640&crop=smart&auto=webp&s=88afe95b288390ed94829bd504035d7988cc19f9" alt="Random Meme" width="500"/>
+**Here’s a thing that Hawkeye would have done in infinity war, he would have aimed for the head because he wouldn’t have missed.**  
+<img src="https://preview.redd.it/rd6hynacyvrf1.gif?width=640&crop=smart&format=png8&s=02baa95ca8b09ca51ef9ca99c16159e903fbaf34" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
