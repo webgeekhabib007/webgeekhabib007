@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Netanyahu's address at the 80th anniversary of the UN General Assembly.**  
-<img src="https://preview.redd.it/a8psam1lanrf1.png?width=640&crop=smart&auto=webp&s=e41777f6f1bf018b84460c28033a848415a58d2c" alt="Random Meme" width="500"/>
+**What a wonderful year 2025 has been for gaming**  
+<img src="https://preview.redd.it/pq6ro1ypesrf1.png?width=640&crop=smart&auto=webp&s=677f9a39063aaff9f9c9df6e054a1a8ce7368862" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
