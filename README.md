@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is what RFK Jr actually believes**  
-<img src="https://preview.redd.it/eeyspn0anirf1.png?width=640&crop=smart&auto=webp&s=4766f69483f29ee37505d44ef2866bcd2b68f144" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ig7so6da1prf1.png?width=640&crop=smart&auto=webp&s=2924bbe65314c616b0efdd6c6fed571d79b0fb35" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
