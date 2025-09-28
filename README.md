@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why he double cheeked up on a Thursday?**  
-<img src="https://preview.redd.it/hk0zf2rjiorf1.png?width=1080&crop=smart&auto=webp&s=9d0e7e1de527d5baef614803087ecc9aa48b0ebf" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ctbluewrjqrf1.gif?width=640&crop=smart&format=png8&s=4b9be4026cd4a1f6c1f61238f75489a328787d6f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
