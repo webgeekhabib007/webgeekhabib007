@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Magic not found**  
-<img src="https://preview.redd.it/i8kwpqyffyrf1.png?width=1080&crop=smart&auto=webp&s=5306bb56ce117855e8d7cc849195148265002766" alt="Random Meme" width="500"/>
+**Time to hit the gym**  
+<img src="https://preview.redd.it/u4qjsie5y0sf1.gif?width=320&crop=smart&format=png8&s=1f21c0ca4b2f21d0600ee035315e3ccb3b596847" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
