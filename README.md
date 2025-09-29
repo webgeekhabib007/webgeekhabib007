@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Here’s a thing that Hawkeye would have done in infinity war, he would have aimed for the head because he wouldn’t have missed.**  
-<img src="https://preview.redd.it/rd6hynacyvrf1.gif?width=640&crop=smart&format=png8&s=02baa95ca8b09ca51ef9ca99c16159e903fbaf34" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/rngme8a9c3sf1.png?width=1080&crop=smart&auto=webp&s=d71811cef9b7ea622fbefceaaadb06995e09f0f7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
