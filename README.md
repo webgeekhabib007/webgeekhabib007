@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/4g0xn12ygkrf1.png?width=1080&crop=smart&auto=webp&s=1483482ddccfca3d9a0db5251982b239ef44fb75" alt="Random Meme" width="500"/>
+**When's my raise?**  
+<img src="https://preview.redd.it/8z1lncflttrf1.gif?width=640&crop=smart&format=png8&s=46e72107d4ed2d8dfd0491dedb21e5fe8bb01fef" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
