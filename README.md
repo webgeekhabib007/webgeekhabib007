@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I love you Clementine. But Lee would still be here if you didn’t trust a random person with a creepy voice.**  
-<img src="https://preview.redd.it/m3edc4krflrf1.gif?width=640&crop=smart&format=png8&s=6c63d71b2b76be0ff1c2a8c13b97851adda57e56" alt="Random Meme" width="500"/>
+**Live of meme maker**  
+<img src="https://preview.redd.it/ztw8z3xjw4sf1.png?width=1080&crop=smart&auto=webp&s=d88ddc3fa2d78e86c634d1233a61757161cef076" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
