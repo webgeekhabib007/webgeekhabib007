@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Time to hit the gym**  
-<img src="https://preview.redd.it/u4qjsie5y0sf1.gif?width=320&crop=smart&format=png8&s=1f21c0ca4b2f21d0600ee035315e3ccb3b596847" alt="Random Meme" width="500"/>
+**They will...**  
+<img src="https://preview.redd.it/9p2j2cy4s0sf1.png?width=1080&crop=smart&auto=webp&s=f2b56da9240a971fb73516c919b763a4fd8c0d64" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
