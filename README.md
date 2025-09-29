@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Live of meme maker**  
-<img src="https://preview.redd.it/ztw8z3xjw4sf1.png?width=1080&crop=smart&auto=webp&s=d88ddc3fa2d78e86c634d1233a61757161cef076" alt="Random Meme" width="500"/>
+**Le dank new format 🤏**  
+<img src="https://preview.redd.it/rxotduge60sf1.png?width=1080&crop=smart&auto=webp&s=7bc130e69acb5ea0b63d3db11f1b838175d30f4a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
