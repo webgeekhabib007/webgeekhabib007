@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/tzntpgocgasf1.png?width=1080&crop=smart&auto=webp&s=ed76e8c51e4c470cc1a03c152908a3b246c2f1b3" alt="Random Meme" width="500"/>
+**The cow knows where it is at all times... It knows this because it knows where it isn't**  
+<img src="https://preview.redd.it/l66wn7lbe7sf1.gif?width=640&crop=smart&format=png8&s=44aa6af3d6c86855b56b19b5c494a014984d9af6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
