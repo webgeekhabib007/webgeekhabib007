@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Navy seal**  
-<img src="https://preview.redd.it/rupr5qlfqcsf1.png?width=1080&crop=smart&auto=webp&s=9966360551de8797fbcea9bf30f26e2785b64b32" alt="Random Meme" width="500"/>
+**choice out of desperation**  
+<img src="https://preview.redd.it/dfip0p0iy9sf1.png?width=960&crop=smart&auto=webp&s=ba41972dc67f1a6cf91ec5929da3a18706e4a780" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
