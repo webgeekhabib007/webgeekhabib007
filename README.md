@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Money shots**  
-<img src="https://preview.redd.it/0ap0wfm3s5sf1.png?width=1080&crop=smart&auto=webp&s=4055616502fceaaee231860cab96a6233d433324" alt="Random Meme" width="500"/>
+**"What's a Hurry-Cane..?" ~St. Augustine Settler, 1565**  
+<img src="https://preview.redd.it/w7f89kw8c1sf1.png?width=320&crop=smart&auto=webp&s=6ee0611bbd7337236210072f1d2f327f4a2999f4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
