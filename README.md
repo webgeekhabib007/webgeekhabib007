@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/spt4vxfe98sf1.png?width=1080&crop=smart&auto=webp&s=f63a98e31061927f1579e39f4d3b13b5eebd76f1" alt="Random Meme" width="500"/>
+**Navy seal**  
+<img src="https://preview.redd.it/rupr5qlfqcsf1.png?width=1080&crop=smart&auto=webp&s=9966360551de8797fbcea9bf30f26e2785b64b32" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
