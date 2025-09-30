@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And that's how you summon Vunter Slaush**  
-<img src="https://preview.redd.it/mwomabgu4yrf1.png?width=1080&crop=smart&auto=webp&s=35ea6653a1820e999d4b09ca403beb26f23eff23" alt="Random Meme" width="500"/>
+**They better start praying**  
+<img src="https://preview.redd.it/9dm3wi5054sf1.png?width=320&crop=smart&auto=webp&s=d08fe1dcd228e1d0aeb61efa614dc3ba9da1cae4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
