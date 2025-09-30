@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/cd249eu415sf1.png?width=1080&crop=smart&auto=webp&s=b387ac3f628f3e82324b5003cd5619956109acb5" alt="Random Meme" width="500"/>
+**They better start praying**  
+<img src="https://preview.redd.it/9dm3wi5054sf1.png?width=320&crop=smart&auto=webp&s=d08fe1dcd228e1d0aeb61efa614dc3ba9da1cae4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
