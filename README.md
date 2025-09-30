@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Creeper, Aw man**  
-<img src="https://preview.redd.it/fc4s2g0vfxrf1.png?width=640&crop=smart&auto=webp&s=15738c3fdb38fb97e4e1ea538501f3fb4689d842" alt="Random Meme" width="500"/>
+**Now you see me, now you don't**  
+<img src="https://preview.redd.it/pbqk0d68x4sf1.png?width=1080&crop=smart&auto=webp&s=01f1a1315fe1c743440269b67e7b04f837dcc330" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
