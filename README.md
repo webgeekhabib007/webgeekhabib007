@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Harsh reality**  
-<img src="https://preview.redd.it/k49eujqh0isf1.png?width=1080&crop=smart&auto=webp&s=dff650b9ffc555de3c94d6d2ed604cf7af5065e7" alt="Random Meme" width="500"/>
+**don't do sleep, get 8 hours of drugs**  
+<img src="https://preview.redd.it/6wl1csi2p8sf1.gif?width=1080&crop=smart&format=png8&s=01b5d29e24c711130114dd3efb21e0075cc9b3ab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
