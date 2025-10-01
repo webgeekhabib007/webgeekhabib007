@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/2qiq88j6xdsf1.png?width=1080&crop=smart&auto=webp&s=69fa7a7dec9bfbe96c08c612404c14b6c04c9a52" alt="Random Meme" width="500"/>
+**Nah girl, I’m scared too. Why don’t YOU check it out?**  
+<img src="https://preview.redd.it/f1peuhk9ocsf1.gif?width=640&crop=smart&format=png8&s=e093654fe0ffe4777969d6482ceaa37bdc5167b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
