@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn hypocrites**  
-<img src="https://preview.redd.it/ljdjxhqzxdsf1.png?width=1080&crop=smart&auto=webp&s=ae69f28ebeab0e67b47dbc78e4bd6f7b83c345af" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/48fk9ghtzesf1.png?width=1080&crop=smart&auto=webp&s=9bc668fb1d0ae9602f44db1ebd747a1283c61b57" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
