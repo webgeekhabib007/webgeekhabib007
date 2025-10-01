@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Tastes like chicken**  
-<img src="https://preview.redd.it/bznld1cwacsf1.gif?width=320&crop=smart&format=png8&s=3741c23508ea1e5b8146f01f97e5893a3a1c7723" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/48fk9ghtzesf1.png?width=1080&crop=smart&auto=webp&s=9bc668fb1d0ae9602f44db1ebd747a1283c61b57" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
