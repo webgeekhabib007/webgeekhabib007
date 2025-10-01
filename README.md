@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And there's bonus in nostalgia if you grew up with the game**  
-<img src="https://preview.redd.it/mrflqxkgodsf1.png?width=640&crop=smart&auto=webp&s=36cd4ea6518301e61a40171d4ed651524e35840e" alt="Random Meme" width="500"/>
+**Damn hypocrites**  
+<img src="https://preview.redd.it/ljdjxhqzxdsf1.png?width=1080&crop=smart&auto=webp&s=ae69f28ebeab0e67b47dbc78e4bd6f7b83c345af" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
