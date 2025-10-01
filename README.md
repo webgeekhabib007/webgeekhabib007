@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**don't do sleep, get 8 hours of drugs**  
-<img src="https://preview.redd.it/6wl1csi2p8sf1.gif?width=1080&crop=smart&format=png8&s=01b5d29e24c711130114dd3efb21e0075cc9b3ab" alt="Random Meme" width="500"/>
+**Time for some heat**  
+<img src="https://preview.redd.it/5h0u4kvisasf1.gif?width=640&crop=smart&format=png8&s=2dfe1d5c73dd90b605f90efbfa171097eabff8ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
