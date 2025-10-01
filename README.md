@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/48fk9ghtzesf1.png?width=1080&crop=smart&auto=webp&s=9bc668fb1d0ae9602f44db1ebd747a1283c61b57" alt="Random Meme" width="500"/>
+**And there's bonus in nostalgia if you grew up with the game**  
+<img src="https://preview.redd.it/mrflqxkgodsf1.png?width=640&crop=smart&auto=webp&s=36cd4ea6518301e61a40171d4ed651524e35840e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
