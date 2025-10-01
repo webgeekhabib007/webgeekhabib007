@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Time for some heat**  
-<img src="https://preview.redd.it/5h0u4kvisasf1.gif?width=640&crop=smart&format=png8&s=2dfe1d5c73dd90b605f90efbfa171097eabff8ac" alt="Random Meme" width="500"/>
+**Tastes like chicken**  
+<img src="https://preview.redd.it/bznld1cwacsf1.gif?width=320&crop=smart&format=png8&s=3741c23508ea1e5b8146f01f97e5893a3a1c7723" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
