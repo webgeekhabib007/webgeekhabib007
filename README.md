@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nah girl, I’m scared too. Why don’t YOU check it out?**  
-<img src="https://preview.redd.it/f1peuhk9ocsf1.gif?width=640&crop=smart&format=png8&s=e093654fe0ffe4777969d6482ceaa37bdc5167b1" alt="Random Meme" width="500"/>
+**Am I going crazy, or did everyone forget that happened?**  
+<img src="https://preview.redd.it/unmzop5kncsf1.gif?width=640&crop=smart&format=png8&s=4007d03b8b68b523c2c49fdd0cfbd1264ad2c86d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
