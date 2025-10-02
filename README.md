@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/9mgmd67tnhsf1.png?width=640&crop=smart&auto=webp&s=b80677e546d9641927dcddefbe10480b6f65031d" alt="Random Meme" width="500"/>
+**"Full of...boba tea."**  
+<img src="https://preview.redd.it/ku70aie906sf1.png?width=1080&crop=smart&auto=webp&s=ceada9d8f8218512c482c0e75779d3e02f21f267" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
