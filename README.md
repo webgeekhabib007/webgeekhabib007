@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Still the biggest achievement in my life tbh**  
-<img src="https://preview.redd.it/3ly975e6dpsf1.png?width=320&crop=smart&auto=webp&s=da998280bcb8133d23a088ec1d2cd9f45b7776f3" alt="Random Meme" width="500"/>
+**Turns out, the cyberpunk future is already here**  
+<img src="https://preview.redd.it/p36n8zeujpsf1.png?width=1080&crop=smart&auto=webp&s=0592b9f6c26733e7a70df2d05ca04910acf3f12a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
