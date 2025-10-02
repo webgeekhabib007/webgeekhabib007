@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Turns out, the cyberpunk future is already here**  
-<img src="https://preview.redd.it/p36n8zeujpsf1.png?width=1080&crop=smart&auto=webp&s=0592b9f6c26733e7a70df2d05ca04910acf3f12a" alt="Random Meme" width="500"/>
+**govern**  
+<img src="https://preview.redd.it/b1lc929f7ksf1.png?width=640&crop=smart&auto=webp&s=e1a9069181b3aec3f95b323c858724878e69763e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
