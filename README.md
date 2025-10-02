@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Practical knowledge**  
-<img src="https://preview.redd.it/hc96e5i3wmsf1.png?width=1080&crop=smart&auto=webp&s=b2325cd68631d5b72f5f84a21b37872019b3dd8b" alt="Random Meme" width="500"/>
+**What did you say to me, boy. You token consuming piece of semiconductor.**  
+<img src="https://preview.redd.it/qj4nyrikfjsf1.png?width=640&crop=smart&auto=webp&s=cd4281529f246290fdc1a87949e79a6765c923c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
