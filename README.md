@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**easy fix**  
-<img src="https://preview.redd.it/6df71v5plisf1.png?width=320&crop=smart&auto=webp&s=81d256bf0a131e820923deba5664d46fa66efe65" alt="Random Meme" width="500"/>
+**Well, well, well...how the turntables**  
+<img src="https://preview.redd.it/190rieal3ksf1.png?width=640&crop=smart&auto=webp&s=09245d15d3cb5759f99c909642023546e8b6fad4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
