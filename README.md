@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/l5bg4sutzjsf1.png?width=640&crop=smart&auto=webp&s=130ca14a8924709dcbdbe2874ee6a9f427a9f666" alt="Random Meme" width="500"/>
+**"Sir...that happens after you go to prison."**  
+<img src="https://preview.redd.it/tllywggkrmsf1.png?width=640&crop=smart&auto=webp&s=036f59bdbd1134394c1f08a25ca4d7c75ef7d593" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
