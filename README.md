@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bro thought the pose was tuff**  
-<img src="https://preview.redd.it/t0cf5opc3jsf1.png?width=640&crop=smart&auto=webp&s=6a0b255a87cdeeb88111bed69e65a74223a84093" alt="Random Meme" width="500"/>
+**Get jacked newb**  
+<img src="https://preview.redd.it/2uwy6re61wsf1.png?width=640&crop=smart&auto=webp&s=dfe6a51c5cf210f4720c99c0b456aca175b81c2e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
