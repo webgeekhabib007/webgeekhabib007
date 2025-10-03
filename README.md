@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Get jacked newb**  
-<img src="https://preview.redd.it/2uwy6re61wsf1.png?width=640&crop=smart&auto=webp&s=dfe6a51c5cf210f4720c99c0b456aca175b81c2e" alt="Random Meme" width="500"/>
+**"Bro, I didn't mean any of the things I've said. Please don't shoot him."**  
+<img src="https://preview.redd.it/km9kxdn2mfsf1.png?width=640&crop=smart&auto=webp&s=c2d3b29ebd03f7422410de185ce68ce492688f5c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
