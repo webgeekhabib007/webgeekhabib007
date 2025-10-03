@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Bro, I didn't mean any of the things I've said. Please don't shoot him."**  
-<img src="https://preview.redd.it/km9kxdn2mfsf1.png?width=640&crop=smart&auto=webp&s=c2d3b29ebd03f7422410de185ce68ce492688f5c" alt="Random Meme" width="500"/>
+**Tastes like chicken**  
+<img src="https://preview.redd.it/bznld1cwacsf1.gif?width=320&crop=smart&format=png8&s=3741c23508ea1e5b8146f01f97e5893a3a1c7723" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
