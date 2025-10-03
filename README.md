@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Halloweextmas**  
-<img src="https://preview.redd.it/yikvs8g51lsf1.png?width=1080&crop=smart&auto=webp&s=04ac9b0acd3512d19408ff9d7a218932cf127154" alt="Random Meme" width="500"/>
+**Now that is very spooky**  
+<img src="https://preview.redd.it/5ve125acynsf1.gif?width=320&crop=smart&format=png8&s=499876ae4506258b8b1e5540b672df03df1601fb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
