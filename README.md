@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You can count on the rich tech oligarchs to share their wealth, just like the rich have always done.**  
-<img src="https://preview.redd.it/3gxrpzzp5osf1.png?width=1080&crop=smart&auto=webp&s=ce4eb2a276813b30f336d8149ec5c2caea975f88" alt="Random Meme" width="500"/>
+**"Bro, I didn't mean any of the things I've said. Please don't shoot him."**  
+<img src="https://preview.redd.it/km9kxdn2mfsf1.png?width=640&crop=smart&auto=webp&s=c2d3b29ebd03f7422410de185ce68ce492688f5c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
