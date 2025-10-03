@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ksplagkavqsf1.png?width=1080&crop=smart&auto=webp&s=dae3dc07a7874ed2b3ab16092ad931184f3390e7" alt="Random Meme" width="500"/>
+**Next generations are cooked.**  
+<img src="https://preview.redd.it/4hj0l27cqusf1.png?width=1080&crop=smart&auto=webp&s=7ab924ba66e802f6db70840ed6702b618da6a243" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
