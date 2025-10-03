@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What's with that?**  
-<img src="https://preview.redd.it/mgph5s6i1ssf1.png?width=960&crop=smart&auto=webp&s=7f795f07451cdbc52f5f4098550c02584989301a" alt="Random Meme" width="500"/>
+**Bro thought the pose was tuff**  
+<img src="https://preview.redd.it/t0cf5opc3jsf1.png?width=640&crop=smart&auto=webp&s=6a0b255a87cdeeb88111bed69e65a74223a84093" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
