@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Bro, I didn't mean any of the things I've said. Please don't shoot him."**  
-<img src="https://preview.redd.it/km9kxdn2mfsf1.png?width=640&crop=smart&auto=webp&s=c2d3b29ebd03f7422410de185ce68ce492688f5c" alt="Random Meme" width="500"/>
+**Physical Media &gt;&gt;&gt;**  
+<img src="https://preview.redd.it/hnl0thlgbtsf1.png?width=1080&crop=smart&auto=webp&s=5215399fc801a1119b646b8081d5a3acb8f840ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
