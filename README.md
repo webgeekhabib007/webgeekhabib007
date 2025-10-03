@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Next generations are cooked.**  
-<img src="https://preview.redd.it/4hj0l27cqusf1.png?width=1080&crop=smart&auto=webp&s=7ab924ba66e802f6db70840ed6702b618da6a243" alt="Random Meme" width="500"/>
+**You can count on the rich tech oligarchs to share their wealth, just like the rich have always done.**  
+<img src="https://preview.redd.it/3gxrpzzp5osf1.png?width=1080&crop=smart&auto=webp&s=ce4eb2a276813b30f336d8149ec5c2caea975f88" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
