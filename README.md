@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/91aq3cc0gqsf1.png?width=1080&crop=smart&auto=webp&s=48a07a23756c919574d4f8c8c4808c8cef860f71" alt="Random Meme" width="500"/>
+**Bro is cooked ⚡**  
+<img src="https://preview.redd.it/7214kdzxj1tf1.gif?width=320&crop=smart&format=png8&s=e13357ab2c47d6c20ece22f44f4b402dac572d73" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
