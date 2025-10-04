@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the dr is in**  
-<img src="https://preview.redd.it/rbyx5dk1wysf1.png?width=1080&crop=smart&auto=webp&s=5ed78c76d1e4e873a2528e897b7d9a0f4d4c154d" alt="Random Meme" width="500"/>
+**easy fix**  
+<img src="https://preview.redd.it/6df71v5plisf1.png?width=320&crop=smart&auto=webp&s=81d256bf0a131e820923deba5664d46fa66efe65" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
