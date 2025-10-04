@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If you don't laugh I'm getting me mallet**  
-<img src="https://preview.redd.it/571fanxretsf1.png?width=640&crop=smart&auto=webp&s=c3318fd71d0f94c249d9fdb2bc7532e1047e463b" alt="Random Meme" width="500"/>
+**Spooky Scary month is here, deploy Interncion Cube memes!**  
+<img src="https://preview.redd.it/e88uwjk7qrsf1.gif?width=640&crop=smart&format=png8&s=37cc387db7a9427ab6b874e2e6f5983200362cde" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
