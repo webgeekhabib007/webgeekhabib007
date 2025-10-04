@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**easy fix**  
-<img src="https://preview.redd.it/6df71v5plisf1.png?width=320&crop=smart&auto=webp&s=81d256bf0a131e820923deba5664d46fa66efe65" alt="Random Meme" width="500"/>
+**blud u fd up - check ur zoom name**  
+<img src="https://preview.redd.it/fba1oozniysf1.png?width=960&crop=smart&auto=webp&s=dfd1e99a466c0fc87582f29da2868e6c327d544a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
