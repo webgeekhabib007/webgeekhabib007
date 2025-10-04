@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Spooky Scary month is here, deploy Interncion Cube memes!**  
-<img src="https://preview.redd.it/e88uwjk7qrsf1.gif?width=640&crop=smart&format=png8&s=37cc387db7a9427ab6b874e2e6f5983200362cde" alt="Random Meme" width="500"/>
+**It’s like true love**  
+<img src="https://preview.redd.it/j4slzzfy8ysf1.gif?width=108&crop=smart&format=png8&s=935f1ffbb73f6547cda577be29fac6d53e0dbecb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
