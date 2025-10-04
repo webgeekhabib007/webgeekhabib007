@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**However blackout drunk I may be, I will always have my chicken numgies, whatever it might take**  
-<img src="https://preview.redd.it/ff3f364umvsf1.png?width=320&crop=smart&auto=webp&s=658c18b6876f114603befc57d57078d1f8d69a18" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://external-preview.redd.it/HlZJFiXOcwokMh4GEuweSsL_FO_0JSUxgkIM1UdrX2I.jpeg?width=1080&crop=smart&auto=webp&s=1aacd0a4a8bbe20cdc79bbfb1c0afcad6fa1b9db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
