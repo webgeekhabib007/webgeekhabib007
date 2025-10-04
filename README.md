@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It’s like true love**  
-<img src="https://preview.redd.it/j4slzzfy8ysf1.gif?width=108&crop=smart&format=png8&s=935f1ffbb73f6547cda577be29fac6d53e0dbecb" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/du4x2qr5j3tf1.png?width=1080&crop=smart&auto=webp&s=073b889f6a18188590d2e28b2616e83b52f6c9b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
