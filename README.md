@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My brain hurts**  
-<img src="https://preview.redd.it/mwbggctt4vsf1.png?width=320&crop=smart&auto=webp&s=5a9498c59239f32a258a4744d2ecd02c1e0e2b28" alt="Random Meme" width="500"/>
+**"That is so you man"**  
+<img src="https://preview.redd.it/kexz6h56jssf1.png?width=1080&crop=smart&auto=webp&s=d31008492985658996e2fbefc576857dce927319" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
