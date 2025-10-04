@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"That is so you man"**  
-<img src="https://preview.redd.it/kexz6h56jssf1.png?width=1080&crop=smart&auto=webp&s=d31008492985658996e2fbefc576857dce927319" alt="Random Meme" width="500"/>
+**the dr is in**  
+<img src="https://preview.redd.it/rbyx5dk1wysf1.png?width=1080&crop=smart&auto=webp&s=5ed78c76d1e4e873a2528e897b7d9a0f4d4c154d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
