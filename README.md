@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Guys CALM down**  
-<img src="https://preview.redd.it/dvsbxc9a8atf1.png?width=320&crop=smart&auto=webp&s=822be504de41ba7532fca42db34410fcab471040" alt="Random Meme" width="500"/>
+**im you from the fuuuuuuuuuuuuuuu-chor**  
+<img src="https://preview.redd.it/4h3gucnsu3tf1.png?width=1080&crop=smart&auto=webp&s=1690f639e4d57a133471ded2c96014e721bcaaa6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
