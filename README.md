@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh shucks that justifies everything. Sorry for getting mad at you**  
-<img src="https://preview.redd.it/t76c7kw2zosf1.gif?width=640&crop=smart&format=png8&s=293efdccaaba6b9372f5170430d55232bc0e9b7c" alt="Random Meme" width="500"/>
+**He can't blame me, it looks good**  
+<img src="https://preview.redd.it/hxkxqayna4tf1.png?width=320&crop=smart&auto=webp&s=e93d4e64ea362011a80ed76ef81d3c41af40c005" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
