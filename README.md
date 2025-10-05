@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The spy has already breached our defences**  
-<img src="https://preview.redd.it/a5378pewrqsf1.png?width=320&crop=smart&auto=webp&s=f70b48b44a5e55b2be0cecd212eb58a919b8834f" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/15ghlit6s2tf1.png?width=640&crop=smart&auto=webp&s=2c4c0fabef38ed357d3e3a46159604f9051bac94" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
