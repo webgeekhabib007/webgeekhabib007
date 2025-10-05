@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Life is good**  
-<img src="https://preview.redd.it/6vnxcubk2btf1.png?width=640&crop=smart&auto=webp&s=6aae892681ed24c76f5c049bc71d1b1a49fc1ebb" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/36zbdpv1w8tf1.png?width=640&crop=smart&auto=webp&s=bc919eae7dc54c09d34cd527d3a952b7426968d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
