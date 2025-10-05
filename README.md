@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I just like the 1950's**  
-<img src="https://preview.redd.it/wp7gy4ds44tf1.png?width=320&crop=smart&auto=webp&s=0a61fa52cef6d54ef4be9fc4626c0964014525b8" alt="Random Meme" width="500"/>
+**The spy has already breached our defences**  
+<img src="https://preview.redd.it/a5378pewrqsf1.png?width=320&crop=smart&auto=webp&s=f70b48b44a5e55b2be0cecd212eb58a919b8834f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
