@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"We will make electricity so cheap that only the rich will burn candles" - Thomas Edison**  
-<img src="https://preview.redd.it/044dzirgd1tf1.gif?width=320&crop=smart&format=png8&s=279c5dbe7328cca30d0c645c3d2de34555a9ba02" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/893bpncc55tf1.png?width=640&crop=smart&auto=webp&s=0bde8a001f0468978beedb1bd43865bf8de30a16" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
