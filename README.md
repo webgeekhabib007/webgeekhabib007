@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He can't blame me, it looks good**  
-<img src="https://preview.redd.it/hxkxqayna4tf1.png?width=320&crop=smart&auto=webp&s=e93d4e64ea362011a80ed76ef81d3c41af40c005" alt="Random Meme" width="500"/>
+**what the heck you guys**  
+<img src="https://preview.redd.it/8ddbz397m5tf1.gif?width=320&crop=smart&format=png8&s=f64469235ac792cfce79f8f4bea23b4373042a66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
