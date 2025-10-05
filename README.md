@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's valid I'd say...**  
-<img src="https://preview.redd.it/dg6yqllxb2tf1.png?width=320&crop=smart&auto=webp&s=c6ae1904199e50b1883e10195e27440e5e01fc96" alt="Random Meme" width="500"/>
+**I just like the 1950's**  
+<img src="https://preview.redd.it/wp7gy4ds44tf1.png?width=320&crop=smart&auto=webp&s=0a61fa52cef6d54ef4be9fc4626c0964014525b8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
