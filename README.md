@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thankfully, they often come together**  
-<img src="https://preview.redd.it/r0o2lqgr16tf1.png?width=640&crop=smart&auto=webp&s=8ad288113d28f012c7bd038452b1fcb0edb19c18" alt="Random Meme" width="500"/>
+**it do be like dat**  
+<img src="https://preview.redd.it/jr4tupg4gnsf1.png?width=320&crop=smart&auto=webp&s=e78fae13276efd2f710d75af7c29be2f56044159" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
