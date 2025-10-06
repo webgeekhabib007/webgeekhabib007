@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I guess words can hurt after all.**  
-<img src="https://preview.redd.it/s69h86hcszsf1.gif?width=320&crop=smart&format=png8&s=5a2fbea81873cb9dea0ada3957f182bae1648dcf" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/fbej7bl1v6tf1.png?width=1080&crop=smart&auto=webp&s=4f064420ff5f44021ebaf040cd010bd9c79e3534" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
