@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**North Koreans reacting to Bill Burr at the Pyongyang International Comedy Festival**  
-<img src="https://preview.redd.it/ewo0jlzjrhtf1.png?width=1080&crop=smart&auto=webp&s=beacc997501c6cd971f99d198c1bace0d01c737d" alt="Random Meme" width="500"/>
+**shouldnt be the start of the conversation atleast**  
+<img src="https://preview.redd.it/hgtrn7aqmitf1.png?width=320&crop=smart&auto=webp&s=cc18a40cd3c4c4bbde743d7fe57ebc294689f552" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
