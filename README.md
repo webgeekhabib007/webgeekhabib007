@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**learning patience in this manner is working**  
-<img src="https://preview.redd.it/d2zoxupgtgtf1.png?width=960&crop=smart&auto=webp&s=c60d624e9ab2e613bce329ce88ee488d399ab02a" alt="Random Meme" width="500"/>
+**Instant regret**  
+<img src="https://preview.redd.it/wz15uj2qowsf1.gif?width=320&crop=smart&format=png8&s=231ff756bb18c2d10d83f702aeaea01f24e11234" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
