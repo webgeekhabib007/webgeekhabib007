@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wait why am I getting arrested?**  
-<img src="https://preview.redd.it/niz106i63dtf1.gif?width=640&crop=smart&format=png8&s=b6c172b90d4a70c75eebea9da5f62210eb2548b7" alt="Random Meme" width="500"/>
+**North Koreans reacting to Bill Burr at the Pyongyang International Comedy Festival**  
+<img src="https://preview.redd.it/ewo0jlzjrhtf1.png?width=1080&crop=smart&auto=webp&s=beacc997501c6cd971f99d198c1bace0d01c737d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
