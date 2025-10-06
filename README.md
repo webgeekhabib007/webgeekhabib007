@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Explain this, science lovers**  
-<img src="https://preview.redd.it/sn7e418au4tf1.png?width=1080&crop=smart&auto=webp&s=d57e07967117c5abad75b1edf3c77b3bd28e7409" alt="Random Meme" width="500"/>
+**We all knew what was coming**  
+<img src="https://preview.redd.it/42joi6ulbetf1.gif?width=216&crop=smart&format=png8&s=aaf09031020b66829bb361dca7db4724ade95311" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
