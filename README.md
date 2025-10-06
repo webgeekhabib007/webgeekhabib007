@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Instant regret**  
-<img src="https://preview.redd.it/wz15uj2qowsf1.gif?width=320&crop=smart&format=png8&s=231ff756bb18c2d10d83f702aeaea01f24e11234" alt="Random Meme" width="500"/>
+**Wait why am I getting arrested?**  
+<img src="https://preview.redd.it/niz106i63dtf1.gif?width=640&crop=smart&format=png8&s=b6c172b90d4a70c75eebea9da5f62210eb2548b7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
