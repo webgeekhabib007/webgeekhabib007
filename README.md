@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When your dreams are strange AF again**  
-<img src="https://preview.redd.it/mvj3e7z7z9tf1.png?width=1080&crop=smart&auto=webp&s=5f68e03d6ef0294677e7bb6238769d01ecf52430" alt="Random Meme" width="500"/>
+**oh yeah, thats gonna work**  
+<img src="https://preview.redd.it/sfftnpup7psf1.png?width=640&crop=smart&auto=webp&s=4d2a61b19d415a8421c5d07bd8ab4905dfe161ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
