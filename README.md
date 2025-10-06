@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chihuahua Owners (reupload to follow subreddit rules)**  
-<img src="https://preview.redd.it/jwkq17g4lbtf1.png?width=640&crop=smart&auto=webp&s=ba4bc4bc64a308f1f81dd356077ccaccda564037" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/hnmhavff8btf1.png?width=1080&crop=smart&auto=webp&s=4d0f09aab3d6e8181457dcf7938f135fd35f5fb9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
