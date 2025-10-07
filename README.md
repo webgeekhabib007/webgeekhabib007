@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There's a faker among us**  
-<img src="https://preview.redd.it/tdl3kb5jbbtf1.png?width=1080&crop=smart&auto=webp&s=7f61b7462c8794fad4ec319fa62d75ec0dce8d39" alt="Random Meme" width="500"/>
+**A British time paradox.**  
+<img src="https://preview.redd.it/3w31lj7umltf1.png?width=640&crop=smart&auto=webp&s=c5b92a61424aaccc8a0e26f2c07da8bf252090bf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
