@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Looksmaxing final boss**  
-<img src="https://preview.redd.it/exz230frugtf1.png?width=1080&crop=smart&auto=webp&s=125a478df1acf6960819e4cb8aea92fe714d51f0" alt="Random Meme" width="500"/>
+**There's a faker among us**  
+<img src="https://preview.redd.it/tdl3kb5jbbtf1.png?width=1080&crop=smart&auto=webp&s=7f61b7462c8794fad4ec319fa62d75ec0dce8d39" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
