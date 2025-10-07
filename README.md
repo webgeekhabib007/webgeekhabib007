@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How the news has been feeling lately...**  
-<img src="https://preview.redd.it/6oyte2q5ogtf1.gif?width=320&crop=smart&format=png8&s=aac766dcb498fd559a58cf3bc9b31c9b9fee7bb8" alt="Random Meme" width="500"/>
+**I'm flabbergasted**  
+<img src="https://preview.redd.it/f95tc69ujitf1.gif?width=640&crop=smart&format=png8&s=e949952bb9ac65450990fb83b925d30afbbf0b0a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
