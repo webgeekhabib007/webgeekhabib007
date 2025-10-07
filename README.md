@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/krvyg5fzqftf1.png?width=1080&crop=smart&auto=webp&s=843e4f1a46ca659d278ff892c44af15f40f56202" alt="Random Meme" width="500"/>
+**Me rating my own cooking after microwaving leftovers**  
+<img src="https://preview.redd.it/80ce4xe1yktf1.png?width=1080&crop=smart&auto=webp&s=c80d8c3b35673325ef05197f8fd454df0e45e303" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
