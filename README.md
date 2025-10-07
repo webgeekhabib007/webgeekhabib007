@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me rating my own cooking after microwaving leftovers**  
-<img src="https://preview.redd.it/80ce4xe1yktf1.png?width=1080&crop=smart&auto=webp&s=c80d8c3b35673325ef05197f8fd454df0e45e303" alt="Random Meme" width="500"/>
+**Raiding your parents old clothes.**  
+<img src="https://preview.redd.it/0x72mj9buhtf1.png?width=1080&crop=smart&auto=webp&s=188a2163ba8cd30ec756fc2f51ac7d3095648530" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
