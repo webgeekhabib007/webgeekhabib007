@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I randomly thought this while reading "All Quite on the Western Front".**  
-<img src="https://preview.redd.it/ncydj1ve4mtf1.png?width=320&crop=smart&auto=webp&s=e14153be9fc76371ee7fecb0ef74582cc6f69f72" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/150v9jnjvitf1.png?width=1080&crop=smart&auto=webp&s=e643ddea96091ff91b49d77bd717afa0501e16fa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
