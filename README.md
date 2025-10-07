@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**no, i don't need "programforthatspecificproblem.exe" to start when I turn on the pc...**  
-<img src="https://preview.redd.it/2k23c5w0wysf1.png?width=960&crop=smart&auto=webp&s=a175308704183db43679f63c0c398e82b100574a" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/d72lx0kfiatf1.png?width=1080&crop=smart&auto=webp&s=674a6fa7b2eb511a83bebdc6dab72ce019f4ff46" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
