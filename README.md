@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Raiding your parents old clothes.**  
-<img src="https://preview.redd.it/0x72mj9buhtf1.png?width=1080&crop=smart&auto=webp&s=188a2163ba8cd30ec756fc2f51ac7d3095648530" alt="Random Meme" width="500"/>
+**no, i don't need "programforthatspecificproblem.exe" to start when I turn on the pc...**  
+<img src="https://preview.redd.it/2k23c5w0wysf1.png?width=960&crop=smart&auto=webp&s=a175308704183db43679f63c0c398e82b100574a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
