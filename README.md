@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's like a curse at this point**  
-<img src="https://preview.redd.it/lzg0440v2ltf1.png?width=640&crop=smart&auto=webp&s=fe81e6f64efe6e5d82568d0d95e7da7b5d312f19" alt="Random Meme" width="500"/>
+**ai meme will take over**  
+<img src="https://preview.redd.it/xlkgbly82xtf1.png?width=320&crop=smart&auto=webp&s=731aacfdaf8e8fd2a9f8a31104dd76fef044497e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
