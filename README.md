@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ai meme will take over**  
-<img src="https://preview.redd.it/xlkgbly82xtf1.png?width=320&crop=smart&auto=webp&s=731aacfdaf8e8fd2a9f8a31104dd76fef044497e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/1qbzajrvjmtf1.png?width=960&crop=smart&auto=webp&s=7305163ed59d81a6612c4a0a01a6bdcf9f370afb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
