@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/n4dfeeva1ftf1.gif?width=320&crop=smart&format=png8&s=a0b577c25b3b3cf65528ae1ed4f4e5b73a624ad9" alt="Random Meme" width="500"/>
+**All 3 of them get into drama every so often.**  
+<img src="https://preview.redd.it/2stvwn5l7rtf1.png?width=1080&crop=smart&auto=webp&s=662ed4f18a4884ca8ed98e1c635de2c5452de7f8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
