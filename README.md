@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You can't ragebait me anymore, i've reached peak nonchalance.**  
-<img src="https://preview.redd.it/hcjnb9tvabtf1.png?width=1080&crop=smart&auto=webp&s=6b4b9b4d26cb641dc5f7fde954c4c5698ac50993" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/t94wygm8astf1.png?width=320&crop=smart&auto=webp&s=5d714f4d101dcc57f07cceae9e207e10b10b9be7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
