@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ai meme will take over**  
-<img src="https://preview.redd.it/xlkgbly82xtf1.png?width=320&crop=smart&auto=webp&s=731aacfdaf8e8fd2a9f8a31104dd76fef044497e" alt="Random Meme" width="500"/>
+**I see you, ZAP!**  
+<img src="https://preview.redd.it/bppallcfiztf1.png?width=1080&crop=smart&auto=webp&s=51e406c1469355de955ed4172f995b59f9bf42e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
