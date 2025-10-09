@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they're gonna need more forcepower**  
-<img src="https://preview.redd.it/l6g3ebwequtf1.gif?width=1080&crop=smart&format=png8&s=72b0a639551edc5b2bb6e31da8e612cb38278b08" alt="Random Meme" width="500"/>
+**I stay with Tom**  
+<img src="https://preview.redd.it/md5izme4fbtf1.png?width=1080&crop=smart&auto=webp&s=6013269d9ed38c2f32735ca028c913064608a23d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
