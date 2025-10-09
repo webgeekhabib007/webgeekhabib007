@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I stay with Tom**  
-<img src="https://preview.redd.it/md5izme4fbtf1.png?width=1080&crop=smart&auto=webp&s=6013269d9ed38c2f32735ca028c913064608a23d" alt="Random Meme" width="500"/>
+**Oh brother**  
+<img src="https://preview.redd.it/xhkv909opitf1.png?width=1080&crop=smart&auto=webp&s=cd6d4cf3d62245c3b213ee2b211fede80791a5e4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
