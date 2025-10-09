@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**So tired...**  
-<img src="https://preview.redd.it/6fenrhkv34uf1.png?width=960&crop=smart&auto=webp&s=bd73e92f2827c70866391c75a2e3d61ebfb46a51" alt="Random Meme" width="500"/>
+**Disney fixing childhood trauma**  
+<img src="https://preview.redd.it/qnmpz8h0hytf1.png?width=320&crop=smart&auto=webp&s=3d1d27f84a8d9df0425251a94cdfe208d7397804" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
