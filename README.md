@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Disney fixing childhood trauma**  
-<img src="https://preview.redd.it/qnmpz8h0hytf1.png?width=320&crop=smart&auto=webp&s=3d1d27f84a8d9df0425251a94cdfe208d7397804" alt="Random Meme" width="500"/>
+**I will make one million pieces one day!!!argh!**  
+<img src="https://preview.redd.it/ri4fmjr0v3uf1.png?width=640&crop=smart&auto=webp&s=b04ac5b7077006b166d878167f5f313da5ed9763" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
