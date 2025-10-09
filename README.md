@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I didn't ask for much**  
-<img src="https://preview.redd.it/1h3l6eempjtf1.png?width=640&crop=smart&auto=webp&s=724e41e294e25b6a77429396cf48f0d52c05bec5" alt="Random Meme" width="500"/>
+**Raiding your parents old clothes.**  
+<img src="https://preview.redd.it/0x72mj9buhtf1.png?width=1080&crop=smart&auto=webp&s=188a2163ba8cd30ec756fc2f51ac7d3095648530" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
