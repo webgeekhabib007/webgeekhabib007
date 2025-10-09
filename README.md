@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**yummers**  
-<img src="https://preview.redd.it/t3tzxa32wntf1.gif?width=640&crop=smart&format=png8&s=4f26063bfcdd81893985ad621598aa35fe5bdb26" alt="Random Meme" width="500"/>
+**ai meme will take over**  
+<img src="https://preview.redd.it/xlkgbly82xtf1.png?width=320&crop=smart&auto=webp&s=731aacfdaf8e8fd2a9f8a31104dd76fef044497e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
