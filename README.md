@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn hypocrites**  
-<img src="https://preview.redd.it/h8utyyvlohtf1.png?width=1080&crop=smart&auto=webp&s=ed8ec9a65dbf5689dd7b7ab0959fb683a27aa38f" alt="Random Meme" width="500"/>
+**I think they're hanging with Bigfoot and Nessie**  
+<img src="https://preview.redd.it/nufbukbi9ytf1.png?width=320&crop=smart&auto=webp&s=f7ddc812955e1cae3933273e8fe86381846d9549" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
