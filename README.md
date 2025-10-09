@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**To help Ukarine. Next one is Italy.**  
-<img src="https://preview.redd.it/xd1yx4qx53uf1.png?width=640&crop=smart&auto=webp&s=731afbc24bba4b765c420851861e039a48dfb7be" alt="Random Meme" width="500"/>
+**A British time paradox.**  
+<img src="https://preview.redd.it/3w31lj7umltf1.png?width=640&crop=smart&auto=webp&s=c5b92a61424aaccc8a0e26f2c07da8bf252090bf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
