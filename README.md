@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they're gonna need more forcepower**  
-<img src="https://preview.redd.it/l6g3ebwequtf1.gif?width=1080&crop=smart&format=png8&s=72b0a639551edc5b2bb6e31da8e612cb38278b08" alt="Random Meme" width="500"/>
+**This just happened to me.**  
+<img src="https://preview.redd.it/yhdunb31sauf1.png?width=640&crop=smart&auto=webp&s=d612039b350f2136f48cb5356b766140d97b9985" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
