@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Only an iphone can fix me**  
-<img src="https://preview.redd.it/ajpt2i15u1uf1.png?width=1080&crop=smart&auto=webp&s=fad224f9927ff314ee7cfe39d381244d98b5dcd7" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/4v19v1gzu3uf1.png?width=1080&crop=smart&auto=webp&s=d89c06e3ec854ed11ffc34adec5dc5edc949e949" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
