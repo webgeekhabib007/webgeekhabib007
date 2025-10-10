@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We're fucked**  
-<img src="https://preview.redd.it/uxyslbjaa6uf1.gif?width=640&crop=smart&format=png8&s=3f67c8f324b324305a8733e6720bd96b4c59faf3" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/3q3kmiyygcuf1.png?width=1080&crop=smart&auto=webp&s=c90e7ca308167400d8b3a784191c4e437f4757b4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
