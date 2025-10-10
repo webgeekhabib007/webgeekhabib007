@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Still not as bad as mosquitoes. At least flies are ONLY annoying**  
-<img src="https://preview.redd.it/en61t6ntq5uf1.png?width=320&crop=smart&auto=webp&s=da0393a1e424b609a7e19f9dbc09f93dc81ae3c2" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/9d0ckib06vtf1.png?width=640&crop=smart&auto=webp&s=505abb39983c2a7a6faa34cd0a5134260cc9c605" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
