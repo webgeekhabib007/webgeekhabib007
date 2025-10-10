@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How Reddit actually works**  
-<img src="https://preview.redd.it/nv1aybk8l8uf1.png?width=640&crop=smart&auto=webp&s=7c1c8cead1bd58ded1e6aeae9a5245f4d6880d28" alt="Random Meme" width="500"/>
+**There are 2 paths a Youtuber can possibly go down**  
+<img src="https://preview.redd.it/wvebc8lps6uf1.png?width=320&crop=smart&auto=webp&s=8bc70883ee38bf17b5aaa5d74fe08ebbc2db23db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
