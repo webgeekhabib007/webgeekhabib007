@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the hempire strikes back**  
-<img src="https://preview.redd.it/bd4z4i96hwtf1.png?width=1080&crop=smart&auto=webp&s=1cf61881f4512d1d5c4bec3f31bd7ebdc26a64ab" alt="Random Meme" width="500"/>
+**Still not as bad as mosquitoes. At least flies are ONLY annoying**  
+<img src="https://preview.redd.it/en61t6ntq5uf1.png?width=320&crop=smart&auto=webp&s=da0393a1e424b609a7e19f9dbc09f93dc81ae3c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
