@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It’s about damn time.**  
-<img src="https://preview.redd.it/7jo84t16i5uf1.gif?width=640&crop=smart&format=png8&s=81b793b7ad7874321b3ab1a68c6daa919b5db8bd" alt="Random Meme" width="500"/>
+**the hempire strikes back**  
+<img src="https://preview.redd.it/bd4z4i96hwtf1.png?width=1080&crop=smart&auto=webp&s=1cf61881f4512d1d5c4bec3f31bd7ebdc26a64ab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
