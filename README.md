@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**it's just a bunch of announcements**  
-<img src="https://preview.redd.it/2hlrtwssb9uf1.png?width=960&crop=smart&auto=webp&s=f5ad80c62b4e3e75ff5b5420ed7b66527134bd9c" alt="Random Meme" width="500"/>
+**I just negotiate the price more**  
+<img src="https://preview.redd.it/dspe9izawguf1.png?width=640&crop=smart&auto=webp&s=5ed7213a8cb1600b1cd138f9d410288ec4c9387a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
