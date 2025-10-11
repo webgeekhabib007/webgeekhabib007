@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Peepaw**  
-<img src="https://preview.redd.it/9jew1mii8duf1.gif?width=640&crop=smart&format=png8&s=1ae76ab4b3db5798633778527b722f8494e8e2ef" alt="Random Meme" width="500"/>
+**I use arch btw**  
+<img src="https://preview.redd.it/90nffwtki4uf1.png?width=1080&crop=smart&auto=webp&s=eab81c6e46138dc0a620d26270b8e8a326584369" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
