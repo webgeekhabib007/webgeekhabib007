@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Frick those guys**  
-<img src="https://preview.redd.it/igy8wepcxbuf1.png?width=1080&crop=smart&auto=webp&s=5d081f7d0036f3ddef6a328ad939152c6fa9229a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/n3l9eeprj8uf1.png?width=320&crop=smart&auto=webp&s=0713b0c6cf310c91d61a46509e2976dd94a10d0e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
