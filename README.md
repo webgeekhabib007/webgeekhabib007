@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Orangutan Asmr**  
-<img src="https://preview.redd.it/y0xi6dudg6uf1.png?width=320&crop=smart&auto=webp&s=5a0dc46ff12daf491127070ff9904a39a490f908" alt="Random Meme" width="500"/>
+**ah shucks**  
+<img src="https://preview.redd.it/woo0y5i6tauf1.gif?width=640&crop=smart&format=png8&s=6e6331130cb772eaf639ab817647823099069a1a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
