@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I just negotiate the price more**  
-<img src="https://preview.redd.it/dspe9izawguf1.png?width=640&crop=smart&auto=webp&s=5ed7213a8cb1600b1cd138f9d410288ec4c9387a" alt="Random Meme" width="500"/>
+**Loss porn**  
+<img src="https://preview.redd.it/eaotbpmbzauf1.gif?width=640&crop=smart&format=png8&s=063a3de3f2d7f70b76ac9f558b82ce2634e94271" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
