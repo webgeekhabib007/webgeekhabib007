@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ah shucks**  
-<img src="https://preview.redd.it/woo0y5i6tauf1.gif?width=640&crop=smart&format=png8&s=6e6331130cb772eaf639ab817647823099069a1a" alt="Random Meme" width="500"/>
+**The greatest trick the devil ever pulled was convincing the world he didn't exist**  
+<img src="https://preview.redd.it/rvmilighp7uf1.gif?width=640&crop=smart&format=png8&s=74bad126ee2457289b389a32f29d3200297d5aa6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
