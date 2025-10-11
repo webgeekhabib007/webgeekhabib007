@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I use arch btw**  
-<img src="https://preview.redd.it/90nffwtki4uf1.png?width=1080&crop=smart&auto=webp&s=eab81c6e46138dc0a620d26270b8e8a326584369" alt="Random Meme" width="500"/>
+**me😢irl**  
+<img src="https://preview.redd.it/rc6oe8s909uf1.png?width=1080&crop=smart&auto=webp&s=5727a8b2569ca75504d17c2a80ead734fe6eb217" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
