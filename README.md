@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When your drink is warm enough to be comforting but not so hot it burns**  
-<img src="https://preview.redd.it/3c5vz50l5iuf1.png?width=640&crop=smart&auto=webp&s=5370e0d0112e66868f0847f32fec6d717bb27b0c" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/66yg02pexhuf1.png?width=960&crop=smart&auto=webp&s=f1307be2ddc2cccd28c28eadbae70c52df133ea8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
