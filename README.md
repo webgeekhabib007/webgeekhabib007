@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/66yg02pexhuf1.png?width=960&crop=smart&auto=webp&s=f1307be2ddc2cccd28c28eadbae70c52df133ea8" alt="Random Meme" width="500"/>
+**To help Ukarine. Next one is Italy.**  
+<img src="https://preview.redd.it/xd1yx4qx53uf1.png?width=640&crop=smart&auto=webp&s=731afbc24bba4b765c420851861e039a48dfb7be" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
