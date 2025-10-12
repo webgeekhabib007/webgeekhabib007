@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bro's about to own the whole basement**  
-<img src="https://preview.redd.it/4ptmf9hzkouf1.png?width=1080&crop=smart&auto=webp&s=aebccf0d0a4c5455453f5d7eba542eb132ae1c77" alt="Random Meme" width="500"/>
+**Yeahh keep walking**  
+<img src="https://preview.redd.it/povfa1mwpmuf1.png?width=1080&crop=smart&auto=webp&s=8ef7a0639a8c44ae38040a481e337794f1673933" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
