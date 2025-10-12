@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yeahh keep walking**  
-<img src="https://preview.redd.it/povfa1mwpmuf1.png?width=1080&crop=smart&auto=webp&s=8ef7a0639a8c44ae38040a481e337794f1673933" alt="Random Meme" width="500"/>
+**After all these years**  
+<img src="https://preview.redd.it/d17xr1pm5kuf1.png?width=1080&crop=smart&auto=webp&s=cf2d763297f5f99e7c1c5834973108d2e17bd73b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
