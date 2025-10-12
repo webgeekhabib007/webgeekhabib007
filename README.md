@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Loss porn**  
-<img src="https://preview.redd.it/eaotbpmbzauf1.gif?width=640&crop=smart&format=png8&s=063a3de3f2d7f70b76ac9f558b82ce2634e94271" alt="Random Meme" width="500"/>
+**Don't be racist guys**  
+<img src="https://preview.redd.it/jm4lcrwk7fuf1.png?width=640&crop=smart&auto=webp&s=d64d4304108d41cc652cbb0677081fe91c61e0e9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
