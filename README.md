@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't be racist guys**  
-<img src="https://preview.redd.it/jm4lcrwk7fuf1.png?width=640&crop=smart&auto=webp&s=d64d4304108d41cc652cbb0677081fe91c61e0e9" alt="Random Meme" width="500"/>
+**Morality's a hoot, huh?**  
+<img src="https://preview.redd.it/hwvm3w7iycuf1.png?width=640&crop=smart&auto=webp&s=699391012b380beacfa8ddc412ec2bd3d08f8b26" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
