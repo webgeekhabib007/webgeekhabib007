@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Great I can’t do my process of elimination….guess I got to do another process of elimination with everyone in this school**  
-<img src="https://preview.redd.it/ef67e9frhnuf1.gif?width=640&crop=smart&format=png8&s=52eb61193545624dc877f4a7f599d5b8dcaddadf" alt="Random Meme" width="500"/>
+**Bro's about to own the whole basement**  
+<img src="https://preview.redd.it/4ptmf9hzkouf1.png?width=1080&crop=smart&auto=webp&s=aebccf0d0a4c5455453f5d7eba542eb132ae1c77" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
