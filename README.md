@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Then throws the "you don't love me anymore" card**  
-<img src="https://preview.redd.it/nqx0t2ud5huf1.png?width=1080&crop=smart&auto=webp&s=bfb071af8f313f3f3d86bdaedbf10014eed78656" alt="Random Meme" width="500"/>
+**Great I can’t do my process of elimination….guess I got to do another process of elimination with everyone in this school**  
+<img src="https://preview.redd.it/ef67e9frhnuf1.gif?width=640&crop=smart&format=png8&s=52eb61193545624dc877f4a7f599d5b8dcaddadf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
