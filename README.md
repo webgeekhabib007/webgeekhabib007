@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Loss porn**  
-<img src="https://preview.redd.it/eaotbpmbzauf1.gif?width=640&crop=smart&format=png8&s=063a3de3f2d7f70b76ac9f558b82ce2634e94271" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/riuczwu8bjuf1.png?width=1080&crop=smart&auto=webp&s=1e5f939f36729cc965f3cfc78b80223e45ed59d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
