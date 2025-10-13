@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Morality's a hoot, huh?**  
-<img src="https://preview.redd.it/hwvm3w7iycuf1.png?width=640&crop=smart&auto=webp&s=699391012b380beacfa8ddc412ec2bd3d08f8b26" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/aq4besaewpuf1.png?width=640&crop=smart&auto=webp&s=e42e9141b517d66c2e43e594699c88f73ef89252" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
