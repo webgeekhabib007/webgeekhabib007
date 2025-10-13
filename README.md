@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/0ji54abjspuf1.png?width=960&crop=smart&auto=webp&s=7d7c92211ed34a3e63ab82fc8560339cfcf64826" alt="Random Meme" width="500"/>
+**Powerscalers be like:**  
+<img src="https://preview.redd.it/rnfwwp78rruf1.png?width=320&crop=smart&auto=webp&s=cde449a07356d5c9d9915268a08818e64c67c362" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
