@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**After all these years**  
-<img src="https://preview.redd.it/d17xr1pm5kuf1.png?width=1080&crop=smart&auto=webp&s=cf2d763297f5f99e7c1c5834973108d2e17bd73b" alt="Random Meme" width="500"/>
+**Don't be racist guys**  
+<img src="https://preview.redd.it/jm4lcrwk7fuf1.png?width=640&crop=smart&auto=webp&s=d64d4304108d41cc652cbb0677081fe91c61e0e9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
