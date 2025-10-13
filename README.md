@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Powerscalers be like:**  
-<img src="https://preview.redd.it/rnfwwp78rruf1.png?width=320&crop=smart&auto=webp&s=cde449a07356d5c9d9915268a08818e64c67c362" alt="Random Meme" width="500"/>
+**Morality's a hoot, huh?**  
+<img src="https://preview.redd.it/hwvm3w7iycuf1.png?width=640&crop=smart&auto=webp&s=699391012b380beacfa8ddc412ec2bd3d08f8b26" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
