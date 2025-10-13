@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't be racist guys**  
-<img src="https://preview.redd.it/jm4lcrwk7fuf1.png?width=640&crop=smart&auto=webp&s=d64d4304108d41cc652cbb0677081fe91c61e0e9" alt="Random Meme" width="500"/>
+**This is the opportunity to demand free multiplayer on consoles people**  
+<img src="https://preview.redd.it/uehrg7nioquf1.png?width=320&crop=smart&auto=webp&s=72a47809a8a245968faa285c7352b8a1f206f88f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
