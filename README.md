@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I messed up the first time!**  
-<img src="https://preview.redd.it/szbcgewxxiuf1.png?width=1080&crop=smart&auto=webp&s=fcdf1d564035fc6a75aeaaa9c36811ea292d2316" alt="Random Meme" width="500"/>
+**the worst have to come yet...**  
+<img src="https://preview.redd.it/90mj4ixyjouf1.png?width=960&crop=smart&auto=webp&s=02e6be2856f172e85c14c239f047e09c18ac6c39" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
