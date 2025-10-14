@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/s76fzbn5zzuf1.png?width=1080&crop=smart&auto=webp&s=d984e27e6acdd8a579974416294ff6ef2de02fef" alt="Random Meme" width="500"/>
+**Are you afraid of spook?**  
+<img src="https://preview.redd.it/89zg45lr10vf1.png?width=320&crop=smart&auto=webp&s=fdbc29996becefc184b7ec3091ca47521af3f92d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
