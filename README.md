@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/5rqtjvvecquf1.png?width=320&crop=smart&auto=webp&s=944f6bf6805437a6c0de49e1d77ddcb9f3637767" alt="Random Meme" width="500"/>
+**"I Don't Care About Your Conservation Shit; Get Me Out of this Fucking Hole!" ~Random Zoo Animal**  
+<img src="https://preview.redd.it/h3urx6v71quf1.png?width=640&crop=smart&auto=webp&s=0a06d7890c1c7ff5337c33d5665553d7c34e7578" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
