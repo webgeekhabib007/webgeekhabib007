@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**[removed] aww man I worked hard on it**  
-<img src="https://preview.redd.it/2ydoihbijguf1.gif?width=640&crop=smart&format=png8&s=de158f7d0bb933d5cbaa7b751612da94c808ae80" alt="Random Meme" width="500"/>
+**British Monarchs Be Like**  
+<img src="https://preview.redd.it/rhnllgidt1vf1.png?width=640&crop=smart&auto=webp&s=afaba845bb386427a677d37c9a3bd4da831ec390" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
