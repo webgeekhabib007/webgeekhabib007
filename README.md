@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Any day now**  
-<img src="https://preview.redd.it/e64f7lww9ruf1.gif?width=320&crop=smart&format=png8&s=e0ff81660d12b10f8b1f6ff002c040a4eb751703" alt="Random Meme" width="500"/>
+**Like how could it be intresting**  
+<img src="https://preview.redd.it/o89jgsjqfyuf1.png?width=960&crop=smart&auto=webp&s=0c84fa0996152d6f81ccfe6b2b221cbd8cc8ef35" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
