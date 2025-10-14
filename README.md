@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That's for eras like 1700's &amp; 1800's!**  
-<img src="https://preview.redd.it/6t9pso9y43vf1.gif?width=320&crop=smart&format=png8&s=c7fff12acd5e1b7539e284cecc2a76f02c309c20" alt="Random Meme" width="500"/>
+**I See People Like This All The Time**  
+<img src="https://preview.redd.it/v7l128pj10vf1.png?width=320&crop=smart&auto=webp&s=57ac40cbe9c52fa7d7dcf1d73e88b1e47b37b1fd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
