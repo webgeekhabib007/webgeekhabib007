@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Are you afraid of spook?**  
-<img src="https://preview.redd.it/89zg45lr10vf1.png?width=320&crop=smart&auto=webp&s=fdbc29996becefc184b7ec3091ca47521af3f92d" alt="Random Meme" width="500"/>
+**a bit of a double standard, don't you think?**  
+<img src="https://preview.redd.it/fs7u3usklruf1.png?width=640&crop=smart&auto=webp&s=e3f2d8c04aeba74b544ae30aa25d2dedd671653e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
