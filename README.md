@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Family dinners must've been so awkward**  
-<img src="https://preview.redd.it/bfc3v1rdbduf1.gif?width=640&crop=smart&format=png8&s=2a038a13ef72c634eca68960861892e69569d611" alt="Random Meme" width="500"/>
+**[removed] aww man I worked hard on it**  
+<img src="https://preview.redd.it/2ydoihbijguf1.gif?width=640&crop=smart&format=png8&s=de158f7d0bb933d5cbaa7b751612da94c808ae80" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
