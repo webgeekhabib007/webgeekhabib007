@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pretending to be a well-behaved student**  
-<img src="https://preview.redd.it/stac7t6ds3vf1.png?width=1080&crop=smart&auto=webp&s=309b8097534d80c3a5d0934600ab537a810b45ad" alt="Random Meme" width="500"/>
+**That's for eras like 1700's &amp; 1800's!**  
+<img src="https://preview.redd.it/6t9pso9y43vf1.gif?width=320&crop=smart&format=png8&s=c7fff12acd5e1b7539e284cecc2a76f02c309c20" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
