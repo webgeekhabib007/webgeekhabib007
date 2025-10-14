@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the worst have to come yet...**  
-<img src="https://preview.redd.it/90mj4ixyjouf1.png?width=960&crop=smart&auto=webp&s=02e6be2856f172e85c14c239f047e09c18ac6c39" alt="Random Meme" width="500"/>
+**Family dinners must've been so awkward**  
+<img src="https://preview.redd.it/bfc3v1rdbduf1.gif?width=640&crop=smart&format=png8&s=2a038a13ef72c634eca68960861892e69569d611" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
