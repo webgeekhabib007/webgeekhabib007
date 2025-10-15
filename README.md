@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why do we have to live in interesting times.**  
-<img src="https://preview.redd.it/oc0640ntdavf1.png?width=1080&crop=smart&auto=webp&s=c56c512d5dbbfb4c5d676e5e5f88e7d118dfeda9" alt="Random Meme" width="500"/>
+**New recruiting posters just dropped**  
+<img src="https://preview.redd.it/eolglsn4f2vf1.png?width=960&crop=smart&auto=webp&s=decb1d06f0e0bd6a3a559a809efd2970511a86fa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
