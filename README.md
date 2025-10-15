@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**New recruiting posters just dropped**  
-<img src="https://preview.redd.it/eolglsn4f2vf1.png?width=960&crop=smart&auto=webp&s=decb1d06f0e0bd6a3a559a809efd2970511a86fa" alt="Random Meme" width="500"/>
+**That Netflix special is wild**  
+<img src="https://preview.redd.it/5svct7wr86vf1.png?width=640&crop=smart&auto=webp&s=bbfeb1946788c427da541edc0d0c37b6fe0df7c1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
