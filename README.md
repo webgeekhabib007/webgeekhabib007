@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**An underrated yet effective secret**  
-<img src="https://preview.redd.it/o22ylucu43vf1.png?width=1080&crop=smart&auto=webp&s=8555a853f2def7d0f5d3e2a61a14ce453a1376cf" alt="Random Meme" width="500"/>
+**Well I see that you have a one week gap in your resume…**  
+<img src="https://preview.redd.it/0zgh2b0ra2vf1.gif?width=640&crop=smart&format=png8&s=3dd3f6c521f5179671a1ecb510726596757ba30c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
