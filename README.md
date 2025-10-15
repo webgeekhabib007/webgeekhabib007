@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Shrinkage Season**  
-<img src="https://preview.redd.it/nt8ac2b9keuf1.gif?width=640&crop=smart&format=png8&s=33155c17a15f70911ea0dd5461a430f10d7bf5ec" alt="Random Meme" width="500"/>
+**Bri'ish "people"**  
+<img src="https://preview.redd.it/ptilqcrtjxuf1.png?width=1080&crop=smart&auto=webp&s=a481f1e6d4c9173447f1e14fa0810357ad1820e5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
