@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Well I see that you have a one week gap in your resume…**  
-<img src="https://preview.redd.it/0zgh2b0ra2vf1.gif?width=640&crop=smart&format=png8&s=3dd3f6c521f5179671a1ecb510726596757ba30c" alt="Random Meme" width="500"/>
+**Luke isn't coming to save us**  
+<img src="https://preview.redd.it/yyh2evdp1juf1.gif?width=320&crop=smart&format=png8&s=44f5f01d15a778a2e38eccaf3f9dad757e0a1f53" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
