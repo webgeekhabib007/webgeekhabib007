@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Luke isn't coming to save us**  
-<img src="https://preview.redd.it/yyh2evdp1juf1.gif?width=320&crop=smart&format=png8&s=44f5f01d15a778a2e38eccaf3f9dad757e0a1f53" alt="Random Meme" width="500"/>
+**Shrinkage Season**  
+<img src="https://preview.redd.it/nt8ac2b9keuf1.gif?width=640&crop=smart&format=png8&s=33155c17a15f70911ea0dd5461a430f10d7bf5ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
