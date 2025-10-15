@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/s76fzbn5zzuf1.png?width=1080&crop=smart&auto=webp&s=d984e27e6acdd8a579974416294ff6ef2de02fef" alt="Random Meme" width="500"/>
+**When your dad opens the blinds after you woke up**  
+<img src="https://external-preview.redd.it/PB1ps4-J6PbGvAzAYee8xn8Gee1uDRstjZaND2mQ47k.gif?width=320&crop=smart&format=png8&s=df8d6bf02590d3a015d688737f4602611c08a60b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
