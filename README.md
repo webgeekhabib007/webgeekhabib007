@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When your dad opens the blinds after you woke up**  
-<img src="https://external-preview.redd.it/PB1ps4-J6PbGvAzAYee8xn8Gee1uDRstjZaND2mQ47k.gif?width=320&crop=smart&format=png8&s=df8d6bf02590d3a015d688737f4602611c08a60b" alt="Random Meme" width="500"/>
+**It'll get buried as quick as this meme does in new**  
+<img src="https://preview.redd.it/sibanwgxq7vf1.png?width=640&crop=smart&auto=webp&s=29d6ff9db678e93eb77339bfe90ff333973557cd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
