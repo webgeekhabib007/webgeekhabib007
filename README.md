@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The day he saw the road to heaven.**  
-<img src="https://preview.redd.it/25t0v5crqdvf1.png?width=320&crop=smart&auto=webp&s=660648fe024170acc6ffa8bfb70e642f57ebb659" alt="Random Meme" width="500"/>
+**A type 2 title.**  
+<img src="https://preview.redd.it/goiwq66lj0vf1.png?width=640&crop=smart&auto=webp&s=debb7910f9aff0573a24c83fdee878bf6b135052" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
