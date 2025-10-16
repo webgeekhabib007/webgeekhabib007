@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Every New Year’s Eve: this time for sure bro.**  
-<img src="https://preview.redd.it/hqk0p3ifxbvf1.png?width=1080&crop=smart&auto=webp&s=75c3e19cd42be97793c22d5a69d6c4446972af83" alt="Random Meme" width="500"/>
+**Better update the resume**  
+<img src="https://preview.redd.it/pkfd7o1eebvf1.gif?width=216&crop=smart&format=png8&s=71d457060f6f608544a6c4798d163a95bbde3889" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
