@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Better update the resume**  
-<img src="https://preview.redd.it/pkfd7o1eebvf1.gif?width=216&crop=smart&format=png8&s=71d457060f6f608544a6c4798d163a95bbde3889" alt="Random Meme" width="500"/>
+**The day he saw the road to heaven.**  
+<img src="https://preview.redd.it/25t0v5crqdvf1.png?width=320&crop=smart&auto=webp&s=660648fe024170acc6ffa8bfb70e642f57ebb659" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
