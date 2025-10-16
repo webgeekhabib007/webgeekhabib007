@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
+**Errant with motorcycle**  
+<img src="https://preview.redd.it/yn7fht6rebvf1.png?width=320&crop=smart&auto=webp&s=c47ba9f263b6e5624ade7a8aeb59dd0c9e7b0838" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
