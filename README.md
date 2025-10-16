@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/n0qe78dqbcvf1.png?width=1080&crop=smart&auto=webp&s=92728ea8cfa720671138438366963962615d6c12" alt="Random Meme" width="500"/>
+**Why do we have to live in interesting times.**  
+<img src="https://preview.redd.it/oc0640ntdavf1.png?width=1080&crop=smart&auto=webp&s=c56c512d5dbbfb4c5d676e5e5f88e7d118dfeda9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
