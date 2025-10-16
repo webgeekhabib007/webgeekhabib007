@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Best feeling ever**  
-<img src="https://preview.redd.it/7mis5r3qycvf1.png?width=1080&crop=smart&auto=webp&s=fe572095bf41fec15bdb95cb746040c4beec2cdc" alt="Random Meme" width="500"/>
+**Every New Year’s Eve: this time for sure bro.**  
+<img src="https://preview.redd.it/hqk0p3ifxbvf1.png?width=1080&crop=smart&auto=webp&s=75c3e19cd42be97793c22d5a69d6c4446972af83" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
