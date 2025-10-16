@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A type 2 title.**  
-<img src="https://preview.redd.it/goiwq66lj0vf1.png?width=640&crop=smart&auto=webp&s=debb7910f9aff0573a24c83fdee878bf6b135052" alt="Random Meme" width="500"/>
+**That Netflix special is wild**  
+<img src="https://preview.redd.it/5svct7wr86vf1.png?width=640&crop=smart&auto=webp&s=bbfeb1946788c427da541edc0d0c37b6fe0df7c1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
