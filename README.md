@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can win**  
-<img src="https://preview.redd.it/2sio3f8w69vf1.gif?width=640&crop=smart&format=png8&s=9dbb0bcde2cf758deee09ec019ab95da155c4867" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/45hpuacg7nvf1.png?width=640&crop=smart&auto=webp&s=b2b2c714a2c09d8f193ab04cefa08a9e46979196" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
