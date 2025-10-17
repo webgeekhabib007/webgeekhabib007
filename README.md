@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sorry to my UK subjects**  
-<img src="https://preview.redd.it/c3jsmg17kbvf1.png?width=960&crop=smart&auto=webp&s=6757b91bbc93f202b5ca68d3ec259666efefed01" alt="Random Meme" width="500"/>
+**Goo goo ga ga my frontal lobe hasn't developed yet**  
+<img src="https://preview.redd.it/c35obhvtdivf1.png?width=640&crop=smart&auto=webp&s=99d77221165bfb1302f5fceb9e5edb832b0fd873" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
