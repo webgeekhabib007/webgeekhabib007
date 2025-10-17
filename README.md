@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Some spooks are way spookier than other spooks**  
-<img src="https://preview.redd.it/30clea7w3qvf1.png?width=1080&crop=smart&auto=webp&s=d45d9490725010495d992053438179e78f85bcf9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/7jp4o3nmlivf1.png?width=1080&crop=smart&auto=webp&s=7eaffc07f43b8604cdb5c3394e78d431d1805198" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
