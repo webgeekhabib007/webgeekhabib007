@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Day I Realized My Job Comes With Perks I Never Asked For💀**  
-<img src="https://preview.redd.it/s2k05jhpqnvf1.png?width=1080&crop=smart&auto=webp&s=14a5e39b67a955cf0ff89e737b5207e7c1986829" alt="Random Meme" width="500"/>
+**I can win**  
+<img src="https://preview.redd.it/2sio3f8w69vf1.gif?width=640&crop=smart&format=png8&s=9dbb0bcde2cf758deee09ec019ab95da155c4867" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
