@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm cooked?**  
-<img src="https://preview.redd.it/6u36dljqumvf1.png?width=960&crop=smart&auto=webp&s=962f5cc27896d65fd474109bf600f89ad74d7bcc" alt="Random Meme" width="500"/>
+**Some spooks are way spookier than other spooks**  
+<img src="https://preview.redd.it/30clea7w3qvf1.png?width=1080&crop=smart&auto=webp&s=d45d9490725010495d992053438179e78f85bcf9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
