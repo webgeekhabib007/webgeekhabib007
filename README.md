@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ICUM420nm is the best name for sugar analysis.**  
-<img src="https://preview.redd.it/mqigrg0eejvf1.png?width=320&crop=smart&auto=webp&s=e409a3ec390a11d56d7a6c91dfa06f00f4376164" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/fr8yz6inodvf1.png?width=1080&crop=smart&auto=webp&s=efd7566967868014897ec718b89180a8c6e15845" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
