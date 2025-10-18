@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/gn3nsk9xeovf1.png?width=1080&crop=smart&auto=webp&s=66d541114b4ad3e8d5546ffb5f752e1be2f809bb" alt="Random Meme" width="500"/>
+**Shut up and release some dopamine**  
+<img src="https://preview.redd.it/6nomqa66yevf1.png?width=960&crop=smart&auto=webp&s=75f38792003f1c200b27163edb615a6cf49b85b2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
