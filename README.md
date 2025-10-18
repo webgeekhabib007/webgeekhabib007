@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Shut up and release some dopamine**  
-<img src="https://preview.redd.it/6nomqa66yevf1.png?width=960&crop=smart&auto=webp&s=75f38792003f1c200b27163edb615a6cf49b85b2" alt="Random Meme" width="500"/>
+**He's about to hit you with the lore drop**  
+<img src="https://preview.redd.it/5037ugvhekvf1.png?width=1080&crop=smart&auto=webp&s=6c10e0dda42b1ab9eddfb9d89f702c1d02fe5244" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
