@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/d05mz3glvnvf1.png?width=1080&crop=smart&auto=webp&s=f578019568928f2163bd58c79f3facdd755587eb" alt="Random Meme" width="500"/>
+**The branding is upside down!**  
+<img src="https://preview.redd.it/yrk99uo27xvf1.png?width=640&crop=smart&auto=webp&s=e9b52b135cc1a0da3aa476f0d26b11ddafc088d8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
