@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/koeci9rr1wvf1.png?width=1080&crop=smart&auto=webp&s=88458c4fc2fd2f70d7bb6bdd55d2678374d6cb89" alt="Random Meme" width="500"/>
+**Apparently Rosa the thief girl in AC2 was supposed to be Ezio main love interest. But her voice actress passed away. Sucks because I really liked that character and thought her and Ezio were cute together.**  
+<img src="https://preview.redd.it/ow22vbbofuvf1.gif?width=640&crop=smart&format=png8&s=15dd733922b28a728300563c34da1dc5a2d91156" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
