@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Handsome boy.**  
-<img src="https://preview.redd.it/bq8m2de71pvf1.png?width=320&crop=smart&auto=webp&s=53188ae0e10e39a9e0ee2ccb089518c7fc9f187f" alt="Random Meme" width="500"/>
+**It’s not always “nostalgia bias”. Sometimes, the older thing is just better.**  
+<img src="https://preview.redd.it/rgawu3580rvf1.gif?width=640&crop=smart&format=png8&s=50a8ad0cad425b353f933e374eaf8853ddb0a644" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
