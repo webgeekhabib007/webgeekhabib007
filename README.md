@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**need the dealer contact**  
-<img src="https://preview.redd.it/k5p9y6z3k9vf1.png?width=1080&crop=smart&auto=webp&s=24c0cf1eedbf1037548d1f37b565156d04098b5e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ufti7ciukovf1.png?width=320&crop=smart&auto=webp&s=f7796618b98636a70fb550e01bfc869081fbbcd5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
