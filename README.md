@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The government watching half of the male population join the alien invaders because they got baddies**  
-<img src="https://preview.redd.it/sp62b15h3svf1.gif?width=216&crop=smart&format=png8&s=46bfadf40a5944db9b3cdfba3e3941aa4e18ea46" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/45hpuacg7nvf1.png?width=640&crop=smart&auto=webp&s=b2b2c714a2c09d8f193ab04cefa08a9e46979196" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
