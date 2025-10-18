@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It’s not always “nostalgia bias”. Sometimes, the older thing is just better.**  
-<img src="https://preview.redd.it/rgawu3580rvf1.gif?width=640&crop=smart&format=png8&s=50a8ad0cad425b353f933e374eaf8853ddb0a644" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/qrq5xsj9fovf1.png?width=1080&crop=smart&auto=webp&s=3141a8def7c50bfaf327e2a5940b014e60e8b7da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
