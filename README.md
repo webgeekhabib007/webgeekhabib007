@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Might be based on real life events**  
-<img src="https://preview.redd.it/zgfqfep229vf1.png?width=1080&crop=smart&auto=webp&s=a0b887f1f6c78574fa419aa55aa91fd87d6b062e" alt="Random Meme" width="500"/>
+**I should start studying.**  
+<img src="https://preview.redd.it/g2ux67wn1qvf1.png?width=320&crop=smart&auto=webp&s=6b0543efa0fd9b58f06cac4b2ff77d38c0d4b011" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
