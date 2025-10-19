@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**An Examination of Baseless Accusations Pertaining to Thesaurus Misappropriation**  
-<img src="https://preview.redd.it/a4wl2cdqf3wf1.gif?width=320&crop=smart&format=png8&s=3b9f0e580af4c91450714d1c7e670907faf8c51a" alt="Random Meme" width="500"/>
+**I was there**  
+<img src="https://preview.redd.it/fvxusazp1xvf1.png?width=640&crop=smart&auto=webp&s=93a8d82d10ee963ea237f7e71a7d49d86d783e6d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
