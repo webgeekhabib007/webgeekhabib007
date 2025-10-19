@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Can you repeat that rq"**  
-<img src="https://preview.redd.it/7yg28xo8awvf1.png?width=640&crop=smart&auto=webp&s=474300fd709cbd90836f5e9facd1c484d256a840" alt="Random Meme" width="500"/>
+**An Examination of Baseless Accusations Pertaining to Thesaurus Misappropriation**  
+<img src="https://preview.redd.it/a4wl2cdqf3wf1.gif?width=320&crop=smart&format=png8&s=3b9f0e580af4c91450714d1c7e670907faf8c51a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
