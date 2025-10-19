@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**got my hopes of for nuin'**  
-<img src="https://preview.redd.it/4cgav9r73zvf1.png?width=1080&crop=smart&auto=webp&s=67ab8e047c5481f29801f20221d9f4f8b11df063" alt="Random Meme" width="500"/>
+**"Can you repeat that rq"**  
+<img src="https://preview.redd.it/7yg28xo8awvf1.png?width=640&crop=smart&auto=webp&s=474300fd709cbd90836f5e9facd1c484d256a840" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
