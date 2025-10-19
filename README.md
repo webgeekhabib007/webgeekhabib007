@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Stand up to tyranny**  
-<img src="https://preview.redd.it/1k1oper3jzvf1.gif?width=320&crop=smart&format=png8&s=2120aaffdfbeb2b3e8dcc4413135dcac78b5e580" alt="Random Meme" width="500"/>
+**Youtube is the new manuscript**  
+<img src="https://preview.redd.it/9qfhwbq8lpvf1.png?width=640&crop=smart&auto=webp&s=ec6b3d3c29172b4ce23e39eaab72fc2336a1ecc6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
