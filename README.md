@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the end times**  
-<img src="https://preview.redd.it/1p2jfuh081wf1.png?width=640&crop=smart&auto=webp&s=29dbad4b64b35c29625b6a7de3c92397b563c974" alt="Random Meme" width="500"/>
+**Stand up to tyranny**  
+<img src="https://preview.redd.it/1k1oper3jzvf1.gif?width=320&crop=smart&format=png8&s=2120aaffdfbeb2b3e8dcc4413135dcac78b5e580" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
