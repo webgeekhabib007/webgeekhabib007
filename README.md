@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Shut up and release some dopamine**  
-<img src="https://preview.redd.it/6nomqa66yevf1.png?width=960&crop=smart&auto=webp&s=75f38792003f1c200b27163edb615a6cf49b85b2" alt="Random Meme" width="500"/>
+**the end times**  
+<img src="https://preview.redd.it/1p2jfuh081wf1.png?width=640&crop=smart&auto=webp&s=29dbad4b64b35c29625b6a7de3c92397b563c974" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
