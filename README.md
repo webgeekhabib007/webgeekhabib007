@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Youtube is the new manuscript**  
-<img src="https://preview.redd.it/9qfhwbq8lpvf1.png?width=640&crop=smart&auto=webp&s=ec6b3d3c29172b4ce23e39eaab72fc2336a1ecc6" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/818fbiho5vvf1.gif?width=320&crop=smart&format=png8&s=4af177bac1f3fab4233a8cb34c7b2d9b512701b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
