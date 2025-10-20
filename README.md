@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In The End, the Parody Knows What's Up**  
-<img src="https://preview.redd.it/ias6733to4wf1.png?width=640&crop=smart&auto=webp&s=613dc2031a286ea9c5d5925da07a5210c43b49a5" alt="Random Meme" width="500"/>
+**I mean how does she turn from almost blind to such a sharpeye?**  
+<img src="https://preview.redd.it/0cm6mi12l2wf1.png?width=320&crop=smart&auto=webp&s=cd093f37de1bfa484e2cf0a07d1877cd3eb041b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
