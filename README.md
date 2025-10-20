@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**OBERON MUST DIE!**  
-<img src="https://preview.redd.it/pwdbym1hu5wf1.png?width=640&crop=smart&auto=webp&s=3fc8f30a643ef8b6dfc0b6d01a94323b187b829b" alt="Random Meme" width="500"/>
+**I mean how does she turn from almost blind to such a sharpeye?**  
+<img src="https://preview.redd.it/0cm6mi12l2wf1.png?width=320&crop=smart&auto=webp&s=cd093f37de1bfa484e2cf0a07d1877cd3eb041b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
