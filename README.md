@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Denial vs. Acceptance**  
-<img src="https://preview.redd.it/bhg9hk1ta4wf1.png?width=320&crop=smart&auto=webp&s=4dd2f22f10550803903833990fc6b5cce975b0a0" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/0jjm8yo973wf1.png?width=1080&crop=smart&auto=webp&s=a5189601b8b6ad97e637c2edbcec054df23b2f5b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
