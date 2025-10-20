@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I thought you loved crime!**  
-<img src="https://preview.redd.it/ng2lloq4a9wf1.png?width=640&crop=smart&auto=webp&s=1b08f95defadd2c00743af435b8863fc453ad0f1" alt="Random Meme" width="500"/>
+**This game was so good**  
+<img src="https://preview.redd.it/jiycmtw41awf1.gif?width=320&crop=smart&format=png8&s=7d12af408a88f3a7c1fb7ffd4e1611e3fded4bc4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
