@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Even worse if it gets no comments**  
-<img src="https://preview.redd.it/txv615dk55wf1.gif?width=640&crop=smart&format=png8&s=df0095c469896fba290d78e2d92a62073ad98761" alt="Random Meme" width="500"/>
+**Flair**  
+<img src="https://preview.redd.it/699o6m2navvf1.png?width=1080&crop=smart&auto=webp&s=0d1feea7d95258cb6dc6694f7dd3776b3be49126" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
