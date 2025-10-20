@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pffft yeah I'm the main character**  
-<img src="https://preview.redd.it/aj850m85a9wf1.gif?width=640&crop=smart&format=png8&s=29e43ff1a2b15088b7943e0c0a7c8db10c1e60a8" alt="Random Meme" width="500"/>
+**Goo goo ga ga my frontal lobe hasn't developed yet**  
+<img src="https://preview.redd.it/c35obhvtdivf1.png?width=640&crop=smart&auto=webp&s=99d77221165bfb1302f5fceb9e5edb832b0fd873" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
