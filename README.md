@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I mean how does she turn from almost blind to such a sharpeye?**  
-<img src="https://preview.redd.it/0cm6mi12l2wf1.png?width=320&crop=smart&auto=webp&s=cd093f37de1bfa484e2cf0a07d1877cd3eb041b5" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/lh9d1u37m7wf1.png?width=1080&crop=smart&auto=webp&s=4af457d97886293fa0bc27dc333097abed6e08e3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
