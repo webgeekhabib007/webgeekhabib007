@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Goo goo ga ga my frontal lobe hasn't developed yet**  
-<img src="https://preview.redd.it/c35obhvtdivf1.png?width=640&crop=smart&auto=webp&s=99d77221165bfb1302f5fceb9e5edb832b0fd873" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/jlpueu1cjzvf1.png?width=640&crop=smart&auto=webp&s=747c80ca2af004bc1a33cc53bcf6fdd286c1514f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
