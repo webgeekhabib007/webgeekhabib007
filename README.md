@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Who's that Pokemon?**  
-<img src="https://preview.redd.it/e4os4movd6wf1.png?width=640&crop=smart&auto=webp&s=f609b01a98818d18794a818b6a5afc2a9387b197" alt="Random Meme" width="500"/>
+**OBERON MUST DIE!**  
+<img src="https://preview.redd.it/pwdbym1hu5wf1.png?width=640&crop=smart&auto=webp&s=3fc8f30a643ef8b6dfc0b6d01a94323b187b829b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
