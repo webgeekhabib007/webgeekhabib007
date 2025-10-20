@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Flair**  
-<img src="https://preview.redd.it/699o6m2navvf1.png?width=1080&crop=smart&auto=webp&s=0d1feea7d95258cb6dc6694f7dd3776b3be49126" alt="Random Meme" width="500"/>
+**I thought you loved crime!**  
+<img src="https://preview.redd.it/ng2lloq4a9wf1.png?width=640&crop=smart&auto=webp&s=1b08f95defadd2c00743af435b8863fc453ad0f1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
