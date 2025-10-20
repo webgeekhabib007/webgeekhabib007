@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/qrq5xsj9fovf1.png?width=1080&crop=smart&auto=webp&s=3141a8def7c50bfaf327e2a5940b014e60e8b7da" alt="Random Meme" width="500"/>
+**Who's that Pokemon?**  
+<img src="https://preview.redd.it/e4os4movd6wf1.png?width=640&crop=smart&auto=webp&s=f609b01a98818d18794a818b6a5afc2a9387b197" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
