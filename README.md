@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**pokemon thoughts on racism**  
-<img src="https://preview.redd.it/68fgo6jl2bwf1.png?width=960&crop=smart&auto=webp&s=96a4c123fee31c8adc7a5d0c4916b75a70422eb6" alt="Random Meme" width="500"/>
+**willy wonka be like**  
+<img src="https://preview.redd.it/7qa83jappewf1.png?width=960&crop=smart&auto=webp&s=b4337f727b96dbb9a59b950103619daee15cdb73" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
