@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Whenever a new place opens up...**  
-<img src="https://preview.redd.it/qs2e38yhnjvf1.png?width=320&crop=smart&auto=webp&s=996a3414d707ba6b8c48831ee785a9e4720ef8fd" alt="Random Meme" width="500"/>
+**If You Have to Eat 27 Pounds of Something to Live, You're Doing It Wrong**  
+<img src="https://preview.redd.it/soz8dl3lzpvf1.png?width=640&crop=smart&auto=webp&s=df13dccee507d49452537264f59e4169e6682c66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
