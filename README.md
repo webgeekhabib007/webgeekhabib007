@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How time flies**  
-<img src="https://preview.redd.it/y0qb9fmnh6wf1.gif?width=216&crop=smart&format=png8&s=e22b8a507a8bc43eda3d162d6c15e0d867902c5e" alt="Random Meme" width="500"/>
+**Potato**  
+<img src="https://preview.redd.it/l99ylgvncdwf1.png?width=640&crop=smart&auto=webp&s=16cb7e7906a93694216d64bd4d6cf67f37c3a3c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
