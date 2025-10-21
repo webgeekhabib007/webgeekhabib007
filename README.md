@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**All night long**  
-<img src="https://preview.redd.it/1380d0f05hwf1.png?width=1080&crop=smart&auto=webp&s=bc882df2e07a38dbe2195ea18a0c121c98aefe9a" alt="Random Meme" width="500"/>
+**Anyone else ready to move on?**  
+<img src="https://preview.redd.it/cqcf1tzuh6wf1.gif?width=320&crop=smart&format=png8&s=5eeccb59c812798a9418e748f8b8888fb682982b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
