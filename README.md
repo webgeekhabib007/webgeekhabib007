@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/q47spqzbeewf1.png?width=1080&crop=smart&auto=webp&s=d7c270d48308f644dd8c8f8ceb1239ea8bcdd380" alt="Random Meme" width="500"/>
+**How time flies**  
+<img src="https://preview.redd.it/y0qb9fmnh6wf1.gif?width=216&crop=smart&format=png8&s=e22b8a507a8bc43eda3d162d6c15e0d867902c5e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
