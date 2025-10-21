@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anyone else ready to move on?**  
-<img src="https://preview.redd.it/cqcf1tzuh6wf1.gif?width=320&crop=smart&format=png8&s=5eeccb59c812798a9418e748f8b8888fb682982b" alt="Random Meme" width="500"/>
+**Stand up to tyranny**  
+<img src="https://preview.redd.it/1k1oper3jzvf1.gif?width=320&crop=smart&format=png8&s=2120aaffdfbeb2b3e8dcc4413135dcac78b5e580" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
