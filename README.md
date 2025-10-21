@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I've noticed a pattern!**  
-<img src="https://preview.redd.it/agzudjha9fwf1.png?width=1080&crop=smart&auto=webp&s=f44fa19f55beedc1a7afa93b2d2d2cab8a49a830" alt="Random Meme" width="500"/>
+**pokemon thoughts on racism**  
+<img src="https://preview.redd.it/68fgo6jl2bwf1.png?width=960&crop=smart&auto=webp&s=96a4c123fee31c8adc7a5d0c4916b75a70422eb6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
