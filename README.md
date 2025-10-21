@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I was middle right.**  
-<img src="https://preview.redd.it/8uak3yrx6bwf1.png?width=1080&crop=smart&auto=webp&s=3514e3c6b826939438b8fd14a35c714d5cbcd33a" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ilrrrvxrc2wf1.png?width=1080&crop=smart&auto=webp&s=f8c4d65ae210956c5186b32f77599c58c8410bc7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
