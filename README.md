@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Stand up to tyranny**  
-<img src="https://preview.redd.it/1k1oper3jzvf1.gif?width=320&crop=smart&format=png8&s=2120aaffdfbeb2b3e8dcc4413135dcac78b5e580" alt="Random Meme" width="500"/>
+**uphill traffic**  
+<img src="https://preview.redd.it/rn5jygt9m7wf1.png?width=640&crop=smart&auto=webp&s=78f1c57fdaba858fc175a29a96c20abc1ed33546" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
