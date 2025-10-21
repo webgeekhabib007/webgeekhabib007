@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Potato**  
-<img src="https://preview.redd.it/l99ylgvncdwf1.png?width=640&crop=smart&auto=webp&s=16cb7e7906a93694216d64bd4d6cf67f37c3a3c5" alt="Random Meme" width="500"/>
+**uphill traffic**  
+<img src="https://preview.redd.it/rn5jygt9m7wf1.png?width=640&crop=smart&auto=webp&s=78f1c57fdaba858fc175a29a96c20abc1ed33546" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
