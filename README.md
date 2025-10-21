@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**willy wonka be like**  
-<img src="https://preview.redd.it/7qa83jappewf1.png?width=960&crop=smart&auto=webp&s=b4337f727b96dbb9a59b950103619daee15cdb73" alt="Random Meme" width="500"/>
+**Negotiating with a Tiny Menace**  
+<img src="https://preview.redd.it/9bfkrwlw4gwf1.png?width=640&crop=smart&auto=webp&s=b6e5f3a48d98b2acfeec139326cae1e6289eea6d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
