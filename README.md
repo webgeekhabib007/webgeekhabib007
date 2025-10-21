@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If You Have to Eat 27 Pounds of Something to Live, You're Doing It Wrong**  
-<img src="https://preview.redd.it/soz8dl3lzpvf1.png?width=640&crop=smart&auto=webp&s=df13dccee507d49452537264f59e4169e6682c66" alt="Random Meme" width="500"/>
+**I thought you loved crime!**  
+<img src="https://preview.redd.it/ng2lloq4a9wf1.png?width=640&crop=smart&auto=webp&s=1b08f95defadd2c00743af435b8863fc453ad0f1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
