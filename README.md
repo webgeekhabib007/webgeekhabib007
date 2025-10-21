@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**uphill traffic**  
-<img src="https://preview.redd.it/rn5jygt9m7wf1.png?width=640&crop=smart&auto=webp&s=78f1c57fdaba858fc175a29a96c20abc1ed33546" alt="Random Meme" width="500"/>
+**I'm a dory**  
+<img src="https://preview.redd.it/pe88d0yuuewf1.gif?width=640&crop=smart&format=png8&s=59db550c9e295e259b621093e67a95925abc6ee3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
