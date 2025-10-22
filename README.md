@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happy Diwali everyone**  
-<img src="https://preview.redd.it/10dz1vv2q5wf1.png?width=640&crop=smart&auto=webp&s=5074e63703c3cfa0397fbd361c1128f185193fb5" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/k1n04ruhzbwf1.png?width=320&crop=smart&auto=webp&s=cadb02fec7b713fc9e8579bb217ae644aab58b56" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
