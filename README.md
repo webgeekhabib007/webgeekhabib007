@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When you try to act innocent but the evidence is literally everywhere**  
-<img src="https://preview.redd.it/8leivq97mkwf1.png?width=960&crop=smart&auto=webp&s=73e3aa8673685237a28b701c5145da3ef9a41dbd" alt="Random Meme" width="500"/>
+**Now where will he get his lunch money from**  
+<img src="https://preview.redd.it/fxsql9rxblwf1.png?width=640&crop=smart&auto=webp&s=8edf5a4bc7195bd8887237b6464fd65d6ae36da1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
