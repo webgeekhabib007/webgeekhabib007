@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Negotiating with a Tiny Menace**  
-<img src="https://preview.redd.it/9bfkrwlw4gwf1.png?width=640&crop=smart&auto=webp&s=b6e5f3a48d98b2acfeec139326cae1e6289eea6d" alt="Random Meme" width="500"/>
+**Happy Diwali everyone**  
+<img src="https://preview.redd.it/10dz1vv2q5wf1.png?width=640&crop=smart&auto=webp&s=5074e63703c3cfa0397fbd361c1128f185193fb5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
