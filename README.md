@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Now where will he get his lunch money from**  
-<img src="https://preview.redd.it/fxsql9rxblwf1.png?width=640&crop=smart&auto=webp&s=8edf5a4bc7195bd8887237b6464fd65d6ae36da1" alt="Random Meme" width="500"/>
+**what's the reason??**  
+<img src="https://preview.redd.it/rtd189fj7mwf1.png?width=320&crop=smart&auto=webp&s=1172e67971ed0134e0b2c552616e8aab55ba9023" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
