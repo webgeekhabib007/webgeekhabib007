@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Stole this from 2040**  
-<img src="https://preview.redd.it/s7f3c8jhqdwf1.png?width=640&crop=smart&auto=webp&s=86b0151bd7e6555173c0c4255667c2c68c0263d0" alt="Random Meme" width="500"/>
+**"After all, why not" aha vibe.**  
+<img src="https://preview.redd.it/u48mcpz1mmwf1.png?width=640&crop=smart&auto=webp&s=289228fc2a5d89550fa1015fe6e62520915a4a40" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
