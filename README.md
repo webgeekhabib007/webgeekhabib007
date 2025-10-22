@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm a dory**  
-<img src="https://preview.redd.it/pe88d0yuuewf1.gif?width=640&crop=smart&format=png8&s=59db550c9e295e259b621093e67a95925abc6ee3" alt="Random Meme" width="500"/>
+**Pst! It actually gets better :)**  
+<img src="https://preview.redd.it/j9b2kv3bckwf1.png?width=960&crop=smart&auto=webp&s=58c2aa72a245f8c9b6ec1e5accfef2f09e923e28" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
