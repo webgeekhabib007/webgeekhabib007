@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**title. creative A**  
-<img src="https://preview.redd.it/f592885sg7wf1.png?width=640&crop=smart&auto=webp&s=de715f2fc69d7d9a20cc970c62a49f10f222ee07" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/xwyd8d3fqlwf1.png?width=1080&crop=smart&auto=webp&s=ce57978740699f3437de1cd8da4d29387aa2a689" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
