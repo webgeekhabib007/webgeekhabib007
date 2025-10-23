@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/gkjv2ylbanwf1.png?width=320&crop=smart&auto=webp&s=d5bd53435acf83fdc205fc44c110d7029144de7e" alt="Random Meme" width="500"/>
+**Not the hero we deserve but the one we badly needed**  
+<img src="https://preview.redd.it/4bs3kybsklwf1.png?width=1080&crop=smart&auto=webp&s=1589014da8c1bbe53bd518c4c0c11fcc14b5272d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
