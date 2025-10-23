@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not the hero we deserve but the one we badly needed**  
-<img src="https://preview.redd.it/4bs3kybsklwf1.png?width=1080&crop=smart&auto=webp&s=1589014da8c1bbe53bd518c4c0c11fcc14b5272d" alt="Random Meme" width="500"/>
+**Yakub is our creater the UN agrees**  
+<img src="https://preview.redd.it/4zo7wntjtpwf1.png?width=320&crop=smart&auto=webp&s=ffe7e97805fb1ae93b3fcffcfac373704e37ede5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
