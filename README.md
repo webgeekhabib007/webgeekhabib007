@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Let's see who's more unemployed**  
-<img src="https://preview.redd.it/p9zmsxqof9wf1.png?width=1080&crop=smart&auto=webp&s=a754cafe2358386a1e24374e88462d2cf45a9187" alt="Random Meme" width="500"/>
+**This game was so good**  
+<img src="https://preview.redd.it/jiycmtw41awf1.gif?width=320&crop=smart&format=png8&s=7d12af408a88f3a7c1fb7ffd4e1611e3fded4bc4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
