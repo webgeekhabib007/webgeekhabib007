@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am the chosen one**  
-<img src="https://preview.redd.it/f22szixlenwf1.png?width=1080&crop=smart&auto=webp&s=c01298aa01994aa3c1975270f76b211c649125d6" alt="Random Meme" width="500"/>
+***eltiT**  
+<img src="https://preview.redd.it/j00v9z284swf1.png?width=640&crop=smart&auto=webp&s=62483823ac78edb539301986b239559ad1ab7d0b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
