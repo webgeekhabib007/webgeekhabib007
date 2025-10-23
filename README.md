@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yakub is our creater the UN agrees**  
-<img src="https://preview.redd.it/4zo7wntjtpwf1.png?width=320&crop=smart&auto=webp&s=ffe7e97805fb1ae93b3fcffcfac373704e37ede5" alt="Random Meme" width="500"/>
+**almost same**  
+<img src="https://preview.redd.it/i76lna8dptwf1.png?width=1080&crop=smart&auto=webp&s=38353198ad8b97241dfcbc96094784f7613d3599" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
