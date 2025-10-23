@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And what do you think will happen?**  
-<img src="https://preview.redd.it/kgfq0rkfgvwf1.png?width=1080&crop=smart&auto=webp&s=a7069989967f77bb65e5bbc7b7b039aff9008ac6" alt="Random Meme" width="500"/>
+**You have no feelings!!!**  
+<img src="https://preview.redd.it/86lpio3tplwf1.gif?width=640&crop=smart&format=png8&s=356010f14ea30fbbaa010234435ad68598f86cbf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
