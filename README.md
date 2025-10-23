@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In The End, the Parody Knows What's Up**  
-<img src="https://preview.redd.it/ias6733to4wf1.png?width=640&crop=smart&auto=webp&s=613dc2031a286ea9c5d5925da07a5210c43b49a5" alt="Random Meme" width="500"/>
+**Imagine how fast you can go...**  
+<img src="https://preview.redd.it/lzglfi7kypwf1.gif?width=320&crop=smart&format=png8&s=d396a0866f8cb782932651c7a43a4023ecb1eae6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
