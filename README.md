@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They won't breathe air**  
-<img src="https://preview.redd.it/efjr11h9hawf1.gif?width=640&crop=smart&format=png8&s=d06a30cec9c9de0a06bd6819fda972e91dd7cc53" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/7ay0rv7vzswf1.png?width=1080&crop=smart&auto=webp&s=3a51a813ca659330d69f0a6b0e2ac143c03948c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
