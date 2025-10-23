@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Every time I try to get serious about work…"**  
-<img src="https://preview.redd.it/5wq3gqpoqswf1.png?width=1080&crop=smart&auto=webp&s=3a9d57fbdaaf17fba42479002a4106a726547644" alt="Random Meme" width="500"/>
+**They won't breathe air**  
+<img src="https://preview.redd.it/efjr11h9hawf1.gif?width=640&crop=smart&format=png8&s=d06a30cec9c9de0a06bd6819fda972e91dd7cc53" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
