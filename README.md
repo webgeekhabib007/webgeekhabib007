@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have no feelings!!!**  
-<img src="https://preview.redd.it/86lpio3tplwf1.gif?width=640&crop=smart&format=png8&s=356010f14ea30fbbaa010234435ad68598f86cbf" alt="Random Meme" width="500"/>
+**Nintendo Strategy**  
+<img src="https://preview.redd.it/zpgxksmeplwf1.png?width=1080&crop=smart&auto=webp&s=30a6247f97cabb6c44e40228f57c70491864244d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
