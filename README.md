@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This game was so good**  
-<img src="https://preview.redd.it/jiycmtw41awf1.gif?width=320&crop=smart&format=png8&s=7d12af408a88f3a7c1fb7ffd4e1611e3fded4bc4" alt="Random Meme" width="500"/>
+**"Every time I try to get serious about work…"**  
+<img src="https://preview.redd.it/5wq3gqpoqswf1.png?width=1080&crop=smart&auto=webp&s=3a9d57fbdaaf17fba42479002a4106a726547644" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
