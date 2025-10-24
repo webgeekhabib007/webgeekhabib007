@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We're going for a new record**  
-<img src="https://preview.redd.it/2wjb9eo5luwf1.png?width=960&crop=smart&auto=webp&s=70a61bfaaa3f3de69eb3ec14a3fccf96d1f9f4e4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3jtdsb89dwwf1.png?width=1080&crop=smart&auto=webp&s=71eea3b455499ffe1e96c00cbc7746922914dc59" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
