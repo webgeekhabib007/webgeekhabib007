@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Burzum Vs. Mayhem**  
-<img src="https://preview.redd.it/0czi2mti51xf1.png?width=640&crop=smart&auto=webp&s=548e7bacecb93f0ec4e5bd45c687f9cf2287094a" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/wdjz75z433xf1.png?width=1080&crop=smart&auto=webp&s=a59b3f302f576a20c748889b149a2a8b88fbdc7b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
