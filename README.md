@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Temps drop and it begins...**  
-<img src="https://preview.redd.it/upvntyjmfxwf1.png?width=320&crop=smart&auto=webp&s=e2a6afa0177329fb6912932773d0c5f853dbf50d" alt="Random Meme" width="500"/>
+**At least someone made an effort to deceive me**  
+<img src="https://preview.redd.it/vzu9fspzpmwf1.gif?width=640&crop=smart&format=png8&s=eec344651d2b04fa51b9c35359ce2d4df611d5d7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
