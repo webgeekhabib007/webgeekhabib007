@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Grandpa is old school**  
-<img src="https://preview.redd.it/zeobrzzm5qwf1.png?width=1080&crop=smart&auto=webp&s=1ff50e02e93950b70a365487f33a03dcfa34941f" alt="Random Meme" width="500"/>
+**they're asleep at the wheel**  
+<img src="https://preview.redd.it/8t12eevr6owf1.png?width=1080&crop=smart&auto=webp&s=8508fcb9b73d725cbd6be9b94bbdcd63caf5ea71" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
