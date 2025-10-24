@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**well, nothing lost fortunately**  
-<img src="https://preview.redd.it/xp6t3dxu81xf1.png?width=960&crop=smart&auto=webp&s=fe5c65cd8c3a1d757c9e5228df711088339f754d" alt="Random Meme" width="500"/>
+**Grandpa is old school**  
+<img src="https://preview.redd.it/zeobrzzm5qwf1.png?width=1080&crop=smart&auto=webp&s=1ff50e02e93950b70a365487f33a03dcfa34941f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
