@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they're asleep at the wheel**  
-<img src="https://preview.redd.it/8t12eevr6owf1.png?width=1080&crop=smart&auto=webp&s=8508fcb9b73d725cbd6be9b94bbdcd63caf5ea71" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2rvckgoc00xf1.png?width=640&crop=smart&auto=webp&s=9b1f84a98992fd302f80a4fc4add18f48489d968" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
