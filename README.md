@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/wdjz75z433xf1.png?width=1080&crop=smart&auto=webp&s=a59b3f302f576a20c748889b149a2a8b88fbdc7b" alt="Random Meme" width="500"/>
+**Nintendo Strategy**  
+<img src="https://preview.redd.it/zpgxksmeplwf1.png?width=1080&crop=smart&auto=webp&s=30a6247f97cabb6c44e40228f57c70491864244d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
