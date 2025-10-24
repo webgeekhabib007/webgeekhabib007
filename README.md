@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**At least someone made an effort to deceive me**  
-<img src="https://preview.redd.it/vzu9fspzpmwf1.gif?width=640&crop=smart&format=png8&s=eec344651d2b04fa51b9c35359ce2d4df611d5d7" alt="Random Meme" width="500"/>
+**She's being nice**  
+<img src="https://preview.redd.it/rdpnjkbm8zwf1.png?width=1080&crop=smart&auto=webp&s=3140d7b2ef650791b5d5984f21cf276df3d6819e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
