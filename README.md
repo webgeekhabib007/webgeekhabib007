@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have no feelings!!!**  
-<img src="https://preview.redd.it/86lpio3tplwf1.gif?width=640&crop=smart&format=png8&s=356010f14ea30fbbaa010234435ad68598f86cbf" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/pfhdqrnf0axf1.png?width=640&crop=smart&auto=webp&s=1ca36456424fbfca18991479a8aba14d177ee1b4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
