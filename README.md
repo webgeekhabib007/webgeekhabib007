@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Three Moods of Every Cat**  
-<img src="https://preview.redd.it/8jgizx9ij3xf1.png?width=320&crop=smart&auto=webp&s=24940e0c887ed59bb4a1f8fe0dc3fe7a4096fec9" alt="Random Meme" width="500"/>
+**Burzum Vs. Mayhem**  
+<img src="https://preview.redd.it/0czi2mti51xf1.png?width=640&crop=smart&auto=webp&s=548e7bacecb93f0ec4e5bd45c687f9cf2287094a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
