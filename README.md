@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/3jtdsb89dwwf1.png?width=1080&crop=smart&auto=webp&s=71eea3b455499ffe1e96c00cbc7746922914dc59" alt="Random Meme" width="500"/>
+**Like a Phoenix**  
+<img src="https://preview.redd.it/uhvsls0kq3xf1.png?width=320&crop=smart&auto=webp&s=07de85d1bc533bba7f9f7cab530cf4d0736286c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
