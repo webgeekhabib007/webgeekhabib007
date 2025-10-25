@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Like a Phoenix**  
-<img src="https://preview.redd.it/uhvsls0kq3xf1.png?width=320&crop=smart&auto=webp&s=07de85d1bc533bba7f9f7cab530cf4d0736286c4" alt="Random Meme" width="500"/>
+**Some times I think my life needs a laugh track.**  
+<img src="https://preview.redd.it/ert9nasgyrwf1.png?width=1080&crop=smart&auto=webp&s=11400fc8cbbd71ae52ac7ae130c53edf049e93df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
