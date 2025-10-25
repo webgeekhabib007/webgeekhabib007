@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Conspiracy theories be like:**  
-<img src="https://preview.redd.it/y511hyhyh5xf1.gif?width=216&crop=smart&format=png8&s=403d7b59add87fd144015873b695be2803383bae" alt="Random Meme" width="500"/>
+**Works for an evil king after all...**  
+<img src="https://preview.redd.it/q13srz02x6xf1.png?width=1080&crop=smart&auto=webp&s=6251c7f6c1a4ef716697d2334d026bf38398765b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
