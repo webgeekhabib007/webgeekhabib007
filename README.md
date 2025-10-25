@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ahh thank God finally**  
-<img src="https://preview.redd.it/z19bw7aeqmwf1.gif?width=640&crop=smart&format=png8&s=b90cd87bba51056d7746958040bc1fc2712fb569" alt="Random Meme" width="500"/>
+**Han's Solo**  
+<img src="https://preview.redd.it/pp89rl1x9uwf1.png?width=640&crop=smart&auto=webp&s=d9ad4a57d19e481d2367b59759ad4a170cb00ead" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
