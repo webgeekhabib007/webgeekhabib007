@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damnit, I hate this excuse so much.**  
-<img src="https://preview.redd.it/ss8oj35os2xf1.png?width=640&crop=smart&auto=webp&s=45d766d36eb3767b5e7dcbf1101409d21758f191" alt="Random Meme" width="500"/>
+**Three Moods of Every Cat**  
+<img src="https://preview.redd.it/8jgizx9ij3xf1.png?width=320&crop=smart&auto=webp&s=24940e0c887ed59bb4a1f8fe0dc3fe7a4096fec9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
