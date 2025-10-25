@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wait a minute…..**  
-<img src="https://preview.redd.it/bcrstwj61lwf1.gif?width=640&crop=smart&format=png8&s=864f3b47430ee4bcfb83115732a49492dffb855c" alt="Random Meme" width="500"/>
+**Management just ain't how I roll**  
+<img src="https://preview.redd.it/vo7kcfv378xf1.png?width=320&crop=smart&auto=webp&s=855ee6006b8dea7ce0b7c28a930adcec05c90634" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
