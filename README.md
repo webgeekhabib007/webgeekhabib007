@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Works for an evil king after all...**  
-<img src="https://preview.redd.it/q13srz02x6xf1.png?width=1080&crop=smart&auto=webp&s=6251c7f6c1a4ef716697d2334d026bf38398765b" alt="Random Meme" width="500"/>
+**We're going for a new record**  
+<img src="https://preview.redd.it/2wjb9eo5luwf1.png?width=960&crop=smart&auto=webp&s=70a61bfaaa3f3de69eb3ec14a3fccf96d1f9f4e4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
