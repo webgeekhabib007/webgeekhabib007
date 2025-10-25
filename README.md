@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Han's Solo**  
-<img src="https://preview.redd.it/pp89rl1x9uwf1.png?width=640&crop=smart&auto=webp&s=d9ad4a57d19e481d2367b59759ad4a170cb00ead" alt="Random Meme" width="500"/>
+**Damnit, I hate this excuse so much.**  
+<img src="https://preview.redd.it/ss8oj35os2xf1.png?width=640&crop=smart&auto=webp&s=45d766d36eb3767b5e7dcbf1101409d21758f191" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
