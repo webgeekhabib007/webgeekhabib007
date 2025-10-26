@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yelling is lame**  
-<img src="https://preview.redd.it/556r0oz1w9xf1.png?width=320&crop=smart&auto=webp&s=c5093082d097d27778110e85fb305bbfe1e6a9bc" alt="Random Meme" width="500"/>
+**You have no feelings!!!**  
+<img src="https://preview.redd.it/86lpio3tplwf1.gif?width=640&crop=smart&format=png8&s=356010f14ea30fbbaa010234435ad68598f86cbf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
