@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-***chuckles* I'm in danger**  
-<img src="https://preview.redd.it/3qfce43jicxf1.png?width=1080&crop=smart&auto=webp&s=fbd8a8373ec01fffde063c45f09cbe6288527b87" alt="Random Meme" width="500"/>
+**Crazy? I was crazy once...**  
+<img src="https://preview.redd.it/nd7md1stwaxf1.png?width=320&crop=smart&auto=webp&s=a79d3b71f58ffcb59906ba75320741ae5598f9f6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
