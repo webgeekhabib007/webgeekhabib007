@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Great now what are we going to eat now.**  
-<img src="https://preview.redd.it/lajqo1zf27xf1.gif?width=640&crop=smart&format=png8&s=fadb688a9b8987e31d0a1ea58ffc95a0a0029992" alt="Random Meme" width="500"/>
+**She's being nice**  
+<img src="https://preview.redd.it/0zgdbber8zwf1.png?width=1080&crop=smart&auto=webp&s=fd6620e1f3e277440a9dd4b799c591cf42aaf30f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
