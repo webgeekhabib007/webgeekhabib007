@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Do I get a medal now?**  
-<img src="https://preview.redd.it/ty8ewx2pywwf1.png?width=960&crop=smart&auto=webp&s=a8555eec76e61ed426467ad214b795a3114b95fb" alt="Random Meme" width="500"/>
+**Its not that bad just chill**  
+<img src="https://preview.redd.it/es4u0taeifxf1.png?width=640&crop=smart&auto=webp&s=6837de720dba4402d8e79a7145f52087808558c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
