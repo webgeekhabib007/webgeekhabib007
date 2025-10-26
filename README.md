@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have cancer**  
-<img src="https://preview.redd.it/16cglztn5fxf1.png?width=640&crop=smart&auto=webp&s=249e636cf7cd865f8ef292e6c3cd8551eacadf34" alt="Random Meme" width="500"/>
+**Might be the sole reason I get Marvel Rivals...**  
+<img src="https://preview.redd.it/57mkoal63exf1.gif?width=320&crop=smart&format=png8&s=eca2d837bb04d3b46436a03ba3b4453daa3d3d82" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
