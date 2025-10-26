@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm invisible again**  
-<img src="https://preview.redd.it/w0c3q3dod9xf1.gif?width=640&crop=smart&format=png8&s=d9230cc828cf2ca33de999b847efb9f2827bd66f" alt="Random Meme" width="500"/>
+**lemme show ya somethin! 🧑‍🚒**  
+<img src="https://preview.redd.it/j897a4xl79xf1.png?width=960&crop=smart&auto=webp&s=aefa9651ccd0b3d7abb10ff6375d7e8d37dd27e7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
