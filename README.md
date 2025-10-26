@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Global experience**  
-<img src="https://preview.redd.it/pvy1lpfnddxf1.gif?width=320&crop=smart&format=png8&s=d1ce53e91601ea9517c18e5adf8c242617035e9f" alt="Random Meme" width="500"/>
+**almost same**  
+<img src="https://preview.redd.it/rtizw80pptwf1.png?width=1080&crop=smart&auto=webp&s=960c9cf54715e0df78274703cb0ffd6adef6502c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
