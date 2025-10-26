@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It do be like that sometimes**  
-<img src="https://preview.redd.it/ew1cli1h6fxf1.png?width=1080&crop=smart&auto=webp&s=bfad7b1123d6e15aff47ca0b9fbf99a31f1b3f14" alt="Random Meme" width="500"/>
+**MMMBop didn't MMMStop**  
+<img src="https://preview.redd.it/b138spkicixf1.png?width=640&crop=smart&auto=webp&s=65075dd633db0896cd7b61e6f6338614544577ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
