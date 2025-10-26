@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**lemme show ya somethin! 🧑‍🚒**  
-<img src="https://preview.redd.it/j897a4xl79xf1.png?width=960&crop=smart&auto=webp&s=aefa9651ccd0b3d7abb10ff6375d7e8d37dd27e7" alt="Random Meme" width="500"/>
+**Yelling is lame**  
+<img src="https://preview.redd.it/556r0oz1w9xf1.png?width=320&crop=smart&auto=webp&s=c5093082d097d27778110e85fb305bbfe1e6a9bc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
