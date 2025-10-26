@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Might be the sole reason I get Marvel Rivals...**  
-<img src="https://preview.redd.it/57mkoal63exf1.gif?width=320&crop=smart&format=png8&s=eca2d837bb04d3b46436a03ba3b4453daa3d3d82" alt="Random Meme" width="500"/>
+**It do be like that sometimes**  
+<img src="https://preview.redd.it/ew1cli1h6fxf1.png?width=1080&crop=smart&auto=webp&s=bfad7b1123d6e15aff47ca0b9fbf99a31f1b3f14" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
