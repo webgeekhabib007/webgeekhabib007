@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Crazy? I was crazy once...**  
-<img src="https://preview.redd.it/nd7md1stwaxf1.png?width=320&crop=smart&auto=webp&s=a79d3b71f58ffcb59906ba75320741ae5598f9f6" alt="Random Meme" width="500"/>
+**Global experience**  
+<img src="https://preview.redd.it/pvy1lpfnddxf1.gif?width=320&crop=smart&format=png8&s=d1ce53e91601ea9517c18e5adf8c242617035e9f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
