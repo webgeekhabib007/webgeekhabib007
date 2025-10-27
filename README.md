@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I want to USE my hardware!**  
-<img src="https://preview.redd.it/vxi38j4q5oxf1.png?width=640&crop=smart&auto=webp&s=45aab6578f3885026f35ee0c05d660ab7ff307b8" alt="Random Meme" width="500"/>
+**This shouldn't be fine altho**  
+<img src="https://preview.redd.it/f51kpqd5wlxf1.gif?width=640&crop=smart&format=png8&s=c10e527f4fa21c12c11da3da2b8a69b608df309f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
