@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the really creepy page**  
-<img src="https://preview.redd.it/uhchyj2dpaxf1.png?width=960&crop=smart&auto=webp&s=41afa01e76a002ec7a667cb0fe40fd377b77f49d" alt="Random Meme" width="500"/>
+**This is sadness**  
+<img src="https://preview.redd.it/fysn10nlsgxf1.png?width=1080&crop=smart&auto=webp&s=e8ae57a4e65df69c163a251321bc946bfcf79231" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
