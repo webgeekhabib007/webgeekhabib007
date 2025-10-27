@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**still beautiful**  
-<img src="https://preview.redd.it/68fwwdcoh1xf1.png?width=960&crop=smart&auto=webp&s=67a91cd9ccf5f7c651f4ee0f812be3b1beb67dfd" alt="Random Meme" width="500"/>
+**my university's life**  
+<img src="https://preview.redd.it/pbvv0ozf29xf1.png?width=1080&crop=smart&auto=webp&s=dd3dbe10e93b048af03efbd505157a5e14bb043e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
