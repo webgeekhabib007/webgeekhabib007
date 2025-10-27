@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**im a tired switch up**  
-<img src="https://preview.redd.it/3z8fjl4v5kxf1.png?width=320&crop=smart&auto=webp&s=40824e318a93078f18ab000ee7557b06a2c07188" alt="Random Meme" width="500"/>
+**see the turtle, ain't he keen**  
+<img src="https://preview.redd.it/ppn686f0gkxf1.png?width=320&crop=smart&auto=webp&s=110d7b1b51004c08f297af313010a922bd150b70" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
