@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This shouldn't be fine altho**  
-<img src="https://preview.redd.it/f51kpqd5wlxf1.gif?width=640&crop=smart&format=png8&s=c10e527f4fa21c12c11da3da2b8a69b608df309f" alt="Random Meme" width="500"/>
+**That One Second Of Pure Panic 😬**  
+<img src="https://preview.redd.it/w64ukc3yhpxf1.png?width=640&crop=smart&auto=webp&s=67b5174a2618366bf8365d00664bc8a80208d6e4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
