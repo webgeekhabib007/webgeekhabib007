@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**when redditors respond to my question with a clever joke instead of just answering my question:**  
-<img src="https://preview.redd.it/bvjhc0522gxf1.png?width=320&crop=smart&auto=webp&s=add41504c893455bdbb79c0a5ce69ab736cd70a8" alt="Random Meme" width="500"/>
+**When Reddit sends a notification**  
+<img src="https://preview.redd.it/7ve1dan8egxf1.png?width=1080&crop=smart&auto=webp&s=a82c81f11c8e5b04065628dc7dffc12cf5fadc65" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
