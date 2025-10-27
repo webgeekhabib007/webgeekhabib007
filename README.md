@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**She's being nice**  
-<img src="https://preview.redd.it/0zgdbber8zwf1.png?width=1080&crop=smart&auto=webp&s=fd6620e1f3e277440a9dd4b799c591cf42aaf30f" alt="Random Meme" width="500"/>
+**Men are simple.**  
+<img src="https://preview.redd.it/qob26pk6mkxf1.png?width=1080&crop=smart&auto=webp&s=7475b244fff9e5fa0809030a00fad2f22d819424" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
