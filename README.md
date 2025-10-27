@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is sadness**  
-<img src="https://preview.redd.it/fysn10nlsgxf1.png?width=1080&crop=smart&auto=webp&s=e8ae57a4e65df69c163a251321bc946bfcf79231" alt="Random Meme" width="500"/>
+**Cheap ass spawn camper**  
+<img src="https://preview.redd.it/hn8t6rysdpxf1.png?width=640&crop=smart&auto=webp&s=58ee1e7b41c8c38a3872f2e55ebf3d265050b862" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
