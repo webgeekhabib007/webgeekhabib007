@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**see the turtle, ain't he keen**  
-<img src="https://preview.redd.it/ppn686f0gkxf1.png?width=320&crop=smart&auto=webp&s=110d7b1b51004c08f297af313010a922bd150b70" alt="Random Meme" width="500"/>
+**still beautiful**  
+<img src="https://preview.redd.it/68fwwdcoh1xf1.png?width=960&crop=smart&auto=webp&s=67a91cd9ccf5f7c651f4ee0f812be3b1beb67dfd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
