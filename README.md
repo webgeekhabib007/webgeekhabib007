@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Men are simple.**  
-<img src="https://preview.redd.it/qob26pk6mkxf1.png?width=1080&crop=smart&auto=webp&s=7475b244fff9e5fa0809030a00fad2f22d819424" alt="Random Meme" width="500"/>
+**eTil*t**  
+<img src="https://preview.redd.it/umwu6c1lcexf1.png?width=640&crop=smart&auto=webp&s=c1f051a7f46c923f5bf8da387b9a3149b6f7e112" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
