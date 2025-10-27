@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Cheap ass spawn camper**  
-<img src="https://preview.redd.it/hn8t6rysdpxf1.png?width=640&crop=smart&auto=webp&s=58ee1e7b41c8c38a3872f2e55ebf3d265050b862" alt="Random Meme" width="500"/>
+**I want to USE my hardware!**  
+<img src="https://preview.redd.it/vxi38j4q5oxf1.png?width=640&crop=smart&auto=webp&s=45aab6578f3885026f35ee0c05d660ab7ff307b8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
