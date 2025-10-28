@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**One of the worst most fiddly machines ever**  
-<img src="https://preview.redd.it/wjecr05w8qxf1.png?width=320&crop=smart&auto=webp&s=154582c6ba27a518387387b46aeeba0f4cf3fca9" alt="Random Meme" width="500"/>
+**What inning?**  
+<img src="https://preview.redd.it/adorpsupqsxf1.png?width=1080&crop=smart&auto=webp&s=1e5a9f2a9b9780f50a9824e021e4a3cc975d00fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
