@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/guy0omyp6sxf1.png?width=1080&crop=smart&auto=webp&s=e7b8963a3ff105bd2a31ba0c359de5320f7ac573" alt="Random Meme" width="500"/>
+**One of the worst most fiddly machines ever**  
+<img src="https://preview.redd.it/wjecr05w8qxf1.png?width=320&crop=smart&auto=webp&s=154582c6ba27a518387387b46aeeba0f4cf3fca9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
