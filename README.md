@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**🎶I feel so sorry for the next one in line. They'll never know that you're a skeleton without a spine.🎵**  
-<img src="https://preview.redd.it/8hgju6zfiexf1.png?width=640&crop=smart&auto=webp&s=28a699e218d51499b906d47b902b89b45461527f" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/ekk0ovslgwxf1.png?width=1080&crop=smart&auto=webp&s=fa5941f7c804497fa1a819c167e0b675c4c55e83" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
