@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**31st of october be like:**  
-<img src="https://preview.redd.it/t47at4ng0nxf1.png?width=640&crop=smart&auto=webp&s=a2961dfac868fc35fac539d66595cbf05287e037" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/mdpwjmpneoxf1.gif?width=320&crop=smart&format=png8&s=51c7df1a9a83823ebedba882df7818304041c8fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
