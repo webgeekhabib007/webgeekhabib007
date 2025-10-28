@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Curse you Ozempic!"**  
-<img src="https://preview.redd.it/h202paxaxpxf1.png?width=640&crop=smart&auto=webp&s=d4a0a7f12ccc6d6b80ccfbe009bc52f140e95e1f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5qzj1jti9lxf1.png?width=1080&crop=smart&auto=webp&s=549ae00d9da22e403387559312c088fedc78633d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
