@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**31st of october be like:**  
-<img src="https://preview.redd.it/t47at4ng0nxf1.png?width=640&crop=smart&auto=webp&s=a2961dfac868fc35fac539d66595cbf05287e037" alt="Random Meme" width="500"/>
+**Bro Thinks He's On The Team**  
+<img src="https://preview.redd.it/88k2nqu2prxf1.png?width=320&crop=smart&auto=webp&s=0ca6d95f78642f2b63a879abc0c7818261f623aa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
