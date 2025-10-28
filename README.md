@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Life is so expensive ... all the time.**  
-<img src="https://preview.redd.it/78ufmqzwnhxf1.png?width=1080&crop=smart&auto=webp&s=3051421cb4ff5ecc5a120e14e001d8939133aeaf" alt="Random Meme" width="500"/>
+**Ofcourse this is a fantasy**  
+<img src="https://preview.redd.it/mwy6jf07qoxf1.png?width=320&crop=smart&auto=webp&s=eed5970e2ecd297580b82ff8c83be31535122c48" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
