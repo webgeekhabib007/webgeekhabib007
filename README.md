@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/mdpwjmpneoxf1.gif?width=320&crop=smart&format=png8&s=51c7df1a9a83823ebedba882df7818304041c8fe" alt="Random Meme" width="500"/>
+**Introverts life tips**  
+<img src="https://preview.redd.it/gl5kl6q79pxf1.png?width=320&crop=smart&auto=webp&s=a0d902e47b49abf0ad498db909791468b999f1fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
