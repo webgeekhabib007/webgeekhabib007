@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What inning?**  
-<img src="https://preview.redd.it/adorpsupqsxf1.png?width=1080&crop=smart&auto=webp&s=1e5a9f2a9b9780f50a9824e021e4a3cc975d00fc" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/a9s8g9r14ixf1.png?width=1080&crop=smart&auto=webp&s=59cf03c216b863ad4b31893deca2d2229e1a168b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
