@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No seriously, why does Twitch go out of their way to run defense for everyone to sexually assaults their streamers?**  
-<img src="https://preview.redd.it/j7472doofzxf1.png?width=1080&crop=smart&auto=webp&s=699ff40d2f4614af2224049d077e5ac7a9095a7d" alt="Random Meme" width="500"/>
+**Where did you find this type of girl. Where can I find the Alt girl paradise**  
+<img src="https://preview.redd.it/l2i1n9axtjxf1.gif?width=640&crop=smart&format=png8&s=f87fde34a083faf396b965a9aed9764ff02300b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
