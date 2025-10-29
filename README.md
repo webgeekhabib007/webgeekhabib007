@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Where did you find this type of girl. Where can I find the Alt girl paradise**  
-<img src="https://preview.redd.it/l2i1n9axtjxf1.gif?width=640&crop=smart&format=png8&s=f87fde34a083faf396b965a9aed9764ff02300b1" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5qzj1jti9lxf1.png?width=1080&crop=smart&auto=webp&s=549ae00d9da22e403387559312c088fedc78633d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
