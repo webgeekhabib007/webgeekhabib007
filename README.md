@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nobody knows**  
-<img src="https://preview.redd.it/63dq0j1u2uxf1.gif?width=640&crop=smart&format=png8&s=5c942428ebec40f42ccb6aac22e2a856cf17d244" alt="Random Meme" width="500"/>
+**He walks alone, under the big city light, he always knows, just when the time is right.**  
+<img src="https://preview.redd.it/6f3obuf4ssxf1.gif?width=640&crop=smart&format=png8&s=66556f16e3a93b2832b370b864728f5d9a788155" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
