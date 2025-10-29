@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Resistance is futile!**  
-<img src="https://preview.redd.it/5volnbw8pvxf1.png?width=320&crop=smart&auto=webp&s=a41d16322a2b810d80c578db7e5484a03f5efdb0" alt="Random Meme" width="500"/>
+**No seriously, why does Twitch go out of their way to run defense for everyone to sexually assaults their streamers?**  
+<img src="https://preview.redd.it/j7472doofzxf1.png?width=1080&crop=smart&auto=webp&s=699ff40d2f4614af2224049d077e5ac7a9095a7d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
