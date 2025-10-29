@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No idea who made these guys the big 4, but it makes total sense**  
-<img src="https://preview.redd.it/enh71wo5ivxf1.png?width=640&crop=smart&auto=webp&s=1eee2d27cbfe5d6da34216ac7a45c2caf6c91e0d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/d9lxzp94noxf1.gif?width=320&crop=smart&format=png8&s=6270f43f4e4d066dd27675d3830739835883eb0b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
