@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**EVERY. SINGLE. TIME.**  
-<img src="https://preview.redd.it/0v6xjetcq0yf1.png?width=640&crop=smart&auto=webp&s=7c7494f47459f614a2497a1dcf99bdd02d6fc14b" alt="Random Meme" width="500"/>
+**see the turtle, ain't he keen**  
+<img src="https://preview.redd.it/ppn686f0gkxf1.png?width=320&crop=smart&auto=webp&s=110d7b1b51004c08f297af313010a922bd150b70" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
