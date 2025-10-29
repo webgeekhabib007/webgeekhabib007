@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My life**  
-<img src="https://preview.redd.it/1struvoav1yf1.png?width=640&crop=smart&auto=webp&s=d0f131ea01ac14c81e791ef1cff69fbdcac85fe7" alt="Random Meme" width="500"/>
+**We apparently have different ideas of what's hot**  
+<img src="https://preview.redd.it/ze14hla4boxf1.png?width=960&crop=smart&auto=webp&s=e7664905241d98a74e2f2ff02b8ced58e95ecd84" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
