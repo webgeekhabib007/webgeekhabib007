@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**my game is over..**  
-<img src="https://preview.redd.it/0kz26gl8l2yf1.gif?width=320&crop=smart&format=png8&s=c875442ad8c0dbb1b5e570f1dd41a341dd047c1d" alt="Random Meme" width="500"/>
+**see the turtle, ain't he keen**  
+<img src="https://preview.redd.it/ppn686f0gkxf1.png?width=320&crop=smart&auto=webp&s=110d7b1b51004c08f297af313010a922bd150b70" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
