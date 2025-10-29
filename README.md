@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He walks alone, under the big city light, he always knows, just when the time is right.**  
-<img src="https://preview.redd.it/6f3obuf4ssxf1.gif?width=640&crop=smart&format=png8&s=66556f16e3a93b2832b370b864728f5d9a788155" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/93x0w61eirxf1.png?width=1080&crop=smart&auto=webp&s=9903e6c4cd074993abe07cfee1b07f1d3b188c00" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
