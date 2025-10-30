@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/1ayt8w5kttxf1.png?width=1080&crop=smart&auto=webp&s=fdbee36fb6e35b1064005cdddb6a8b9d637698d9" alt="Random Meme" width="500"/>
+**(The Northstar would be acceptable too)**  
+<img src="https://preview.redd.it/fkezx09dt2yf1.gif?width=320&crop=smart&format=png8&s=23ab4cb7fd05a8717b9a7b963386cc2afd386fdf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
