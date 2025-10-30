@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/6d00exmx16yf1.png?width=1080&crop=smart&auto=webp&s=b23d261736a75a6fc2b06553ca3427154baab8c8" alt="Random Meme" width="500"/>
+**His spidervision was right; the glasses make things worse**  
+<img src="https://preview.redd.it/x456k7mu7uxf1.png?width=1080&crop=smart&auto=webp&s=6a1dd0f5b02d1b6c2afd0c82fb1c797fc3a891e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
