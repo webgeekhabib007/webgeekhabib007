@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/g2tb0ytwszxf1.png?width=1080&crop=smart&auto=webp&s=e87199ab35f81695af75308d4994a89fa034a2cb" alt="Random Meme" width="500"/>
+**It's a terrible day for rain..**  
+<img src="https://preview.redd.it/xeqms65dl5yf1.png?width=1080&crop=smart&auto=webp&s=ce40ba9ed8ad4e86f21ef1291bb654758c557df0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
