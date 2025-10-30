@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bro Thinks He's On The Team**  
-<img src="https://preview.redd.it/88k2nqu2prxf1.png?width=320&crop=smart&auto=webp&s=0ca6d95f78642f2b63a879abc0c7818261f623aa" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/1ayt8w5kttxf1.png?width=1080&crop=smart&auto=webp&s=fdbee36fb6e35b1064005cdddb6a8b9d637698d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
