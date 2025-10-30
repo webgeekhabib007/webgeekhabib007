@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**thank you, cableless headphone developers**  
-<img src="https://preview.redd.it/n9kmisut7wxf1.png?width=640&crop=smart&auto=webp&s=159950a4d1333a41ef2eb9b1f0b4e411ac36526f" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/g2tb0ytwszxf1.png?width=1080&crop=smart&auto=webp&s=e87199ab35f81695af75308d4994a89fa034a2cb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
