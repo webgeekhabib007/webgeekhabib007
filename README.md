@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pootatoes …idk couldn’t think of a title**  
-<img src="https://preview.redd.it/g9rk9kelruxf1.gif?width=640&crop=smart&format=png8&s=109de2157cba7175b1e8432d0d19b6661ddb6943" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/6d00exmx16yf1.png?width=1080&crop=smart&auto=webp&s=b23d261736a75a6fc2b06553ca3427154baab8c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
