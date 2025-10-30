@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**His spidervision was right; the glasses make things worse**  
-<img src="https://preview.redd.it/x456k7mu7uxf1.png?width=1080&crop=smart&auto=webp&s=6a1dd0f5b02d1b6c2afd0c82fb1c797fc3a891e2" alt="Random Meme" width="500"/>
+**We apparently have different ideas of what's hot**  
+<img src="https://preview.redd.it/ze14hla4boxf1.png?width=960&crop=smart&auto=webp&s=e7664905241d98a74e2f2ff02b8ced58e95ecd84" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
