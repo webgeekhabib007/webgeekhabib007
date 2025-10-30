@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**(The Northstar would be acceptable too)**  
-<img src="https://preview.redd.it/fkezx09dt2yf1.gif?width=320&crop=smart&format=png8&s=23ab4cb7fd05a8717b9a7b963386cc2afd386fdf" alt="Random Meme" width="500"/>
+**thank you, cableless headphone developers**  
+<img src="https://preview.redd.it/n9kmisut7wxf1.png?width=640&crop=smart&auto=webp&s=159950a4d1333a41ef2eb9b1f0b4e411ac36526f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
