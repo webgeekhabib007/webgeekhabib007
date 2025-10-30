@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In a perfect world ads are in 144p**  
-<img src="https://preview.redd.it/92m74ay6uyxf1.png?width=1080&crop=smart&auto=webp&s=0854bc0ccd3bbf3948d4cb41910346fd7451527e" alt="Random Meme" width="500"/>
+**Pootatoes …idk couldn’t think of a title**  
+<img src="https://preview.redd.it/g9rk9kelruxf1.gif?width=640&crop=smart&format=png8&s=109de2157cba7175b1e8432d0d19b6661ddb6943" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
