@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**oof...can't recover from that**  
-<img src="https://preview.redd.it/go3cwr9p1txf1.png?width=640&crop=smart&auto=webp&s=ec423d69ce8c1f88c712991a225440be0f5a2894" alt="Random Meme" width="500"/>
+**Gotta pay for Crime Fighting Somehow**  
+<img src="https://preview.redd.it/a6zj3jdrfqxf1.png?width=960&crop=smart&auto=webp&s=1f12af5be41902d53c1e640104e27c0948ed5fd2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
