@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/g2tb0ytwszxf1.png?width=1080&crop=smart&auto=webp&s=e87199ab35f81695af75308d4994a89fa034a2cb" alt="Random Meme" width="500"/>
+**Always the scariest pause in a conversation**  
+<img src="https://preview.redd.it/yquismtmtmxf1.png?width=1080&crop=smart&auto=webp&s=f573fb59727b913ba0ed56af9e6c30b47e43d56b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
