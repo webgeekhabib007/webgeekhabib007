@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Always the scariest pause in a conversation**  
-<img src="https://preview.redd.it/yquismtmtmxf1.png?width=1080&crop=smart&auto=webp&s=f573fb59727b913ba0ed56af9e6c30b47e43d56b" alt="Random Meme" width="500"/>
+**In a perfect world ads are in 144p**  
+<img src="https://preview.redd.it/92m74ay6uyxf1.png?width=1080&crop=smart&auto=webp&s=0854bc0ccd3bbf3948d4cb41910346fd7451527e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
