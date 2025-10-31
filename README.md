@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Digging your grave at the finest**  
-<img src="https://preview.redd.it/blbtned7dayf1.png?width=320&crop=smart&auto=webp&s=fcab7588ba852d0c0f74deafb0f7fba34c0ee9e3" alt="Random Meme" width="500"/>
+**Good news! Japan's Patent office rejected Nintendo's attempt claim the patent on a game mechanics**  
+<img src="https://preview.redd.it/qch6wceb0eyf1.png?width=1080&crop=smart&auto=webp&s=b0adc539f6cbfa3e501096e7f3af79128bcadcc0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
