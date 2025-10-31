@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"When it's an accident they call it manslaughter." –Chowder**  
-<img src="https://preview.redd.it/kc5h57xke7yf1.png?width=1080&crop=smart&auto=webp&s=0202e4e17b52641af7fc6ac88d776e3919fec1b0" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/kz2ty7vsr8yf1.png?width=1080&crop=smart&auto=webp&s=8f3cb7e78c62e5738bff96e591dabcfe292e205d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
