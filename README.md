@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For Harambee and Peanut**  
-<img src="https://preview.redd.it/6kyt1hg09dyf1.png?width=960&crop=smart&auto=webp&s=3d55de1efbdc0fa5b71dcec78f70ff8e766ea45d" alt="Random Meme" width="500"/>
+**When you and your chief rivals show up to the top hat convention at full power**  
+<img src="https://preview.redd.it/1nd0krnxwcyf1.png?width=640&crop=smart&auto=webp&s=164d970084cb36ac8b02a4c293dd239ed111c286" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
