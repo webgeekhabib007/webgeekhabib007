@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For Harambee and Peanut**  
-<img src="https://preview.redd.it/6kyt1hg09dyf1.png?width=960&crop=smart&auto=webp&s=3d55de1efbdc0fa5b71dcec78f70ff8e766ea45d" alt="Random Meme" width="500"/>
+**they masacred my boy**  
+<img src="https://preview.redd.it/9e5ohq8ufeyf1.gif?width=640&crop=smart&format=png8&s=3c03e4b2eb00f0afac204f4dfde5f938a133e36a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
