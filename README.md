@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/9hm6cofv46yf1.png?width=640&crop=smart&auto=webp&s=c4e36c7fc8052c8e5629589fc2ebe52774fff3e5" alt="Random Meme" width="500"/>
+**Did I ever tell you the definition of FLAMMENWERFER**  
+<img src="https://preview.redd.it/yg5pwelafdyf1.png?width=1080&crop=smart&auto=webp&s=d6a71e6730371f67ec6c21c430b40ec7b8180021" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
