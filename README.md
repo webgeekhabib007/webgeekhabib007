@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Good news! Japan's Patent office rejected Nintendo's attempt claim the patent on a game mechanics**  
-<img src="https://preview.redd.it/qch6wceb0eyf1.png?width=1080&crop=smart&auto=webp&s=b0adc539f6cbfa3e501096e7f3af79128bcadcc0" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/irywj2i9x1yf1.png?width=1080&crop=smart&auto=webp&s=2c11632ed2f16464948cba37a0c01ae9ad86eee9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
