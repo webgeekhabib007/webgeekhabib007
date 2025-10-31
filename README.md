@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Resistance is futile!**  
-<img src="https://preview.redd.it/5volnbw8pvxf1.png?width=320&crop=smart&auto=webp&s=a41d16322a2b810d80c578db7e5484a03f5efdb0" alt="Random Meme" width="500"/>
+**For Harambee and Peanut**  
+<img src="https://preview.redd.it/6kyt1hg09dyf1.png?width=960&crop=smart&auto=webp&s=3d55de1efbdc0fa5b71dcec78f70ff8e766ea45d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
