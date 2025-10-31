@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Noble Sacrifice**  
-<img src="https://preview.redd.it/1l05gtr7heyf1.png?width=640&crop=smart&auto=webp&s=5d683fb31e5aabc9e88bb272b1a2daf1c67ab201" alt="Random Meme" width="500"/>
+**Digging your grave at the finest**  
+<img src="https://preview.redd.it/blbtned7dayf1.png?width=320&crop=smart&auto=webp&s=fcab7588ba852d0c0f74deafb0f7fba34c0ee9e3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
