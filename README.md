@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they masacred my boy**  
-<img src="https://preview.redd.it/9e5ohq8ufeyf1.gif?width=640&crop=smart&format=png8&s=3c03e4b2eb00f0afac204f4dfde5f938a133e36a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2vrb7ltuw9yf1.png?width=640&crop=smart&auto=webp&s=166436fdc64db63cf7cb6684b3853571e80ddc89" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
