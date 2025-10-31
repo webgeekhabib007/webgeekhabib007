@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When you and your chief rivals show up to the top hat convention at full power**  
-<img src="https://preview.redd.it/1nd0krnxwcyf1.png?width=640&crop=smart&auto=webp&s=164d970084cb36ac8b02a4c293dd239ed111c286" alt="Random Meme" width="500"/>
+**Digging your grave at the finest**  
+<img src="https://preview.redd.it/blbtned7dayf1.png?width=320&crop=smart&auto=webp&s=fcab7588ba852d0c0f74deafb0f7fba34c0ee9e3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
