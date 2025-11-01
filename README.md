@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/8ni6kzglwiyf1.png?width=320&crop=smart&auto=webp&s=0e408e9c39ab2843343b718592f75cb4e7d7fa0c" alt="Random Meme" width="500"/>
+**Arceus ☢️☢️[OC]**  
+<img src="https://preview.redd.it/7evxydrltmyf1.gif?width=216&crop=smart&format=png8&s=1027b7322efd1cf55c10d828c9d965070c6723f8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
