@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/qfo9pt2zxmyf1.png?width=640&crop=smart&auto=webp&s=db77f5e8663edea2a9c77b289a5ad00ab8064577" alt="Random Meme" width="500"/>
+**That shi crazzy**  
+<img src="https://preview.redd.it/e3omrakx6hyf1.png?width=1080&crop=smart&auto=webp&s=7cd28603e8ef3a96449844c694e8f104c55eea9f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
