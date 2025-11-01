@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"It's an acquired taste"**  
-<img src="https://preview.redd.it/qorkd5x5xnyf1.png?width=1080&crop=smart&auto=webp&s=d6f4195bc3ff35de8d583f66c76691a0196340e7" alt="Random Meme" width="500"/>
+**Trick or treat**  
+<img src="https://preview.redd.it/0j0unwd4ofyf1.png?width=960&crop=smart&auto=webp&s=ca8d8f8da6ba123491c7e977d750beb1db5f4560" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
