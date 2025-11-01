@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Digging your own grave , atp.**  
-<img src="https://preview.redd.it/vu1fk77yl8yf1.png?width=320&crop=smart&auto=webp&s=cf1fa5b9a8b30d9439188ee8f47bf661f6302c38" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/8ni6kzglwiyf1.png?width=320&crop=smart&auto=webp&s=0e408e9c39ab2843343b718592f75cb4e7d7fa0c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
