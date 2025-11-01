@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That shi crazzy**  
-<img src="https://preview.redd.it/e3omrakx6hyf1.png?width=1080&crop=smart&auto=webp&s=7cd28603e8ef3a96449844c694e8f104c55eea9f" alt="Random Meme" width="500"/>
+**Digging your own grave , atp.**  
+<img src="https://preview.redd.it/vu1fk77yl8yf1.png?width=320&crop=smart&auto=webp&s=cf1fa5b9a8b30d9439188ee8f47bf661f6302c38" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
