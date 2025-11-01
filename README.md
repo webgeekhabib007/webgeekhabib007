@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me in the morning**  
-<img src="https://preview.redd.it/xyyj739238yf1.png?width=320&crop=smart&auto=webp&s=0dcd1e7496a2deb5845d0e154fe033ae5853c89f" alt="Random Meme" width="500"/>
+**Shitpost Half-Life 2 - JDG template**  
+<img src="https://preview.redd.it/dwcfe56orxxf1.png?width=1080&crop=smart&auto=webp&s=0b2efcf97f8aec2da2f59f66568deb56ed3138d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
