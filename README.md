@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How in the word did "6-7" get in there?**  
-<img src="https://preview.redd.it/sf9hatq8bjyf1.png?width=960&crop=smart&auto=webp&s=fa2326f7e05815bd89c2cf7f1dbb8bae7bf6d5ec" alt="Random Meme" width="500"/>
+**Me in the morning**  
+<img src="https://preview.redd.it/xyyj739238yf1.png?width=320&crop=smart&auto=webp&s=0dcd1e7496a2deb5845d0e154fe033ae5853c89f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
