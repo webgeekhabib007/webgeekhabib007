@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Resistance is futile!**  
-<img src="https://preview.redd.it/5volnbw8pvxf1.png?width=320&crop=smart&auto=webp&s=a41d16322a2b810d80c578db7e5484a03f5efdb0" alt="Random Meme" width="500"/>
+**How in the word did "6-7" get in there?**  
+<img src="https://preview.redd.it/sf9hatq8bjyf1.png?width=960&crop=smart&auto=webp&s=fa2326f7e05815bd89c2cf7f1dbb8bae7bf6d5ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
