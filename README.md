@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**May I offer you cringe in these spooky times?**  
-<img src="https://preview.redd.it/t2hya71vrayf1.png?width=640&crop=smart&auto=webp&s=12abb75be8a901bad1f69245f1032b38a6669981" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://external-preview.redd.it/lMI0OTGF5xz_rVrI_Q8gCvv2IXCqkwRV6iizGTzoScY.png?width=320&crop=smart&auto=webp&s=d99f0460e8d14f3a9cf7fde6d67abd6134e76a55" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
