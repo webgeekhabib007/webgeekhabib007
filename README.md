@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Trick or treat**  
-<img src="https://preview.redd.it/0j0unwd4ofyf1.png?width=960&crop=smart&auto=webp&s=ca8d8f8da6ba123491c7e977d750beb1db5f4560" alt="Random Meme" width="500"/>
+**Digging your own grave , atp.**  
+<img src="https://preview.redd.it/vu1fk77yl8yf1.png?width=320&crop=smart&auto=webp&s=cf1fa5b9a8b30d9439188ee8f47bf661f6302c38" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
