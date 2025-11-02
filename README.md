@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**With friends like these, having enemies is a blessing**  
-<img src="https://preview.redd.it/kznutf59cnyf1.png?width=960&crop=smart&auto=webp&s=bc8eeccf16ba54459247eed8363812c62e561bd7" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/kz2ty7vsr8yf1.png?width=1080&crop=smart&auto=webp&s=8f3cb7e78c62e5738bff96e591dabcfe292e205d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
