@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**50000 dollars used to live here. Now its a ghost bank account.**  
-<img src="https://preview.redd.it/sy7ypv82aqyf1.gif?width=640&crop=smart&format=png8&s=315cb1271992b690282181512686a2bbafedfc34" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/1rwqjpke4oyf1.png?width=640&crop=smart&auto=webp&s=3af926c2d8a92c31ab1d335dfb278a1b00075e46" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
