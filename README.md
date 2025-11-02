@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dang, Travis Kelce 👁👄👁**  
-<img src="https://preview.redd.it/j9f5kxl7svyf1.png?width=640&crop=smart&auto=webp&s=4dafd8aabb2feeced45aac4db672a71e25d32fff" alt="Random Meme" width="500"/>
+**A rock solid gamepad**  
+<img src="https://preview.redd.it/q0gek31dduyf1.png?width=320&crop=smart&auto=webp&s=c167b9cfaf7db9e970b1b4ac11b4df0edcaa97f6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
