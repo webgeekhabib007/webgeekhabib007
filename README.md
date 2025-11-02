@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Enough Shopping.**  
-<img src="https://preview.redd.it/u0faocg8rsyf1.png?width=320&crop=smart&auto=webp&s=98cd1418267c918eadd3db6f41766af82b94828b" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/m0j8ch8xuayf1.png?width=1080&crop=smart&auto=webp&s=e82cac30d2d6cf5217eb203314f2c8d878153f98" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
