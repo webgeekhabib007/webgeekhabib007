@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Off the couch? - Dogs...**  
-<img src="https://preview.redd.it/07bx3o0obuyf1.png?width=1080&crop=smart&auto=webp&s=36656975671f0e4a53e644b44b2bb3e562878c41" alt="Random Meme" width="500"/>
+**Won't someone please think of the children??**  
+<img src="https://preview.redd.it/cguzfr26khyf1.png?width=1080&crop=smart&auto=webp&s=20c8f14e7de0baa28607efa0e17501015edabcce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
