@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/m0j8ch8xuayf1.png?width=1080&crop=smart&auto=webp&s=e82cac30d2d6cf5217eb203314f2c8d878153f98" alt="Random Meme" width="500"/>
+**Egyptian god Medjed, God of uninspiring Halloween costumes and has lazers shooting out from his eyes, true story.**  
+<img src="https://preview.redd.it/yjyqc4gy9jyf1.png?width=1080&crop=smart&auto=webp&s=b0ab62d85aee269b7c12ac0ecbebe4647586cf51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
