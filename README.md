@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Digging your own grave , atp.**  
-<img src="https://preview.redd.it/vu1fk77yl8yf1.png?width=320&crop=smart&auto=webp&s=cf1fa5b9a8b30d9439188ee8f47bf661f6302c38" alt="Random Meme" width="500"/>
+**No Nut November is not for me**  
+<img src="https://preview.redd.it/sxdfe9ibpoyf1.png?width=960&crop=smart&auto=webp&s=2b3a2611975dec87250b11c2876c4eda83be3024" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
