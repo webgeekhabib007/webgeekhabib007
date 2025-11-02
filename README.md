@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Such an intelligent guy**  
-<img src="https://preview.redd.it/kju4tm9ouoyf1.png?width=640&crop=smart&auto=webp&s=8d8ae8f41164b9cc61d9fd8f5392d71875b97822" alt="Random Meme" width="500"/>
+**With friends like these, having enemies is a blessing**  
+<img src="https://preview.redd.it/kznutf59cnyf1.png?width=960&crop=smart&auto=webp&s=bc8eeccf16ba54459247eed8363812c62e561bd7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
