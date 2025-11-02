@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No Nut November is not for me**  
-<img src="https://preview.redd.it/sxdfe9ibpoyf1.png?width=960&crop=smart&auto=webp&s=2b3a2611975dec87250b11c2876c4eda83be3024" alt="Random Meme" width="500"/>
+**Such an intelligent guy**  
+<img src="https://preview.redd.it/kju4tm9ouoyf1.png?width=640&crop=smart&auto=webp&s=8d8ae8f41164b9cc61d9fd8f5392d71875b97822" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
