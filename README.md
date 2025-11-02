@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Korby.**  
-<img src="https://preview.redd.it/tkadovzncoyf1.png?width=640&crop=smart&auto=webp&s=240817b365f88728825dd626e7ae98d7bb1243ac" alt="Random Meme" width="500"/>
+**Dang, Travis Kelce 👁👄👁**  
+<img src="https://preview.redd.it/j9f5kxl7svyf1.png?width=640&crop=smart&auto=webp&s=4dafd8aabb2feeced45aac4db672a71e25d32fff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
