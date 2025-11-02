@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Won't someone please think of the children??**  
-<img src="https://preview.redd.it/cguzfr26khyf1.png?width=1080&crop=smart&auto=webp&s=20c8f14e7de0baa28607efa0e17501015edabcce" alt="Random Meme" width="500"/>
+**Korby.**  
+<img src="https://preview.redd.it/tkadovzncoyf1.png?width=640&crop=smart&auto=webp&s=240817b365f88728825dd626e7ae98d7bb1243ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
