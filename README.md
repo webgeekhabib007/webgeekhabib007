@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**May I offer you cringe in these spooky times?**  
-<img src="https://preview.redd.it/t2hya71vrayf1.png?width=640&crop=smart&auto=webp&s=12abb75be8a901bad1f69245f1032b38a6669981" alt="Random Meme" width="500"/>
+**Praise the great mouse leader**  
+<img src="https://preview.redd.it/2i0n8flkrvyf1.gif?width=320&crop=smart&format=png8&s=f3bf3acdaea54cc00a16cf46411922fffd13eae5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
