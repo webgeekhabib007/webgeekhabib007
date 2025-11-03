@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A rock solid gamepad**  
-<img src="https://preview.redd.it/q0gek31dduyf1.png?width=320&crop=smart&auto=webp&s=c167b9cfaf7db9e970b1b4ac11b4df0edcaa97f6" alt="Random Meme" width="500"/>
+**old games on new pc**  
+<img src="https://preview.redd.it/7luja3yr7uyf1.png?width=1080&crop=smart&auto=webp&s=f7fe5bec136166958b7d119ad3c4b71a5efa3e7d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
