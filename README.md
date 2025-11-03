@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Parents: Be yourself! Also parents:**  
-<img src="https://preview.redd.it/zlc3rh2k00zf1.png?width=1080&crop=smart&auto=webp&s=05d2d2f8873aeb2e3b700b9b6f9bcf97acb9d0f2" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xrfuadt47wyf1.png?width=1080&crop=smart&auto=webp&s=da044d16b1a58438ba3e88198150650a3a50af76" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
