@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Barely disguised wehraboo fetish**  
-<img src="https://preview.redd.it/7zbb053uwtyf1.png?width=320&crop=smart&auto=webp&s=6a88ae32e9cdf19b3cdc46a2d727478c8a038bf7" alt="Random Meme" width="500"/>
+**"Liaaaaaaar!!!!"**  
+<img src="https://preview.redd.it/3ocfukzyukyf1.png?width=640&crop=smart&auto=webp&s=6aa4a5be19cfb8aa9bacee8b8f5ed93207a69b5c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
