@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**old games on new pc**  
-<img src="https://preview.redd.it/7luja3yr7uyf1.png?width=1080&crop=smart&auto=webp&s=f7fe5bec136166958b7d119ad3c4b71a5efa3e7d" alt="Random Meme" width="500"/>
+**Parents: Be yourself! Also parents:**  
+<img src="https://preview.redd.it/zlc3rh2k00zf1.png?width=1080&crop=smart&auto=webp&s=05d2d2f8873aeb2e3b700b9b6f9bcf97acb9d0f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
