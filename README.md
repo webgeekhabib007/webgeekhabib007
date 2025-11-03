@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Praise the great mouse leader**  
-<img src="https://preview.redd.it/2i0n8flkrvyf1.gif?width=320&crop=smart&format=png8&s=f3bf3acdaea54cc00a16cf46411922fffd13eae5" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ki3ufqvcnnyf1.png?width=320&crop=smart&auto=webp&s=f0b02a629b0b72b7e7514d7dff64288056b392f4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
