@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I don't get it**  
-<img src="https://preview.redd.it/vfnscll81uyf1.png?width=640&crop=smart&auto=webp&s=35fcf4d1a609b7bdb351d10bb97e312f0a70ad9f" alt="Random Meme" width="500"/>
+**POV: You remake Jaws but your lead actor is Sacabambaspis**  
+<img src="https://preview.redd.it/821krjxku2zf1.png?width=1080&crop=smart&auto=webp&s=ed14d6fdd9ea1212d30c475769a60bd5b264b2b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
