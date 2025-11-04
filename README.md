@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Now that’s scary**  
-<img src="https://preview.redd.it/kgdkyue7nkyf1.gif?width=320&crop=smart&format=png8&s=6f4e5f0ba570d47afd46bbb4160d402017e17f08" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xrfuadt47wyf1.png?width=1080&crop=smart&auto=webp&s=da044d16b1a58438ba3e88198150650a3a50af76" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
