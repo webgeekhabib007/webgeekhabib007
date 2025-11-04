@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**9/11 caused the downfall of Ellen DeGeneres**  
-<img src="https://preview.redd.it/e3t2kbpeb8zf1.png?width=640&crop=smart&auto=webp&s=3bd0a5160da9e818a3e52618f9a0a0f3cd7d48c0" alt="Random Meme" width="500"/>
+**POV: You remake Jaws but your lead actor is Sacabambaspis**  
+<img src="https://preview.redd.it/821krjxku2zf1.png?width=1080&crop=smart&auto=webp&s=ed14d6fdd9ea1212d30c475769a60bd5b264b2b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
