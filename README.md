@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I don’t know why I did it but I know it was worth it**  
-<img src="https://preview.redd.it/n23e648x4syf1.gif?width=640&crop=smart&format=png8&s=959484489786917a030e339e51c8afeb604bb3da" alt="Random Meme" width="500"/>
+**holiday meme**  
+<img src="https://preview.redd.it/dfrc0yn8uyyf1.png?width=640&crop=smart&auto=webp&s=78f6bedd86e8b43bee1b690deac0b87263ff4636" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
