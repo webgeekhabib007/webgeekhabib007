@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Title***  
-<img src="https://preview.redd.it/0lpr9szkfsyf1.png?width=640&crop=smart&auto=webp&s=da72624846d4cb4d185ed80f28647845de819278" alt="Random Meme" width="500"/>
+**9/11 caused the downfall of Ellen DeGeneres**  
+<img src="https://preview.redd.it/e3t2kbpeb8zf1.png?width=640&crop=smart&auto=webp&s=3bd0a5160da9e818a3e52618f9a0a0f3cd7d48c0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
