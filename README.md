@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**holiday meme**  
-<img src="https://preview.redd.it/dfrc0yn8uyyf1.png?width=640&crop=smart&auto=webp&s=78f6bedd86e8b43bee1b690deac0b87263ff4636" alt="Random Meme" width="500"/>
+**Title***  
+<img src="https://preview.redd.it/0lpr9szkfsyf1.png?width=640&crop=smart&auto=webp&s=da72624846d4cb4d185ed80f28647845de819278" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
