@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/frok7orlf1zf1.png?width=1080&crop=smart&auto=webp&s=a47127cfba09e842ce112f6d1bd80769556ab894" alt="Random Meme" width="500"/>
+**The struggle is real**  
+<img src="https://preview.redd.it/aaukcgc5m0zf1.png?width=640&crop=smart&auto=webp&s=76ac8d8c0b183147005c1c19c23b7ca153368a1d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
