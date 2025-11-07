@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Keep ruining systems by those clankers &amp; give us the Infinite money glitch**  
-<img src="https://preview.redd.it/ehqbgm35jizf1.png?width=640&crop=smart&auto=webp&s=5bfc16e97dc78d2fc169661be59b02776b60b869" alt="Random Meme" width="500"/>
+**Its a "Monopoly"**  
+<img src="https://preview.redd.it/w372b2htktzf1.gif?width=216&crop=smart&format=png8&s=aeb3cc282bea4f1e5a9205cb37f9f57bcb904915" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
