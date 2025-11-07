@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Guess I'll die**  
-<img src="https://preview.redd.it/4sw6ji3ywozf1.png?width=1080&crop=smart&auto=webp&s=b746b18480de32934056ae1bb0ff9e25da09d2b1" alt="Random Meme" width="500"/>
+**Hottest Planet**  
+<img src="https://preview.redd.it/q53fqvd8pqzf1.png?width=640&crop=smart&auto=webp&s=03f4bbab7521eecc1d1e7302e6d39bc8cf891a57" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
