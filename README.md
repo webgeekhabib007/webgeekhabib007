@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No respect**  
-<img src="https://preview.redd.it/qyi55spjkozf1.png?width=640&crop=smart&auto=webp&s=469f148169bcadf3c0297b25e5fad13ae18533d2" alt="Random Meme" width="500"/>
+**Keep ruining systems by those clankers &amp; give us the Infinite money glitch**  
+<img src="https://preview.redd.it/ehqbgm35jizf1.png?width=640&crop=smart&auto=webp&s=5bfc16e97dc78d2fc169661be59b02776b60b869" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
