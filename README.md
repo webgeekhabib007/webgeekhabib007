@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Especially when they whine about how the team is playing.**  
-<img src="https://preview.redd.it/nafh7kqtdkzf1.gif?width=320&crop=smart&format=png8&s=5771a70da038ab0ba28d09d3846b1b780194fa3d" alt="Random Meme" width="500"/>
+**No respect**  
+<img src="https://preview.redd.it/qyi55spjkozf1.png?width=640&crop=smart&auto=webp&s=469f148169bcadf3c0297b25e5fad13ae18533d2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
