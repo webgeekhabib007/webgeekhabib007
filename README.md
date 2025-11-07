@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Big sad**  
-<img src="https://preview.redd.it/tg4adxrm2rzf1.gif?width=640&crop=smart&format=png8&s=0a60f5fd4c2f6f09765b0ba2f40641b940ceea89" alt="Random Meme" width="500"/>
+**Guess I'll die**  
+<img src="https://preview.redd.it/4sw6ji3ywozf1.png?width=1080&crop=smart&auto=webp&s=b746b18480de32934056ae1bb0ff9e25da09d2b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
