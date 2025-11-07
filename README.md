@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Its a "Monopoly"**  
-<img src="https://preview.redd.it/w372b2htktzf1.gif?width=216&crop=smart&format=png8&s=aeb3cc282bea4f1e5a9205cb37f9f57bcb904915" alt="Random Meme" width="500"/>
+**Don't swear at home folks:(**  
+<img src="https://preview.redd.it/gn391v9csuzf1.png?width=960&crop=smart&auto=webp&s=89e5986f763e80aa0ba3d5e207322094939efd82" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
