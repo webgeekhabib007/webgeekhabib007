@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's all Roguelites!**  
-<img src="https://preview.redd.it/hthdm9hg0rzf1.gif?width=320&crop=smart&format=png8&s=e45ea327d8cf763b2d8b0eefb1f28d7bb060de24" alt="Random Meme" width="500"/>
+**that was rude!**  
+<img src="https://preview.redd.it/5tqtqr2mefzf1.png?width=320&crop=smart&auto=webp&s=ab581ec49740385279202cafef7a024895113e3b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
