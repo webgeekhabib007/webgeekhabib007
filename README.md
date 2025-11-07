@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Keep ruining systems by those clankers &amp; give us the Infinite money glitch**  
-<img src="https://preview.redd.it/ehqbgm35jizf1.png?width=640&crop=smart&auto=webp&s=5bfc16e97dc78d2fc169661be59b02776b60b869" alt="Random Meme" width="500"/>
+**Especially when they whine about how the team is playing.**  
+<img src="https://preview.redd.it/nafh7kqtdkzf1.gif?width=320&crop=smart&format=png8&s=5771a70da038ab0ba28d09d3846b1b780194fa3d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
