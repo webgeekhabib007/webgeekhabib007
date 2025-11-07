@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hottest Planet**  
-<img src="https://preview.redd.it/q53fqvd8pqzf1.png?width=640&crop=smart&auto=webp&s=03f4bbab7521eecc1d1e7302e6d39bc8cf891a57" alt="Random Meme" width="500"/>
+**Don’t lecture me Jesus I enjoyed bashing Badger head in and I enjoyed shooting Joan in the face. I know it wouldn’t bring my niece back and how she probably wouldn’t approve (which we don’t know) but I’m not doing this for her I’m doing this for me.**  
+<img src="https://preview.redd.it/t3b09kdcmlzf1.gif?width=640&crop=smart&format=png8&s=666f2d36b1998a6a65a4c869772512d1e797b35a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
