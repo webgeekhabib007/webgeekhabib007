@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/a9lm87djzvzf1.png?width=1080&crop=smart&auto=webp&s=65822c150b294e1b6bb07e09035618d0f50e5d09" alt="Random Meme" width="500"/>
+**I wanna go play kickball**  
+<img src="https://preview.redd.it/05zky753ndzf1.gif?width=320&crop=smart&format=png8&s=25a678168ccafeb92400373f88713224819c4550" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
