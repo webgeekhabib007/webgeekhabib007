@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/et9zia5xauzf1.png?width=640&crop=smart&auto=webp&s=6b84d71e4ffc029b5314f99dec3f3c566146e5ba" alt="Random Meme" width="500"/>
+**Is it too late to go back now**  
+<img src="https://preview.redd.it/0d8p5e8ldlzf1.png?width=640&crop=smart&auto=webp&s=0faf1a2b57bd16d8ce6857663b2c52f82f6cdbcb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
