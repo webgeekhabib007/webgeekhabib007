@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**HR decides to hire relative**  
-<img src="https://preview.redd.it/v3j8rcdd4uzf1.png?width=960&crop=smart&auto=webp&s=dde8caff5aa68e65f88bb87e6cc18e96cac5042e" alt="Random Meme" width="500"/>
+**Somebody toucha my spaghett**  
+<img src="https://preview.redd.it/vczplcusxmzf1.png?width=1080&crop=smart&auto=webp&s=db541b432d4b31b340f95426b4307b6d95928aa9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
