@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Somebody toucha my spaghett**  
-<img src="https://preview.redd.it/vczplcusxmzf1.png?width=1080&crop=smart&auto=webp&s=db541b432d4b31b340f95426b4307b6d95928aa9" alt="Random Meme" width="500"/>
+**I wanna go play kickball**  
+<img src="https://preview.redd.it/05zky753ndzf1.gif?width=320&crop=smart&format=png8&s=25a678168ccafeb92400373f88713224819c4550" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
