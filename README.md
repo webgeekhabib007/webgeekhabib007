@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**my attention span is absolutely done**  
-<img src="https://preview.redd.it/kh9j5clga00g1.png?width=960&crop=smart&auto=webp&s=34aea0876fbad0bea19e1dfc9111b42fd5d63edd" alt="Random Meme" width="500"/>
+**I feel the future might not be so great.**  
+<img src="https://preview.redd.it/gedwz0haovzf1.png?width=1080&crop=smart&auto=webp&s=1145f3619861c27b3c6a79103bbb03e912677ded" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
