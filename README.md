@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Special Announcement**  
-<img src="https://preview.redd.it/buk8gwqcfpzf1.png?width=640&crop=smart&auto=webp&s=eb4761043f980aa596c80b191290fe51cb523866" alt="Random Meme" width="500"/>
+**Donkussy is a thing Y’all**  
+<img src="https://preview.redd.it/1fb9oelrtjzf1.gif?width=640&crop=smart&format=png8&s=b2d4bc68b2372a3a5d53b46df0a5457f4caa0328" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
