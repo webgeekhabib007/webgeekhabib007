@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I feel the future might not be so great.**  
-<img src="https://preview.redd.it/gedwz0haovzf1.png?width=1080&crop=smart&auto=webp&s=1145f3619861c27b3c6a79103bbb03e912677ded" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/6hnv9f3w710g1.png?width=1080&crop=smart&auto=webp&s=1576b2e8b07742e1c7963057d0f1d2b33225df5b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
