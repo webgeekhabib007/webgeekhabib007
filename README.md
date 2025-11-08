@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is it too late to go back now**  
-<img src="https://preview.redd.it/0d8p5e8ldlzf1.png?width=640&crop=smart&auto=webp&s=0faf1a2b57bd16d8ce6857663b2c52f82f6cdbcb" alt="Random Meme" width="500"/>
+**Its a "Monopoly"**  
+<img src="https://preview.redd.it/w372b2htktzf1.gif?width=216&crop=smart&format=png8&s=aeb3cc282bea4f1e5a9205cb37f9f57bcb904915" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
