@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Were getting paid who cares**  
-<img src="https://preview.redd.it/tlc2e1ed120g1.gif?width=320&crop=smart&format=png8&s=6be4036fafe4b75eef1cd1f500b7938e750f321a" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/b7jsxrrg960g1.png?width=1080&crop=smart&auto=webp&s=eb3d53579df3e348e1e2c9b4752943500ff142de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
