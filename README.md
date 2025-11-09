@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**muscle popping❌machine hopping✅**  
-<img src="https://preview.redd.it/7l76tatly60g1.gif?width=1080&crop=smart&format=png8&s=2f6e1724d8f29c2847a8edf9d6e2fd0720890cf1" alt="Random Meme" width="500"/>
+**Me in real world**  
+<img src="https://preview.redd.it/t3bxe3pln30g1.png?width=320&crop=smart&auto=webp&s=382d87f326221ef099d3f1f667153fae7b0baa65" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
