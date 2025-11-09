@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I wanna go play kickball**  
-<img src="https://preview.redd.it/05zky753ndzf1.gif?width=320&crop=smart&format=png8&s=25a678168ccafeb92400373f88713224819c4550" alt="Random Meme" width="500"/>
+**Don’t lecture me Jesus I enjoyed bashing Badger head in and I enjoyed shooting Joan in the face. I know it wouldn’t bring my niece back and how she probably wouldn’t approve (which we don’t know) but I’m not doing this for her I’m doing this for me.**  
+<img src="https://preview.redd.it/t3b09kdcmlzf1.gif?width=640&crop=smart&format=png8&s=666f2d36b1998a6a65a4c869772512d1e797b35a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
