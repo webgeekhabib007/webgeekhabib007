@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/nybv2epz6zzf1.png?width=960&crop=smart&auto=webp&s=3d4943ab6c4f523a27f18dde41560c2b1ef9034c" alt="Random Meme" width="500"/>
+**Pika, oh pika! fuuuuuuck!!!**  
+<img src="https://preview.redd.it/x2qq6lddwwzf1.png?width=640&crop=smart&auto=webp&s=dc7bcf34ed79fe729767aa562af33a711103bed5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
