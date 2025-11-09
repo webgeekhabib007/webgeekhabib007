@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Big sad**  
-<img src="https://preview.redd.it/tg4adxrm2rzf1.gif?width=640&crop=smart&format=png8&s=0a60f5fd4c2f6f09765b0ba2f40641b940ceea89" alt="Random Meme" width="500"/>
+**I feel the future might not be so great.**  
+<img src="https://preview.redd.it/gedwz0haovzf1.png?width=1080&crop=smart&auto=webp&s=1145f3619861c27b3c6a79103bbb03e912677ded" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
