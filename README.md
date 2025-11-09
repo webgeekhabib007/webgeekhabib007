@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don’t lecture me Jesus I enjoyed bashing Badger head in and I enjoyed shooting Joan in the face. I know it wouldn’t bring my niece back and how she probably wouldn’t approve (which we don’t know) but I’m not doing this for her I’m doing this for me.**  
-<img src="https://preview.redd.it/t3b09kdcmlzf1.gif?width=640&crop=smart&format=png8&s=666f2d36b1998a6a65a4c869772512d1e797b35a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/qmhjtkat8vzf1.png?width=960&crop=smart&auto=webp&s=7c76d8ca2d3871ef0fdfa25edfdc4cb545ac75d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
