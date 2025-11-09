@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Did i stutter?**  
-<img src="https://preview.redd.it/6g0js2dsw30g1.png?width=1080&crop=smart&auto=webp&s=fd6f14da843b312195fe9fcfc054485613358eef" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/6hnv9f3w710g1.png?width=1080&crop=smart&auto=webp&s=1576b2e8b07742e1c7963057d0f1d2b33225df5b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
