@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me in real world**  
-<img src="https://preview.redd.it/t3bxe3pln30g1.png?width=320&crop=smart&auto=webp&s=382d87f326221ef099d3f1f667153fae7b0baa65" alt="Random Meme" width="500"/>
+**Were getting paid who cares**  
+<img src="https://preview.redd.it/tlc2e1ed120g1.gif?width=320&crop=smart&format=png8&s=6be4036fafe4b75eef1cd1f500b7938e750f321a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
