@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I feel the future might not be so great.**  
-<img src="https://preview.redd.it/gedwz0haovzf1.png?width=1080&crop=smart&auto=webp&s=1145f3619861c27b3c6a79103bbb03e912677ded" alt="Random Meme" width="500"/>
+**muscle popping❌machine hopping✅**  
+<img src="https://preview.redd.it/7l76tatly60g1.gif?width=1080&crop=smart&format=png8&s=2f6e1724d8f29c2847a8edf9d6e2fd0720890cf1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
