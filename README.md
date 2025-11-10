@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Talking to an Italian person in Italian vs talking to a French person in French**  
-<img src="https://preview.redd.it/u8ljvoenf90g1.png?width=1080&crop=smart&auto=webp&s=9a404c8ca2f56ad29301e2529b91faa16f5d8ba5" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/py5mivzkw20g1.png?width=1080&crop=smart&auto=webp&s=e30a26de75e637a911c467fa304d6d51d03f8873" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
