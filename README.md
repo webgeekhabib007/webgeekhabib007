@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/xoq0ycafqa0g1.png?width=640&crop=smart&auto=webp&s=4f96d9fb0643610af364963d2a4f6c52f03f7143" alt="Random Meme" width="500"/>
+**better than drugs**  
+<img src="https://preview.redd.it/do4fegutqa0g1.png?width=320&crop=smart&auto=webp&s=25f8d81666ba9f420c2b3b62db5d4f28f0a5095e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
