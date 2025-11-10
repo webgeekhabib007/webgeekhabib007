@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They steal your meme**  
-<img src="https://preview.redd.it/b5j7de1m0vzf1.png?width=960&crop=smart&auto=webp&s=8648b87ca288f7e95e620718e0853d04030cce6c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xoq0ycafqa0g1.png?width=640&crop=smart&auto=webp&s=4f96d9fb0643610af364963d2a4f6c52f03f7143" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
