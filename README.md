@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"sorry, someone already took this position"**  
-<img src="https://preview.redd.it/ylckrlsjf70g1.png?width=960&crop=smart&auto=webp&s=8fdcfdaeea2aed7a011c70cdcf51bd5d5188e8db" alt="Random Meme" width="500"/>
+**BUT YOU'RE AN OFFLINE GAME??? WHY DO YOU NEED TO BE UPDATED???**  
+<img src="https://preview.redd.it/2df44736y70g1.png?width=640&crop=smart&auto=webp&s=9b6310b035cd685de419585fbe1df2776fc3ab11" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
