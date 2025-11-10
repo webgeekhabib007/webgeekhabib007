@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Inner peace**  
-<img src="https://preview.redd.it/7cjc1s978zzf1.png?width=640&crop=smart&auto=webp&s=6fd02929188576a4e914d78e6c85731028fb78c7" alt="Random Meme" width="500"/>
+**The bigger they are the harder they fall**  
+<img src="https://preview.redd.it/slhyebwa1i0g1.png?width=1080&crop=smart&auto=webp&s=b6d3ed71383cf304221ca5fb52fbd7c6cb0d5d86" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
