@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**True for the coders**  
-<img src="https://preview.redd.it/itofxz8hf20g1.png?width=640&crop=smart&auto=webp&s=b8b2c14d2f5400ce8a161ef5b7df56d212d4fb79" alt="Random Meme" width="500"/>
+**"Cute birds and all, but I don't get what they have to do with your great tits."**  
+<img src="https://preview.redd.it/n7xzy1tucrzf1.png?width=640&crop=smart&auto=webp&s=3c1b8a563c04f956d1cf3e0168c5431dcf24804a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
