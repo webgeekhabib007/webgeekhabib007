@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They steal your meme**  
-<img src="https://preview.redd.it/b5j7de1m0vzf1.png?width=960&crop=smart&auto=webp&s=8648b87ca288f7e95e620718e0853d04030cce6c" alt="Random Meme" width="500"/>
+**can I go to the bathroom**  
+<img src="https://preview.redd.it/f0wdlnoch20g1.gif?width=320&crop=smart&format=png8&s=579f2ca990be2859ae48d9280c7e0355adc5273d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
