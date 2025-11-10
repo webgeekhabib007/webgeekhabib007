@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Women really are based, huh?**  
-<img src="https://preview.redd.it/igwiule9alzf1.png?width=640&crop=smart&auto=webp&s=25cb32bb362e7e8f3e85c750d06743d47586501c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xoq0ycafqa0g1.png?width=640&crop=smart&auto=webp&s=4f96d9fb0643610af364963d2a4f6c52f03f7143" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
