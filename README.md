@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**can I go to the bathroom**  
-<img src="https://preview.redd.it/f0wdlnoch20g1.gif?width=320&crop=smart&format=png8&s=579f2ca990be2859ae48d9280c7e0355adc5273d" alt="Random Meme" width="500"/>
+**I need help**  
+<img src="https://preview.redd.it/2unc1axmmc0g1.gif?width=320&crop=smart&format=png8&s=2519f3a869f0450a07daf25952ba8f95215ec8ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
