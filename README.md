@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/b7jsxrrg960g1.png?width=1080&crop=smart&auto=webp&s=eb3d53579df3e348e1e2c9b4752943500ff142de" alt="Random Meme" width="500"/>
+**For those who want to get married**  
+<img src="https://preview.redd.it/yi6dd2xmzb0g1.gif?width=320&crop=smart&format=png8&s=e6b54b0fc8f92b987302069fff5739f1c8bcb8ca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
