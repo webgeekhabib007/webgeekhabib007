@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The bigger they are the harder they fall**  
-<img src="https://preview.redd.it/slhyebwa1i0g1.png?width=1080&crop=smart&auto=webp&s=b6d3ed71383cf304221ca5fb52fbd7c6cb0d5d86" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/7kbm5to4h40g1.png?width=640&crop=smart&auto=webp&s=662bcbc234cb8c9e50eb3ab9f7cb5a91c11f53e6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
