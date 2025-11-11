@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**She approaches and there's no stopping her!**  
-<img src="https://preview.redd.it/mlayptepvj0g1.png?width=320&crop=smart&auto=webp&s=946ac57bbea5a0fd61d8eb2a3d49ffdc733ccc77" alt="Random Meme" width="500"/>
+**Crazy man.**  
+<img src="https://preview.redd.it/ckwhj5ptib0g1.png?width=640&crop=smart&auto=webp&s=ef47ed947aac2b47a67b2c9a92ede365229bc8ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
