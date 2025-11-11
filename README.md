@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Crazy man.**  
-<img src="https://preview.redd.it/ckwhj5ptib0g1.png?width=640&crop=smart&auto=webp&s=ef47ed947aac2b47a67b2c9a92ede365229bc8ad" alt="Random Meme" width="500"/>
+**Why do parents do this ?**  
+<img src="https://preview.redd.it/87z32jc6ak0g1.png?width=1080&crop=smart&auto=webp&s=c47a289d23ea90607782e87ab10533705a4e7a0a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
