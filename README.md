@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ai has mental breakdown 2025 colorized**  
-<img src="https://preview.redd.it/c6fj5rqgcl0g1.gif?width=640&crop=smart&format=png8&s=65d11db5b94eb081feefa9201965d66828243488" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/sccz2f8jk80g1.png?width=1080&crop=smart&auto=webp&s=fdb9db32f634f9d35efe3898614024af8128ce0a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
