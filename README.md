@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/s3nbc9zmxzzf1.gif?width=320&crop=smart&format=png8&s=bb25441a225f3ecf3ca0febbf3a9dd1cb047385b" alt="Random Meme" width="500"/>
+**"sorry, someone already took this position"**  
+<img src="https://preview.redd.it/ylckrlsjf70g1.png?width=960&crop=smart&auto=webp&s=8fdcfdaeea2aed7a011c70cdcf51bd5d5188e8db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
