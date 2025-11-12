@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Poor guy I pity him so much**  
-<img src="https://preview.redd.it/0po7wyqgyo0g1.png?width=320&crop=smart&auto=webp&s=c59dc44a1e980ffa62dd080dece0b98f8739bfa5" alt="Random Meme" width="500"/>
+**50 years ago today.**  
+<img src="https://preview.redd.it/njehxqburi0g1.png?width=1080&crop=smart&auto=webp&s=e15c7318fb243f79f1bfbab043e4a3e38f6657ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
