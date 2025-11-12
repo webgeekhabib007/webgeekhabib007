@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the duality of a man**  
-<img src="https://preview.redd.it/8bu3pjorqp0g1.png?width=320&crop=smart&auto=webp&s=81275677c5329361b66b74c634d9f1ffe63f0349" alt="Random Meme" width="500"/>
+**This is why it bombed**  
+<img src="https://preview.redd.it/92daars1sm0g1.png?width=960&crop=smart&auto=webp&s=8eaa6d35c18a23fbcd61f8f71b471e588449687d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
