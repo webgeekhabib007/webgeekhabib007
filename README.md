@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hitchhiker's Guide joke**  
-<img src="https://preview.redd.it/f9rizhlacm0g1.png?width=1080&crop=smart&auto=webp&s=ff7d77fbe256fd1fe0f06bcff4bdeaddfdfecb4a" alt="Random Meme" width="500"/>
+**the duality of a man**  
+<img src="https://preview.redd.it/8bu3pjorqp0g1.png?width=320&crop=smart&auto=webp&s=81275677c5329361b66b74c634d9f1ffe63f0349" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
