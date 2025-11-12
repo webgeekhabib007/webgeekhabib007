@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**沒有共產黨就沒有新中國**  
-<img src="https://preview.redd.it/7xv0z2r6ao0g1.gif?width=320&crop=smart&format=png8&s=e73d7744e1460d3f85b87a2c5cac5eff94f7c3af" alt="Random Meme" width="500"/>
+**This is it**  
+<img src="https://preview.redd.it/a06o4ftnkf0g1.png?width=320&crop=smart&auto=webp&s=4ce524a6f691cdd997e12461a05463c1e3b4162b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
