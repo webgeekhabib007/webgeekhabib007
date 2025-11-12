@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A Twitch title.**  
-<img src="https://preview.redd.it/swubo85xa50g1.png?width=1080&crop=smart&auto=webp&s=e0cf4887d6e164b352f1945adca004105fad0fe2" alt="Random Meme" width="500"/>
+**沒有共產黨就沒有新中國**  
+<img src="https://preview.redd.it/7xv0z2r6ao0g1.gif?width=320&crop=smart&format=png8&s=e73d7744e1460d3f85b87a2c5cac5eff94f7c3af" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
