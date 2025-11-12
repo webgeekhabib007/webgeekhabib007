@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Tungsten Cube my beloved**  
-<img src="https://preview.redd.it/7qec0929kn0g1.png?width=640&crop=smart&auto=webp&s=69ceb421456dedcc15a924e1efbf9c5d3d59bd45" alt="Random Meme" width="500"/>
+**Ligma ballroom**  
+<img src="https://preview.redd.it/3p7b46vp6v0g1.png?width=320&crop=smart&auto=webp&s=d08d2cfc8c7190ae2547eb9b72abea5d3749bbb4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
