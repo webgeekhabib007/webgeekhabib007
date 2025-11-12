@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/kfcsvsw4pn0g1.png?width=640&crop=smart&auto=webp&s=188fd741a420e4df880a1dbb26a0422d1b5a282d" alt="Random Meme" width="500"/>
+**It's their 50 Shade's**  
+<img src="https://preview.redd.it/wucbyrl7lm0g1.png?width=960&crop=smart&auto=webp&s=8deec9548eaccf129f29ea11be108d9fc2ee9f91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
