@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't fail what you don't try**  
-<img src="https://preview.redd.it/4vvaqyl39e0g1.png?width=640&crop=smart&auto=webp&s=3d1dd9b263c062a4ce89a670aadf3aa267e62d80" alt="Random Meme" width="500"/>
+**Tungsten Cube my beloved**  
+<img src="https://preview.redd.it/7qec0929kn0g1.png?width=640&crop=smart&auto=webp&s=69ceb421456dedcc15a924e1efbf9c5d3d59bd45" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
