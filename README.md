@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ONLY 250FPS?!!?!?!?! WHAT IS THIS, A LAPTOP?!?!?!?**  
-<img src="https://preview.redd.it/74vgaqr5qo0g1.png?width=320&crop=smart&auto=webp&s=95463c5377d48452b46cb419544bf0c13303d10f" alt="Random Meme" width="500"/>
+**Can't fail what you don't try**  
+<img src="https://preview.redd.it/4vvaqyl39e0g1.png?width=640&crop=smart&auto=webp&s=3d1dd9b263c062a4ce89a670aadf3aa267e62d80" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
