@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A lot of you guys get mad at that Dark Souls meme with the giant guy saying people aren’t using it right.**  
-<img src="https://preview.redd.it/biupq6kgg90g1.gif?width=640&crop=smart&format=png8&s=7c25ec80a3b5bb0228e25613037f1f00935e551a" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/kfcsvsw4pn0g1.png?width=640&crop=smart&auto=webp&s=188fd741a420e4df880a1dbb26a0422d1b5a282d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
