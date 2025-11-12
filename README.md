@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's their 50 Shade's**  
-<img src="https://preview.redd.it/wucbyrl7lm0g1.png?width=960&crop=smart&auto=webp&s=8deec9548eaccf129f29ea11be108d9fc2ee9f91" alt="Random Meme" width="500"/>
+**Which one is it going to be?**  
+<img src="https://preview.redd.it/2ccw2zacka0g1.png?width=640&crop=smart&auto=webp&s=0e7d573fc024b12a0042294633cc8783ea63eae2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
