@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is why it bombed**  
-<img src="https://preview.redd.it/92daars1sm0g1.png?width=960&crop=smart&auto=webp&s=8eaa6d35c18a23fbcd61f8f71b471e588449687d" alt="Random Meme" width="500"/>
+**Kirkified**  
+<img src="https://preview.redd.it/xmrksstzkk0g1.png?width=640&crop=smart&auto=webp&s=c40a70b1b58b1ec049a36438b401f9e21e1ae09e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
