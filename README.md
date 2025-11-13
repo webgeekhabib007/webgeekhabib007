@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is why it bombed**  
-<img src="https://preview.redd.it/92daars1sm0g1.png?width=960&crop=smart&auto=webp&s=8eaa6d35c18a23fbcd61f8f71b471e588449687d" alt="Random Meme" width="500"/>
+**Why can’t I shoot the traitor!! Just let me do it!!!!**  
+<img src="https://preview.redd.it/ec8p0q9d2b0g1.gif?width=640&crop=smart&format=png8&s=05e95da4d052053e065314da6eb0bbd155e37bde" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
