@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**All for the million dollars**  
-<img src="https://preview.redd.it/e316vs8fjy0g1.png?width=1080&crop=smart&auto=webp&s=414cf26d3b6b5289ee2d4c9b5d41ef9bb37e1c75" alt="Random Meme" width="500"/>
+**It's their 50 Shade's**  
+<img src="https://preview.redd.it/wucbyrl7lm0g1.png?width=960&crop=smart&auto=webp&s=8deec9548eaccf129f29ea11be108d9fc2ee9f91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
