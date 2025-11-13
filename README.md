@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/0aa10104ym0g1.png?width=960&crop=smart&auto=webp&s=6ad7f1b47f6bb15d20892cffe7d6fb480a3bf8c0" alt="Random Meme" width="500"/>
+**Ligma ballroom**  
+<img src="https://preview.redd.it/3p7b46vp6v0g1.png?width=320&crop=smart&auto=webp&s=d08d2cfc8c7190ae2547eb9b72abea5d3749bbb4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
