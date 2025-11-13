@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sharp corners are mean**  
-<img src="https://preview.redd.it/x0bpqab5bm0g1.png?width=960&crop=smart&auto=webp&s=ff26cb93b702902fa82147676b3dcb0047d7ad1b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5eq363ci9t0g1.png?width=640&crop=smart&auto=webp&s=eb166454bc2194835618e9ce01b1e54f813304ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
