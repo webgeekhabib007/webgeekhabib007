@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Time to get the Golden ending whilst romancing Chie again**  
-<img src="https://preview.redd.it/gq3l8gdneg0g1.gif?width=320&crop=smart&format=png8&s=d4eabfd702e4e5b452ca61f2a2b83ca260c2df20" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/t5f9e59gv01g1.gif?width=320&crop=smart&format=png8&s=cdc762decfd01e06090647c60286c82d38fc8504" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
