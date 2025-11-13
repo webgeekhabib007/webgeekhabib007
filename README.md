@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's their 50 Shade's**  
-<img src="https://preview.redd.it/wucbyrl7lm0g1.png?width=960&crop=smart&auto=webp&s=8deec9548eaccf129f29ea11be108d9fc2ee9f91" alt="Random Meme" width="500"/>
+**Sharp corners are mean**  
+<img src="https://preview.redd.it/x0bpqab5bm0g1.png?width=960&crop=smart&auto=webp&s=ff26cb93b702902fa82147676b3dcb0047d7ad1b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
