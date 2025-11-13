@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
+**All for the million dollars**  
+<img src="https://preview.redd.it/e316vs8fjy0g1.png?width=1080&crop=smart&auto=webp&s=414cf26d3b6b5289ee2d4c9b5d41ef9bb37e1c75" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
