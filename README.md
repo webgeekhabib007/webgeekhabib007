@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**50 years ago today.**  
-<img src="https://preview.redd.it/njehxqburi0g1.png?width=1080&crop=smart&auto=webp&s=e15c7318fb243f79f1bfbab043e4a3e38f6657ae" alt="Random Meme" width="500"/>
+**This is why it bombed**  
+<img src="https://preview.redd.it/92daars1sm0g1.png?width=960&crop=smart&auto=webp&s=8eaa6d35c18a23fbcd61f8f71b471e588449687d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
