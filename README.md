@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Spoiler: This is no Platinum Tier**  
-<img src="https://preview.redd.it/h4sqsfh5f41g1.gif?width=320&crop=smart&format=png8&s=556476aaa7b246d81a82efd5b784ff7c661ff881" alt="Random Meme" width="500"/>
+**May the carts be with you**  
+<img src="https://preview.redd.it/4b6xhv0q991g1.png?width=320&crop=smart&auto=webp&s=3f8cf4aec66d6e60891947dd26b5821ea44cee51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
