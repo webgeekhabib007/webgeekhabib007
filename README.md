@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'll never understand their thought process**  
-<img src="https://preview.redd.it/idbxefh6d31g1.png?width=1080&crop=smart&auto=webp&s=cfb1f1b962abd6cb3f77ffcb311f094a253c699f" alt="Random Meme" width="500"/>
+**Yo!… fuck yo kids…**  
+<img src="https://preview.redd.it/l9voi8bbg51g1.gif?width=640&crop=smart&format=png8&s=5f586687a6e406230525d369190c30af46288b0d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
