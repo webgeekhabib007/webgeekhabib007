@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A surrender title.**  
-<img src="https://preview.redd.it/menjp2k2pz0g1.png?width=640&crop=smart&auto=webp&s=46a1aa5045d3602356dc7fdf124a9c49ae4d4e25" alt="Random Meme" width="500"/>
+**Spoiler: This is no Platinum Tier**  
+<img src="https://preview.redd.it/h4sqsfh5f41g1.gif?width=320&crop=smart&format=png8&s=556476aaa7b246d81a82efd5b784ff7c661ff881" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
