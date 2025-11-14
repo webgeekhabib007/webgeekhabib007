@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/qnod6bntkz0g1.png?width=1080&crop=smart&auto=webp&s=806032c744ffeddca73e72c700640a9002a197b4" alt="Random Meme" width="500"/>
+**The fuck you mean I didn’t submit it. Even the computer said I submitted it. I fucking hate online classes.**  
+<img src="https://preview.redd.it/8j4vrx73ip0g1.gif?width=640&crop=smart&format=png8&s=788ec93e5fb1b5076d8f25d352ea7b9c741ac1d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
