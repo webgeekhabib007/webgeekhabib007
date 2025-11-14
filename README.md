@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Big Aurora Borealis**  
-<img src="https://preview.redd.it/adg2kqdds01g1.png?width=1080&crop=smart&auto=webp&s=2be2c9a98394846e308c890e05845a1d34db8d49" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/95vj7hijn11g1.png?width=1080&crop=smart&auto=webp&s=8f93adb7c164fda5c694b0fd69263d5cbcc50c1d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
