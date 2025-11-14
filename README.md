@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The fuck you mean I didn’t submit it. Even the computer said I submitted it. I fucking hate online classes.**  
-<img src="https://preview.redd.it/8j4vrx73ip0g1.gif?width=640&crop=smart&format=png8&s=788ec93e5fb1b5076d8f25d352ea7b9c741ac1d1" alt="Random Meme" width="500"/>
+**A surrender title.**  
+<img src="https://preview.redd.it/menjp2k2pz0g1.png?width=640&crop=smart&auto=webp&s=46a1aa5045d3602356dc7fdf124a9c49ae4d4e25" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
