@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anything for the birdussy**  
-<img src="https://preview.redd.it/r39qt903q91g1.gif?width=640&crop=smart&format=png8&s=5377bb4b88002520797c649f479471fd239a3250" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cbg2h0gbm71g1.png?width=640&crop=smart&auto=webp&s=3f1fed0b9e8599a104cdaa9fabb1353790b845e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
