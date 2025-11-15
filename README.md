@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Absurd fantasies**  
-<img src="https://preview.redd.it/8fcdo5kfcf1g1.png?width=1080&crop=smart&auto=webp&s=5f752e5a361c6dcf0b8c9d657a308e0c739e8b04" alt="Random Meme" width="500"/>
+**They jerk themselves a little too hard over there**  
+<img src="https://preview.redd.it/a02ew5q9e51g1.png?width=640&crop=smart&auto=webp&s=7933d1f9914a5765c6571676a2757025181a3603" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
