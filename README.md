@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**FBI open up!**  
-<img src="https://preview.redd.it/r4keiyz1i01g1.png?width=1080&crop=smart&auto=webp&s=9b4211a8ee1b7155974fc1d16d690867ef976e85" alt="Random Meme" width="500"/>
+**It's a bad day to be the Penny Plunderer**  
+<img src="https://preview.redd.it/k7b0yiavm41g1.gif?width=320&crop=smart&format=png8&s=411403c16dba4fbcab0ff506daeb52d652fe51c0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
