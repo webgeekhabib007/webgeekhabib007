@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Imagine the new stories with the Penny Plunderer. Yes that’s an actual Batman villain which is why he has that giant penny in the batcave.**  
-<img src="https://preview.redd.it/a18w3jpln61g1.gif?width=640&crop=smart&format=png8&s=4bcdc810ab061719f9206c5dc2867a4978da8c73" alt="Random Meme" width="500"/>
+**time to go to bed with the thoughts of dying every night for the next 2 months before my apointment again, wee ooo 🤩🤩**  
+<img src="https://preview.redd.it/ibki3u72781g1.gif?width=320&crop=smart&format=png8&s=39b8dbf4e8afa6e7398810741f1de8c2b760ce9b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
