@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**IVORY BARBECUE SAUCE**  
-<img src="https://preview.redd.it/jkedtiur191g1.png?width=1080&crop=smart&auto=webp&s=176e6648cac9eb562fbe996511cb0714726ac329" alt="Random Meme" width="500"/>
+**Imagine the new stories with the Penny Plunderer. Yes that’s an actual Batman villain which is why he has that giant penny in the batcave.**  
+<img src="https://preview.redd.it/a18w3jpln61g1.gif?width=640&crop=smart&format=png8&s=4bcdc810ab061719f9206c5dc2867a4978da8c73" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
