@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's a bad day to be the Penny Plunderer**  
-<img src="https://preview.redd.it/k7b0yiavm41g1.gif?width=320&crop=smart&format=png8&s=411403c16dba4fbcab0ff506daeb52d652fe51c0" alt="Random Meme" width="500"/>
+**He's just doing a little trolling**  
+<img src="https://preview.redd.it/8kpgf8zdb81g1.png?width=640&crop=smart&auto=webp&s=a194230af5bc4bbda3ea539b5768b8a4c577906b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
