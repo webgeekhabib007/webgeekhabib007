@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**time to go to bed with the thoughts of dying every night for the next 2 months before my apointment again, wee ooo 🤩🤩**  
-<img src="https://preview.redd.it/ibki3u72781g1.gif?width=320&crop=smart&format=png8&s=39b8dbf4e8afa6e7398810741f1de8c2b760ce9b" alt="Random Meme" width="500"/>
+**Anything for the birdussy**  
+<img src="https://preview.redd.it/r39qt903q91g1.gif?width=640&crop=smart&format=png8&s=5377bb4b88002520797c649f479471fd239a3250" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
