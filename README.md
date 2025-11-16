@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A waste of time**  
-<img src="https://preview.redd.it/a3l8r07rg01g1.gif?width=320&crop=smart&format=png8&s=af26355007fa2dcda8072a6b9aaa966a86cb69a7" alt="Random Meme" width="500"/>
+**Anything for the birdussy**  
+<img src="https://preview.redd.it/r39qt903q91g1.gif?width=640&crop=smart&format=png8&s=5377bb4b88002520797c649f479471fd239a3250" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
