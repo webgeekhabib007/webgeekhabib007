@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They jerk themselves a little too hard over there**  
-<img src="https://preview.redd.it/a02ew5q9e51g1.png?width=640&crop=smart&auto=webp&s=7933d1f9914a5765c6571676a2757025181a3603" alt="Random Meme" width="500"/>
+**A waste of time**  
+<img src="https://preview.redd.it/a3l8r07rg01g1.gif?width=320&crop=smart&format=png8&s=af26355007fa2dcda8072a6b9aaa966a86cb69a7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
