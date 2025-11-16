@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Please shut up**  
-<img src="https://preview.redd.it/609zuyi9un1g1.png?width=640&crop=smart&auto=webp&s=3c014de5482121926688d1b61c44cb65c6b5ac9b" alt="Random Meme" width="500"/>
+**unemployed :3**  
+<img src="https://preview.redd.it/3jc4phtdgi1g1.png?width=320&crop=smart&auto=webp&s=6e1c4c69effda3266783b7bb3d5ada91d90c0211" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
