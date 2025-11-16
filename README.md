@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**title. creative duper super very A**  
-<img src="https://preview.redd.it/80ks97ry2d1g1.png?width=640&crop=smart&auto=webp&s=3027f5ca9727485d1d8e84b7804800114e4c314e" alt="Random Meme" width="500"/>
+**They jerk themselves a little too hard over there**  
+<img src="https://preview.redd.it/a02ew5q9e51g1.png?width=640&crop=smart&auto=webp&s=7933d1f9914a5765c6571676a2757025181a3603" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
