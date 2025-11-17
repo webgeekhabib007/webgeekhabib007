@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That is very sad**  
-<img src="https://preview.redd.it/rw4d5bur6h1g1.png?width=1080&crop=smart&auto=webp&s=be174c12094ecaf32278e34e1421aef654e59860" alt="Random Meme" width="500"/>
+**Dispatch meme**  
+<img src="https://preview.redd.it/pjgx85j3e91g1.png?width=1080&crop=smart&auto=webp&s=10f84de6d2912f6af6a86c1d0433a640bcc4a184" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
