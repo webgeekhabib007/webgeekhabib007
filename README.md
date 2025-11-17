@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yo!… fuck yo kids…**  
-<img src="https://preview.redd.it/l9voi8bbg51g1.gif?width=640&crop=smart&format=png8&s=5f586687a6e406230525d369190c30af46288b0d" alt="Random Meme" width="500"/>
+**The Boys be like:**  
+<img src="https://preview.redd.it/xsldv46q3m1g1.png?width=640&crop=smart&auto=webp&s=5179c6e3c9d2212d211a3eba3ce9fa64eca69554" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
