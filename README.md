@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is that the whiteboy?**  
-<img src="https://preview.redd.it/y5ld2aj3on1g1.png?width=640&crop=smart&auto=webp&s=baa894a2ab78bf697d251a99a0d4a822793aed24" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/qjajhp80vk1g1.png?width=1080&crop=smart&auto=webp&s=8765d4e910adcb1965f448b2bfa7c33a77f63ac9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
