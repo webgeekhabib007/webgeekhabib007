@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Delabubusional.**  
-<img src="https://preview.redd.it/r46wjd5bgi1g1.gif?width=640&crop=smart&format=png8&s=bfb976bdae553eb5273e1442aebaaa29c24ecbde" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/aoe25j8h9f1g1.png?width=640&crop=smart&auto=webp&s=8e1c0e9a3fb87cd5352bf30e9307a1c3afa88d44" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
