@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"What Do You Mean the Yellow Stuff is More Valuable Than the Fancy Silver?!" ~Game Dev**  
-<img src="https://preview.redd.it/ok9fq32tfp1g1.png?width=320&crop=smart&auto=webp&s=f64da22f475a620b83175cc8acae718d7d6bfbbf" alt="Random Meme" width="500"/>
+**Greatest boss fight of all time**  
+<img src="https://preview.redd.it/oe7xmcgkql1g1.png?width=1080&crop=smart&auto=webp&s=6538ae4378b8bdfa6ab7f67b6f6f1fd367f707ce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
