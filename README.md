@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Slap ‘AI’ On It**  
-<img src="https://preview.redd.it/pjgxilfijk1g1.png?width=320&crop=smart&auto=webp&s=423affdc468c4b0e1df25fa84865674f24081f3d" alt="Random Meme" width="500"/>
+**Delabubusional.**  
+<img src="https://preview.redd.it/r46wjd5bgi1g1.gif?width=640&crop=smart&format=png8&s=bfb976bdae553eb5273e1442aebaaa29c24ecbde" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
