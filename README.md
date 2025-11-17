@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**1.5 month to go**  
-<img src="https://preview.redd.it/jg050tk9om1g1.png?width=1080&crop=smart&auto=webp&s=23845b9842a6a6f254dad4bc503d0b4c41f339e2" alt="Random Meme" width="500"/>
+**Yo!… fuck yo kids…**  
+<img src="https://preview.redd.it/l9voi8bbg51g1.gif?width=640&crop=smart&format=png8&s=5f586687a6e406230525d369190c30af46288b0d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
