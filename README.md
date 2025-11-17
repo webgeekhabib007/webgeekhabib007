@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Boys be like:**  
-<img src="https://preview.redd.it/xsldv46q3m1g1.png?width=640&crop=smart&auto=webp&s=5179c6e3c9d2212d211a3eba3ce9fa64eca69554" alt="Random Meme" width="500"/>
+**That is very sad**  
+<img src="https://preview.redd.it/rw4d5bur6h1g1.png?width=1080&crop=smart&auto=webp&s=be174c12094ecaf32278e34e1421aef654e59860" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
