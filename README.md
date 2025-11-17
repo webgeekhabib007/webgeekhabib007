@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/czwbrs26mo1g1.png?width=1080&crop=smart&auto=webp&s=b008873a5e399e1bbf4283715b992561b742f55a" alt="Random Meme" width="500"/>
+**I'm tired of the bad timeline ;.;**  
+<img src="https://preview.redd.it/hz563auqav1g1.png?width=320&crop=smart&auto=webp&s=2abd418114895901d75ddce9d42c5faa6a218316" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
