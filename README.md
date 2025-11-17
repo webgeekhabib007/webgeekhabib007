@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Greatest boss fight of all time**  
-<img src="https://preview.redd.it/oe7xmcgkql1g1.png?width=1080&crop=smart&auto=webp&s=6538ae4378b8bdfa6ab7f67b6f6f1fd367f707ce" alt="Random Meme" width="500"/>
+**May the carts be with you**  
+<img src="https://preview.redd.it/wvep73a4a91g1.png?width=320&crop=smart&auto=webp&s=cf18ee8f54b84761748d4104b79d1e43c3dd3374" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
