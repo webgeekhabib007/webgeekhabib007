@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Orange Box**  
-<img src="https://preview.redd.it/vmlwp5nwl31g1.png?width=960&crop=smart&auto=webp&s=fb02b74d5e56c0a565781030757db8fa03c019c2" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/czwbrs26mo1g1.png?width=1080&crop=smart&auto=webp&s=b008873a5e399e1bbf4283715b992561b742f55a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
