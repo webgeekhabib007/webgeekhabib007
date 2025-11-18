@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ah yes, imagination**  
-<img src="https://preview.redd.it/d9qoqnzh1t1g1.png?width=1080&crop=smart&auto=webp&s=e1593015ca51f3e3273ba0085e52dbecddd2aebf" alt="Random Meme" width="500"/>
+**May the carts be with you**  
+<img src="https://preview.redd.it/wvep73a4a91g1.png?width=320&crop=smart&auto=webp&s=cf18ee8f54b84761748d4104b79d1e43c3dd3374" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
