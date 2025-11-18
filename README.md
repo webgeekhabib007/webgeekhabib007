@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**(nugget) (interspecies) (android) (incest?) (enemies to lovers) (tentacle) (survival)**  
-<img src="https://preview.redd.it/ydb71n2j4p1g1.png?width=1080&crop=smart&auto=webp&s=ec3945cb169cbeac58ece32612d401adb989a4b2" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/73o8oeelw02g1.png?width=640&crop=smart&auto=webp&s=184b00b17c0ed206593eef9315b237e5b7db983d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
