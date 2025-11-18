@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If the employees are fighting, and the rats are playing pat-a-cake, then the food will be delicious.**  
-<img src="https://preview.redd.it/t7nn60w80p1g1.gif?width=640&crop=smart&format=png8&s=afc7cce52ea5e85994ad2aea0239844692c7b634" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2bwwzett9x1g1.png?width=640&crop=smart&auto=webp&s=dff64cf9458deea7ff802ca72ed80e9e5285765f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
