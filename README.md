@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**May the carts be with you**  
-<img src="https://preview.redd.it/wvep73a4a91g1.png?width=320&crop=smart&auto=webp&s=cf18ee8f54b84761748d4104b79d1e43c3dd3374" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/k2ud6znrb02g1.png?width=640&crop=smart&auto=webp&s=96f4a8ea700a21f286fc1fe2be0c080021a78563" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
