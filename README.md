@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What are you doing in my house?**  
-<img src="https://preview.redd.it/cnuvagfa6v1g1.png?width=1080&crop=smart&auto=webp&s=1c03d8d0a891660f7c68f2699e2e6eafbafa167c" alt="Random Meme" width="500"/>
+**Still refusing everything i don't care**  
+<img src="https://preview.redd.it/avldpl8x7u1g1.png?width=960&crop=smart&auto=webp&s=3efb9c6ddf60d61cf203021f1e83bc0f9f861bda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
