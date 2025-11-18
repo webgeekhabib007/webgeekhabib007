@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why is this so common?**  
-<img src="https://preview.redd.it/rp5wgd35go1g1.gif?width=320&crop=smart&format=png8&s=77e798a20e9f81233692f185732675bfc9a7b19a" alt="Random Meme" width="500"/>
+**If the employees are fighting, and the rats are playing pat-a-cake, then the food will be delicious.**  
+<img src="https://preview.redd.it/t7nn60w80p1g1.gif?width=640&crop=smart&format=png8&s=afc7cce52ea5e85994ad2aea0239844692c7b634" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
