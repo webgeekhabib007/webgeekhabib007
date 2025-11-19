@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm tired boss**  
-<img src="https://preview.redd.it/a3ikz7c1f22g1.png?width=960&crop=smart&auto=webp&s=70a48831b96ef9ec1bea87731c6f4effcacfcf46" alt="Random Meme" width="500"/>
+**Why they do all that**  
+<img src="https://preview.redd.it/crw0fgnhv72g1.gif?width=216&crop=smart&format=png8&s=ad621effad1570de4b99bcc42034aedbe8689615" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
