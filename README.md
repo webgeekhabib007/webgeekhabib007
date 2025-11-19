@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Still refusing everything i don't care**  
-<img src="https://preview.redd.it/avldpl8x7u1g1.png?width=960&crop=smart&auto=webp&s=3efb9c6ddf60d61cf203021f1e83bc0f9f861bda" alt="Random Meme" width="500"/>
+**The Internet is kinda dead right now**  
+<img src="https://preview.redd.it/6fjfr3fbu02g1.png?width=320&crop=smart&auto=webp&s=1f0e80aedc176e20528f7cb65f222b678d7dc027" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
