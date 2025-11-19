@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Geforce GTX 1080 ti**  
-<img src="https://preview.redd.it/990m9deqh62g1.gif?width=320&crop=smart&format=png8&s=1971798ff90b9cc19b4845ef9ddc69f11562e9b1" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/tadev8b1m12g1.png?width=1080&crop=smart&auto=webp&s=a99fee36b98ca7eca3ea7c4c366f28566e096a8a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
