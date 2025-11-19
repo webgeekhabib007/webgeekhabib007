@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Which major part of the internet can you not access today?**  
-<img src="https://preview.redd.it/3zxxrhyor02g1.png?width=640&crop=smart&auto=webp&s=2164603afbc357e4469255e1bb2a9fe9b520eaed" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/y1bhbztyav1g1.png?width=1080&crop=smart&auto=webp&s=57940fea8eb1918ff7b5dd1ed0a6629b1817b1bf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
