@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/uipap6hbw22g1.png?width=320&crop=smart&auto=webp&s=d29dc39ece22476c199467590b3b62f879f8d862" alt="Random Meme" width="500"/>
+**Which major part of the internet can you not access today?**  
+<img src="https://preview.redd.it/3zxxrhyor02g1.png?width=640&crop=smart&auto=webp&s=2164603afbc357e4469255e1bb2a9fe9b520eaed" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
