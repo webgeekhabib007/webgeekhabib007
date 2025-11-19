@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/y5ac00o9ax1g1.png?width=1080&crop=smart&auto=webp&s=4c8ddadfb81c883d5add00f0bc20ee9f0277abea" alt="Random Meme" width="500"/>
+**Being an adult is hard**  
+<img src="https://preview.redd.it/gmd3xdb4s32g1.png?width=1080&crop=smart&auto=webp&s=dc8ef1065f09c8d44d7c8d032ef21de42d7802cc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
