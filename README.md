@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Steam sales be like**  
-<img src="https://preview.redd.it/vqnct7cv192g1.png?width=320&crop=smart&auto=webp&s=5f0fdd44e1c35beba861fb3fae4e0cc00e570e7d" alt="Random Meme" width="500"/>
+**I'm tired boss**  
+<img src="https://preview.redd.it/a3ikz7c1f22g1.png?width=960&crop=smart&auto=webp&s=70a48831b96ef9ec1bea87731c6f4effcacfcf46" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
