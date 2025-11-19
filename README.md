@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Web developer huh!**  
-<img src="https://preview.redd.it/13uomzrvl12g1.png?width=640&crop=smart&auto=webp&s=e6a8f1e582811b62ebafcee36be03c426717bc92" alt="Random Meme" width="500"/>
+**Still refusing everything i don't care**  
+<img src="https://preview.redd.it/avldpl8x7u1g1.png?width=960&crop=smart&auto=webp&s=3efb9c6ddf60d61cf203021f1e83bc0f9f861bda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
