@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sasuke no Frieren.**  
-<img src="https://preview.redd.it/rxhr377v772g1.png?width=1080&crop=smart&auto=webp&s=9af52fb88d297fbd871d602ba453afdb3a82a4bc" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/opdij5mk832g1.png?width=320&crop=smart&auto=webp&s=3916b754a2bbad625a377d0592823fdb68779719" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
