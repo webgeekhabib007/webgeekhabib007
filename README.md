@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Internet is kinda dead right now**  
-<img src="https://preview.redd.it/6fjfr3fbu02g1.png?width=320&crop=smart&auto=webp&s=1f0e80aedc176e20528f7cb65f222b678d7dc027" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/7ksxgqq7mz1g1.png?width=1080&crop=smart&auto=webp&s=c8fca88cdec1fda02d2306f6fbfd559cb95fd796" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
