@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A raise be great**  
-<img src="https://preview.redd.it/eo8pji0zl52g1.png?width=320&crop=smart&auto=webp&s=4d98673a43a8441aa2fa893910436145f7208ee1" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/5p8tv348a72g1.png?width=1080&crop=smart&auto=webp&s=7ba84e4db46091625792251a58c5cf387eb4ec59" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
