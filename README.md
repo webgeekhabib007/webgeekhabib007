@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Being an adult is hard**  
-<img src="https://preview.redd.it/gmd3xdb4s32g1.png?width=1080&crop=smart&auto=webp&s=dc8ef1065f09c8d44d7c8d032ef21de42d7802cc" alt="Random Meme" width="500"/>
+**Geforce GTX 1080 ti**  
+<img src="https://preview.redd.it/990m9deqh62g1.gif?width=320&crop=smart&format=png8&s=1971798ff90b9cc19b4845ef9ddc69f11562e9b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
