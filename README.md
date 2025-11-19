@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Remember to tell your guy friends they matter**  
-<img src="https://preview.redd.it/s4vmnnk1h92g1.png?width=320&crop=smart&auto=webp&s=69b9e472065128239259339af6d13d92dbac328c" alt="Random Meme" width="500"/>
+**Steam sales be like**  
+<img src="https://preview.redd.it/vqnct7cv192g1.png?width=320&crop=smart&auto=webp&s=5f0fdd44e1c35beba861fb3fae4e0cc00e570e7d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
