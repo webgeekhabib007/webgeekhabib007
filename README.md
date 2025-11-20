@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**☝️ Did the Surgery, Not Me !**  
-<img src="https://preview.redd.it/q52hroenxf2g1.png?width=640&crop=smart&auto=webp&s=f014c229ed0d00e102b5c35a7c0b6b2bbf758d57" alt="Random Meme" width="500"/>
+**After the alarm goes i can procrastinate for 2 hours**  
+<img src="https://preview.redd.it/ad21yl1png2g1.gif?width=640&crop=smart&format=png8&s=9e5dab446a7ddd3f64a3cb2ed823f7731f3a4e9a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
