@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why they do all that**  
-<img src="https://preview.redd.it/crw0fgnhv72g1.gif?width=216&crop=smart&format=png8&s=ad621effad1570de4b99bcc42034aedbe8689615" alt="Random Meme" width="500"/>
+**Did you forget to ask Clay?**  
+<img src="https://preview.redd.it/xbsfanj5c32g1.png?width=1080&crop=smart&auto=webp&s=b8c5826064e0cb22c6c97df991096f3fd10c4aed" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
