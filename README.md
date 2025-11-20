@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Truest words spoken**  
-<img src="https://preview.redd.it/wqh6nex7d82g1.png?width=1080&crop=smart&auto=webp&s=7bb9e5e1e3607d6ed815c2654db79bc2d4a3a595" alt="Random Meme" width="500"/>
+**now that's what I call a happy ending**  
+<img src="https://preview.redd.it/ved48wafcw1g1.png?width=640&crop=smart&auto=webp&s=e1288ccf378c579ce4434338f2e01fc54ed29737" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
