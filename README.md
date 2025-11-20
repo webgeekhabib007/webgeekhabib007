@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The fuck you mean he’s now considered a suspect!**  
-<img src="https://preview.redd.it/am3evid0852g1.gif?width=640&crop=smart&format=png8&s=f18c07699471b5422ebf180bdf752bf7e10ee3a4" alt="Random Meme" width="500"/>
+**patchnotes are free?!?!**  
+<img src="https://preview.redd.it/qws8ru6fbb2g1.png?width=640&crop=smart&auto=webp&s=f9a9b20bad880758f74bcaa71b8c9fdfaf3f1e2d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
