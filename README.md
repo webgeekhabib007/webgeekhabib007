@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We found old zealand bois**  
-<img src="https://preview.redd.it/8fy8l5iqkb2g1.png?width=1080&crop=smart&auto=webp&s=6276697ce4140c359117e6c2e8ac07de6026e821" alt="Random Meme" width="500"/>
+**The fuck you mean he’s now considered a suspect!**  
+<img src="https://preview.redd.it/am3evid0852g1.gif?width=640&crop=smart&format=png8&s=f18c07699471b5422ebf180bdf752bf7e10ee3a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
