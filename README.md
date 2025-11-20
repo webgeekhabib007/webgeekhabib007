@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why can't day brain just see night brain's genius?**  
-<img src="https://preview.redd.it/mjghwd5fid2g1.png?width=640&crop=smart&auto=webp&s=a17107ed4d75c5affd21e7de85059738d92e7130" alt="Random Meme" width="500"/>
+**Full counter!**  
+<img src="https://preview.redd.it/4ldmdkj8sc2g1.png?width=1080&crop=smart&auto=webp&s=27e118747fae90079112873d1f176a20b7318266" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
