@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Did you forget to ask Clay?**  
-<img src="https://preview.redd.it/xbsfanj5c32g1.png?width=1080&crop=smart&auto=webp&s=b8c5826064e0cb22c6c97df991096f3fd10c4aed" alt="Random Meme" width="500"/>
+**patchnotes are free?!?!**  
+<img src="https://preview.redd.it/qws8ru6fbb2g1.png?width=640&crop=smart&auto=webp&s=f9a9b20bad880758f74bcaa71b8c9fdfaf3f1e2d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
