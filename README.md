@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**After the alarm goes i can procrastinate for 2 hours**  
-<img src="https://preview.redd.it/ad21yl1png2g1.gif?width=640&crop=smart&format=png8&s=9e5dab446a7ddd3f64a3cb2ed823f7731f3a4e9a" alt="Random Meme" width="500"/>
+**"What Do You Mean the Yellow Stuff is More Valuable Than the Fancy Silver?!" ~Game Dev**  
+<img src="https://preview.redd.it/5z89ml2bgp1g1.png?width=320&crop=smart&auto=webp&s=1f6e2c2feb2ba983e813168fdb88a1167b1c1aa8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
