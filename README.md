@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Twink Plower**  
-<img src="https://preview.redd.it/7wp1d1hkdc2g1.png?width=640&crop=smart&auto=webp&s=a824ba0f93dfe9288c3036d0c0cd8123b0df9053" alt="Random Meme" width="500"/>
+**We found old zealand bois**  
+<img src="https://preview.redd.it/8fy8l5iqkb2g1.png?width=1080&crop=smart&auto=webp&s=6276697ce4140c359117e6c2e8ac07de6026e821" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
