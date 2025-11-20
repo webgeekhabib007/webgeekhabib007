@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/oqjjvt2yf52g1.png?width=640&crop=smart&auto=webp&s=902071a2d21f3f477608feef7dd926e697dff413" alt="Random Meme" width="500"/>
+**☝️ Did the Surgery, Not Me !**  
+<img src="https://preview.redd.it/q52hroenxf2g1.png?width=640&crop=smart&auto=webp&s=f014c229ed0d00e102b5c35a7c0b6b2bbf758d57" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
