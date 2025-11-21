@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ed5kpvxc4b2g1.png?width=1080&crop=smart&auto=webp&s=2decaa23d44b40c3001084cd7d30065e4a08fe5d" alt="Random Meme" width="500"/>
+**It always sends a shiver down my spine**  
+<img src="https://preview.redd.it/hj5eempnsh2g1.png?width=640&crop=smart&auto=webp&s=48418f1cf7a5cc515c456d00cc97f29be3582834" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
