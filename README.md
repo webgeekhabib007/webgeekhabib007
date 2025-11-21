@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/lcdrnsxx2k2g1.png?width=1080&crop=smart&auto=webp&s=b0cfacc412a923ec25b9aaa3283fcb03cc1be262" alt="Random Meme" width="500"/>
+**Guess I know what’s going to happen in this episode.**  
+<img src="https://preview.redd.it/uq2cz9bk6h2g1.gif?width=640&crop=smart&format=png8&s=849287c848d9b7e02fc6584dfbc3746c549c7fae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
