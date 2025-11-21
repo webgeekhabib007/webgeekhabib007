@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Full counter!**  
-<img src="https://preview.redd.it/4ldmdkj8sc2g1.png?width=1080&crop=smart&auto=webp&s=27e118747fae90079112873d1f176a20b7318266" alt="Random Meme" width="500"/>
+**Yeah, this is for real**  
+<img src="https://preview.redd.it/kjxf8y2dhg2g1.png?width=1080&crop=smart&auto=webp&s=2f7451cf1c39fa3f8c0b5ad7ac73a1c111ddd010" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
