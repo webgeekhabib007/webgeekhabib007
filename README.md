@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You learn something new everyday**  
-<img src="https://preview.redd.it/eqs6si2aym2g1.png?width=1080&crop=smart&auto=webp&s=7a710f27360236d65ff284974484bd76b2f48aed" alt="Random Meme" width="500"/>
+**Well well**  
+<img src="https://preview.redd.it/n0llqtlerh2g1.png?width=960&crop=smart&auto=webp&s=55f70a1d211266fb060f1a0dacc3a40c790b2782" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
