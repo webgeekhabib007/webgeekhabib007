@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Its been so long**  
-<img src="https://preview.redd.it/wwn3gzbznh2g1.png?width=640&crop=smart&auto=webp&s=46180ff50fcd1b7142c662fb31fabb60efdd7b24" alt="Random Meme" width="500"/>
+**Because we're tired of the bad place**  
+<img src="https://preview.redd.it/pcrbyk3mke2g1.gif?width=640&crop=smart&format=png8&s=e31879d6ea7fbc976cd13e06cabbe0a39afbb929" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
