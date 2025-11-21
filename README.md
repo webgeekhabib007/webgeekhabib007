@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**there might not be another 95% discount later, y'know?**  
-<img src="https://preview.redd.it/jzm0zwcz1l2g1.png?width=960&crop=smart&auto=webp&s=0d2cebb63578e7b4310e635de90f310c15e5577c" alt="Random Meme" width="500"/>
+**Add another tally....**  
+<img src="https://preview.redd.it/otva0ralmj2g1.png?width=960&crop=smart&auto=webp&s=4a0aeccdb2e0b8b35497b9d82f4dc923ea952628" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
