@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/okclcopx9l2g1.png?width=1080&crop=smart&auto=webp&s=157ecb2b74fe40199a8fb55e189304fd5a139803" alt="Random Meme" width="500"/>
+**Do you want to pretend to be Ringo?**  
+<img src="https://preview.redd.it/ytu83fd6np2g1.png?width=1080&crop=smart&auto=webp&s=4b6751691f5737b7cd8e77b7075800c94698c4b2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
