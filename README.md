@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How to enjoy learning**  
-<img src="https://preview.redd.it/d5k9fl7tun2g1.png?width=640&crop=smart&auto=webp&s=c2e21f43a9a9b757422dd0d9911626dd5ce3fd82" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/6qx0j87x2l2g1.png?width=1080&crop=smart&auto=webp&s=23f9bf7a5adf481476c1bd1e5b06377a778aea6e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
