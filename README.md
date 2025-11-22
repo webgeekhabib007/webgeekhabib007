@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**true story**  
-<img src="https://preview.redd.it/s7a2wr21tq2g1.png?width=1080&crop=smart&auto=webp&s=83dbec7fbed70c204bba8a9a7335e926ce6a371f" alt="Random Meme" width="500"/>
+**Horses in 2025**  
+<img src="https://preview.redd.it/3lufx8mc5h2g1.png?width=1080&crop=smart&auto=webp&s=1c0eb4221c60b484b18ed2b205dc3d9a0c1b4082" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
