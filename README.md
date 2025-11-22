@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Whats next to corrupt the upcoming generations?**  
-<img src="https://preview.redd.it/sdbhwd6uan2g1.png?width=320&crop=smart&auto=webp&s=09d1363c766fb00914af768f9653d4df4ba307c3" alt="Random Meme" width="500"/>
+**Seems polite enough**  
+<img src="https://preview.redd.it/ekdocgutrr2g1.png?width=1080&crop=smart&auto=webp&s=b73fd5b6f7dc7009821e38ae724fac08d5467d72" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
