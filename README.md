@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Horses in 2025**  
-<img src="https://preview.redd.it/3lufx8mc5h2g1.png?width=1080&crop=smart&auto=webp&s=1c0eb4221c60b484b18ed2b205dc3d9a0c1b4082" alt="Random Meme" width="500"/>
+**The Gen Z Identification**  
+<img src="https://preview.redd.it/kibdg4jg313g1.png?width=640&crop=smart&auto=webp&s=35523905082b8867d59999a6f6c407f546e6d588" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
