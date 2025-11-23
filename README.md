@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**According to them, there's a chance**  
-<img src="https://preview.redd.it/0rzpg9w1303g1.gif?width=640&crop=smart&format=png8&s=1fab781f463af86dd0eb70073b4b7da961a67d86" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/tocygr2g8r2g1.png?width=640&crop=smart&auto=webp&s=b772aaae2c92c03e7eba0e3b72f578ed8589e29f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
