@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/uz1qimlsov2g1.png?width=960&crop=smart&auto=webp&s=299ac634ed15f88a1cd28cedfc5eeb2cb5c59d97" alt="Random Meme" width="500"/>
+**It's always the youngest one**  
+<img src="https://preview.redd.it/7s1dilw1xp2g1.png?width=1080&crop=smart&auto=webp&s=5c4b1d43a52a9757f3e4cb7a877c993febb70764" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
