@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My brain on Mondays**  
-<img src="https://preview.redd.it/uhwmfr9oyu2g1.png?width=960&crop=smart&auto=webp&s=2dd8fa239621254fad184f328c150476ffbb869e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/1kj8svgq3v2g1.png?width=1080&crop=smart&auto=webp&s=779438497acd6a1d462ad26c9b19beed20d6a4db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
