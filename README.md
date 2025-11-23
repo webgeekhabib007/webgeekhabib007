@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not wrong though!**  
-<img src="https://preview.redd.it/oyrju4rqmz2g1.png?width=1080&crop=smart&auto=webp&s=9bc73dd5f221217dbe2bfc3cdfea82c4f5f11d64" alt="Random Meme" width="500"/>
+**We can't ignore them or her ??**  
+<img src="https://preview.redd.it/lxkj9jciyy2g1.png?width=1080&crop=smart&auto=webp&s=204b05278bb9ec9da19a7130224c10612fada26d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
