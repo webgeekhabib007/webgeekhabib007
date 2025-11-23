@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Gen Z Identification**  
-<img src="https://preview.redd.it/kibdg4jg313g1.png?width=640&crop=smart&auto=webp&s=35523905082b8867d59999a6f6c407f546e6d588" alt="Random Meme" width="500"/>
+**According to them, there's a chance**  
+<img src="https://preview.redd.it/0rzpg9w1303g1.gif?width=640&crop=smart&format=png8&s=1fab781f463af86dd0eb70073b4b7da961a67d86" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
