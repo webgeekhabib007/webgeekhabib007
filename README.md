@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/6znady24xs2g1.png?width=1080&crop=smart&auto=webp&s=c56c12411755b28ca6c76567897dd3ed7a38ea6d" alt="Random Meme" width="500"/>
+**Dad and the cat**  
+<img src="https://preview.redd.it/f4onyn35by2g1.png?width=640&crop=smart&auto=webp&s=c904d159fd22b070d0349a1a12a59c5fe2a8d278" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
