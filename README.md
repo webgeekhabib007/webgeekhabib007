@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**But they taste so good :(**  
-<img src="https://preview.redd.it/900xpdmjkw2g1.gif?width=640&crop=smart&format=png8&s=471a04ef1e8347315e603b39ebb71b07060145f9" alt="Random Meme" width="500"/>
+**Dreams**  
+<img src="https://preview.redd.it/xvqaq2dr303g1.gif?width=640&crop=smart&format=png8&s=db127dc266eb3ef1da8ec09f34c0a70c2071539c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
