@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/zintzk19503g1.png?width=640&crop=smart&auto=webp&s=50acb6b7107950c4d9a655f6dbdd38ef2eddca9a" alt="Random Meme" width="500"/>
+**"Oh hell no, I'm outta here!"**  
+<img src="https://preview.redd.it/3mg7zbfsox2g1.png?width=640&crop=smart&auto=webp&s=c15eba33c985c5fe67dd6f0dafc3b3d3fcdce2a9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
