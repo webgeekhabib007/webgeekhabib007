@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yoga**  
-<img src="https://preview.redd.it/4aj1f9bptt2g1.png?width=640&crop=smart&auto=webp&s=b028c1c14d41a7805f61411962561f9a59457a22" alt="Random Meme" width="500"/>
+**Who's ready for Wicked 2!**  
+<img src="https://preview.redd.it/kv5hue56fh2g1.png?width=640&crop=smart&auto=webp&s=3b3b5425804cdd39f56bb60371fc3a8439de56ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
