@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dreams**  
-<img src="https://preview.redd.it/xvqaq2dr303g1.gif?width=640&crop=smart&format=png8&s=db127dc266eb3ef1da8ec09f34c0a70c2071539c" alt="Random Meme" width="500"/>
+**According to them, there's a chance**  
+<img src="https://preview.redd.it/0rzpg9w1303g1.gif?width=640&crop=smart&format=png8&s=1fab781f463af86dd0eb70073b4b7da961a67d86" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
