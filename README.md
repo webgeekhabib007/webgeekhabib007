@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**thanks mom. *yawns***  
-<img src="https://preview.redd.it/up5xpybn713g1.png?width=320&crop=smart&auto=webp&s=c1348948ef6c5be9a6ad569b294b8a9d1d469a52" alt="Random Meme" width="500"/>
+**And then keep the same job for 40 years**  
+<img src="https://preview.redd.it/d8lhrgzvzy2g1.png?width=1080&crop=smart&auto=webp&s=f7fc7faf64bdeaf317d124e8e7be3eda42f8663d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
