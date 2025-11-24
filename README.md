@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Persistence Hunting**  
-<img src="https://preview.redd.it/vzeyuouhb83g1.gif?width=640&crop=smart&format=png8&s=cf2518f7435e555abcd6c4f4f3e66947637a398e" alt="Random Meme" width="500"/>
+**But they taste so good :(**  
+<img src="https://preview.redd.it/900xpdmjkw2g1.gif?width=640&crop=smart&format=png8&s=471a04ef1e8347315e603b39ebb71b07060145f9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
