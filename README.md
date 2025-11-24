@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I know it must be deliberate but I just can't prove it**  
-<img src="https://preview.redd.it/jxsckvxmi43g1.png?width=1080&crop=smart&auto=webp&s=dee5bfa627bfa350e33b92fca80583a3452359eb" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/tocygr2g8r2g1.png?width=640&crop=smart&auto=webp&s=b772aaae2c92c03e7eba0e3b72f578ed8589e29f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
