@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And then keep the same job for 40 years**  
-<img src="https://preview.redd.it/d8lhrgzvzy2g1.png?width=1080&crop=smart&auto=webp&s=f7fc7faf64bdeaf317d124e8e7be3eda42f8663d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/zintzk19503g1.png?width=640&crop=smart&auto=webp&s=50acb6b7107950c4d9a655f6dbdd38ef2eddca9a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
