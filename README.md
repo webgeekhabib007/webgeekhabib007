@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**At least I had it like that.**  
-<img src="https://preview.redd.it/67igjohb973g1.gif?width=216&crop=smart&format=png8&s=e242f04284d32688aeecb15bd2f749cc32f99a54" alt="Random Meme" width="500"/>
+**Yoga**  
+<img src="https://preview.redd.it/4aj1f9bptt2g1.png?width=640&crop=smart&auto=webp&s=b028c1c14d41a7805f61411962561f9a59457a22" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
