@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**But it's got a new hat**  
-<img src="https://preview.redd.it/5bxf8kidzc3g1.png?width=960&crop=smart&auto=webp&s=98361b0ca7e802baf27704a1802a57ea4df330e3" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/g18q8k00l83g1.png?width=640&crop=smart&auto=webp&s=6e081e2e890f50ded882489d44137e8eb2723589" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
