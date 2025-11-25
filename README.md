@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oopsie daisy**  
-<img src="https://preview.redd.it/k33uujsys13g1.gif?width=216&crop=smart&format=png8&s=4168573292b916fb779c76cbc788b55b59e60a43" alt="Random Meme" width="500"/>
+**Sunfish core**  
+<img src="https://preview.redd.it/gtowbsdy883g1.png?width=1080&crop=smart&auto=webp&s=ce7b13a5be13e2a37c9c9e701395c0bf293f0951" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
