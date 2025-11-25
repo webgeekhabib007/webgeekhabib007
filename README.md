@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Daughter: So he doesn't escape like the others. __ Dad: Oh...wait, others?**  
-<img src="https://preview.redd.it/2uxm6k4i2c3g1.png?width=640&crop=smart&auto=webp&s=57c3866b737755662cd7a42768ebce2826dc4292" alt="Random Meme" width="500"/>
+**Even wrote with blue ink, because I don't want black ink on white**  
+<img src="https://preview.redd.it/62xp3shg6j2g1.gif?width=640&crop=smart&format=png8&s=7ea913832eedb755df1fe2c9a0656da37d318e51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
