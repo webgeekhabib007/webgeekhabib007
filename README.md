@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Does anyone else get the least sleep on nights where you hope to get the most?**  
-<img src="https://preview.redd.it/pearulaaue3g1.png?width=320&crop=smart&auto=webp&s=6839269e5be8b7f3db0a4c71f8704a0ed13d97e9" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/jaossbwu343g1.gif?width=320&crop=smart&format=png8&s=d685f7e2fa7e90ddacc84a7f8b99ea31c955337c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
