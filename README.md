@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I've been diagnosed with dyslexia**  
-<img src="https://preview.redd.it/nulkw2j1p83g1.png?width=1080&crop=smart&auto=webp&s=9e6f8b98d11fb0c98763fad4307298a6b604ac72" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/1kj8svgq3v2g1.png?width=1080&crop=smart&auto=webp&s=779438497acd6a1d462ad26c9b19beed20d6a4db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
