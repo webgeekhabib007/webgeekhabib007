@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Do not insult C. S. Lewis**  
-<img src="https://preview.redd.it/qp64f8ofil2g1.png?width=320&crop=smart&auto=webp&s=3c2eabd692059f6e266e06531382b63bd6c496b7" alt="Random Meme" width="500"/>
+**Maybe some people shouldn't follow  the golden rule.**  
+<img src="https://preview.redd.it/xxkgmvg0jq2g1.png?width=640&crop=smart&auto=webp&s=13804327cbec8858a93404a505387a9f71dc3c6e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
