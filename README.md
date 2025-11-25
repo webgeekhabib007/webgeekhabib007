@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ll62mw54zc3g1.png?width=1080&crop=smart&auto=webp&s=b2e2753985c6b052a77d449438028f4a2038dde7" alt="Random Meme" width="500"/>
+**Do not insult C. S. Lewis**  
+<img src="https://preview.redd.it/qp64f8ofil2g1.png?width=320&crop=smart&auto=webp&s=3c2eabd692059f6e266e06531382b63bd6c496b7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
