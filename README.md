@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Maybe some people shouldn't follow  the golden rule.**  
-<img src="https://preview.redd.it/xxkgmvg0jq2g1.png?width=640&crop=smart&auto=webp&s=13804327cbec8858a93404a505387a9f71dc3c6e" alt="Random Meme" width="500"/>
+**🎄🎅🎁HO**  
+<img src="https://preview.redd.it/k4ccgn32hf3g1.gif?width=320&crop=smart&format=png8&s=fc98dc95bbf652862f175b8822dc749199deae98" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
