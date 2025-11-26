@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**anime is educational change my mind**  
-<img src="https://preview.redd.it/vc1r6k4ctf3g1.png?width=320&crop=smart&auto=webp&s=e5498ec4d71f39af9b14dc86363e3b74ecf5c28b" alt="Random Meme" width="500"/>
+**just came back to post this shit**  
+<img src="https://preview.redd.it/bv46lgi2qf3g1.png?width=1080&crop=smart&auto=webp&s=a59643aa1926ae567e871cde146b2d0a50271848" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
