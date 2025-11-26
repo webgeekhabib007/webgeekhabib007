@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/xt64k66uz73g1.png?width=1080&crop=smart&auto=webp&s=c440cbb0ea90c6a6ce6916ed7a1287e32f43b88e" alt="Random Meme" width="500"/>
+**"You never know what might happen"**  
+<img src="https://preview.redd.it/xxzgdopey83g1.png?width=320&crop=smart&auto=webp&s=eb29eb7009ef4248dcea77c03b7aab0e4622abda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
