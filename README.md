@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**🎄🎅🎁HO**  
-<img src="https://preview.redd.it/k4ccgn32hf3g1.gif?width=320&crop=smart&format=png8&s=fc98dc95bbf652862f175b8822dc749199deae98" alt="Random Meme" width="500"/>
+**lets go shppping, girls!**  
+<img src="https://preview.redd.it/lb2lnl5mkh3g1.png?width=1080&crop=smart&auto=webp&s=89994c37987005d605d67729fe919a9071569f22" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
