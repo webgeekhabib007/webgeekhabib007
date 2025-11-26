@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**lets go shppping, girls!**  
-<img src="https://preview.redd.it/lb2lnl5mkh3g1.png?width=1080&crop=smart&auto=webp&s=89994c37987005d605d67729fe919a9071569f22" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
