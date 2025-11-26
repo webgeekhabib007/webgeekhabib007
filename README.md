@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**true colors emerged**  
-<img src="https://preview.redd.it/376ag5s0rk3g1.png?width=960&crop=smart&auto=webp&s=4d265363c5d7ae759b574e27be02ea9b0d40584c" alt="Random Meme" width="500"/>
+**Is this a title?eltit a siht sI**  
+<img src="https://preview.redd.it/ooj2dzpce33g1.png?width=640&crop=smart&auto=webp&s=a97fd3e5e43d7c141b3ad7c34e643eba3eb25391" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
