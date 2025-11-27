@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Which one are you?**  
-<img src="https://preview.redd.it/1v94yeac4o3g1.png?width=1080&crop=smart&auto=webp&s=406d7ec1b6beec7d5790ffc952fc6c98d7ede75d" alt="Random Meme" width="500"/>
+**Literally netflix**  
+<img src="https://preview.redd.it/a8vaglszoj3g1.png?width=640&crop=smart&auto=webp&s=d4993b9cd4339b4ce71a26ab785defc8edc6108d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
