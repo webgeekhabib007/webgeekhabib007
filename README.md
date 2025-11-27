@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The future is now**  
-<img src="https://preview.redd.it/qxczx3b25o3g1.gif?width=640&crop=smart&format=png8&s=e7d4c39759cf61efdf435a2f6a0ae68b4f40c7ca" alt="Random Meme" width="500"/>
+**Work hard!**  
+<img src="https://preview.redd.it/c9yexl50cd3g1.gif?width=640&crop=smart&format=png8&s=398199fa579ba661f769b28b84f68d7321dba2a8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
