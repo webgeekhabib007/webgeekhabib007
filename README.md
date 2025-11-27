@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**B ujumf**  
-<img src="https://preview.redd.it/azrtwvqru93g1.png?width=1080&crop=smart&auto=webp&s=87290d9372e7938d5ca639c765c95c5dc52eca99" alt="Random Meme" width="500"/>
+**What are the Pokemon writers on because it must be some good shit.**  
+<img src="https://preview.redd.it/yfqef4zqhp3g1.gif?width=640&crop=smart&format=png8&s=d85da0d9038ae64fb62267db4d6025bb6451c67c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
