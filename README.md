@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**can't trust any of them tbh**  
-<img src="https://preview.redd.it/zh17zykvyh3g1.png?width=640&crop=smart&auto=webp&s=e671f8a141bf27bca3a20a07a92ecc48985f6106" alt="Random Meme" width="500"/>
+**The future is now**  
+<img src="https://preview.redd.it/qxczx3b25o3g1.gif?width=640&crop=smart&format=png8&s=e7d4c39759cf61efdf435a2f6a0ae68b4f40c7ca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
