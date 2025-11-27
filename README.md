@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**19 and still alive🥀**  
-<img src="https://preview.redd.it/0x8d2exj8m3g1.png?width=640&crop=smart&auto=webp&s=7d391f9370685db2a8b9d45babf30a706af33c55" alt="Random Meme" width="500"/>
+**can't trust any of them tbh**  
+<img src="https://preview.redd.it/zh17zykvyh3g1.png?width=640&crop=smart&auto=webp&s=e671f8a141bf27bca3a20a07a92ecc48985f6106" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
