@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they experienced power (for the first time)**  
-<img src="https://preview.redd.it/fbq8toh1wr3g1.png?width=960&crop=smart&auto=webp&s=07aceb12954be36339a23bedb9d470a2af1c4223" alt="Random Meme" width="500"/>
+**B ujumf**  
+<img src="https://preview.redd.it/azrtwvqru93g1.png?width=1080&crop=smart&auto=webp&s=87290d9372e7938d5ca639c765c95c5dc52eca99" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
