@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/1h1opu36ip3g1.png?width=1080&crop=smart&auto=webp&s=001bb06c884d8ed3cea02bd03ea551067d27ee80" alt="Random Meme" width="500"/>
+**they experienced power (for the first time)**  
+<img src="https://preview.redd.it/fbq8toh1wr3g1.png?width=960&crop=smart&auto=webp&s=07aceb12954be36339a23bedb9d470a2af1c4223" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
