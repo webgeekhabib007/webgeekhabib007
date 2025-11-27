@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thanksgiving ruined**  
-<img src="https://preview.redd.it/217r0qwwrm3g1.png?width=1080&crop=smart&auto=webp&s=9ed8650f40f3999f1e4a73780c7bd51e502b4577" alt="Random Meme" width="500"/>
+**why am i the one that has to do anything extra to avoid useless "context" from a clanker**  
+<img src="https://preview.redd.it/riahbs6rom3g1.png?width=320&crop=smart&auto=webp&s=1ffa9143fa19c83b45850f9e3b052e358e093b67" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
