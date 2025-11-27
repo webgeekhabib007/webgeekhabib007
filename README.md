@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What are the Pokemon writers on because it must be some good shit.**  
-<img src="https://preview.redd.it/yfqef4zqhp3g1.gif?width=640&crop=smart&format=png8&s=d85da0d9038ae64fb62267db4d6025bb6451c67c" alt="Random Meme" width="500"/>
+**Stay safe out there you guys**  
+<img src="https://preview.redd.it/2rtx9d15bq3g1.gif?width=640&crop=smart&format=png8&s=3eee57e2a52bcc77ac9f579782fd7cb4084d0229" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
