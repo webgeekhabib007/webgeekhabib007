@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Literally netflix**  
-<img src="https://preview.redd.it/a8vaglszoj3g1.png?width=640&crop=smart&auto=webp&s=d4993b9cd4339b4ce71a26ab785defc8edc6108d" alt="Random Meme" width="500"/>
+**19 and still alive🥀**  
+<img src="https://preview.redd.it/0x8d2exj8m3g1.png?width=640&crop=smart&auto=webp&s=7d391f9370685db2a8b9d45babf30a706af33c55" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
