@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**why am i the one that has to do anything extra to avoid useless "context" from a clanker**  
-<img src="https://preview.redd.it/riahbs6rom3g1.png?width=320&crop=smart&auto=webp&s=1ffa9143fa19c83b45850f9e3b052e358e093b67" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/1h1opu36ip3g1.png?width=1080&crop=smart&auto=webp&s=001bb06c884d8ed3cea02bd03ea551067d27ee80" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
