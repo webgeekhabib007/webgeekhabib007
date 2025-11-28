@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I have two sides**  
-<img src="https://preview.redd.it/mqmibxo9ym3g1.png?width=960&crop=smart&auto=webp&s=5fa0336d1b884468b37f6ce92231406d2b6a9445" alt="Random Meme" width="500"/>
+**Is this too soon?**  
+<img src="https://preview.redd.it/r4m1twlkfo3g1.gif?width=320&crop=smart&format=png8&s=72a3d97c023d96053954e646e4893510d1943958" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
