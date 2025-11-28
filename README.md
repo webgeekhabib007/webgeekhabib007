@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/d8mmbs6hrh3g1.png?width=1080&crop=smart&auto=webp&s=31cbcb0c6af5f01108cd6df91f7f2007b923ab7c" alt="Random Meme" width="500"/>
+**How to/not to rizz up a torta.**  
+<img src="https://preview.redd.it/xtuiniyxlq3g1.png?width=640&crop=smart&auto=webp&s=606cdaf2bb3addc3432237fd2acfba4e948474b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
