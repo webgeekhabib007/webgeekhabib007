@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I wonder what kind of a redditor I was**  
-<img src="https://preview.redd.it/2jc318yody3g1.png?width=1080&crop=smart&auto=webp&s=690f9eea1c35a392ae33fb2d3671f5693f3cceec" alt="Random Meme" width="500"/>
+**I have two sides**  
+<img src="https://preview.redd.it/mqmibxo9ym3g1.png?width=960&crop=smart&auto=webp&s=5fa0336d1b884468b37f6ce92231406d2b6a9445" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
