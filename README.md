@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I want to go back :(**  
-<img src="https://preview.redd.it/887y5vcpy04g1.gif?width=640&crop=smart&format=png8&s=796390f9e1b81ab709ecee743a9301c988db1895" alt="Random Meme" width="500"/>
+**Puppies be like**  
+<img src="https://preview.redd.it/75l2b138dv3g1.png?width=1080&crop=smart&auto=webp&s=333e2f797c610f77c519b8f4b71b80c033c4721b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
