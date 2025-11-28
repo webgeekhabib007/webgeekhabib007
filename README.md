@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Does anyone remember Drake and Josh?**  
-<img src="https://preview.redd.it/izjrilhsxk3g1.png?width=640&crop=smart&auto=webp&s=663204bf84c5760aa180bb62521bd080b6373736" alt="Random Meme" width="500"/>
+**It all makes sense...**  
+<img src="https://preview.redd.it/dumegwjkf24g1.png?width=1080&crop=smart&auto=webp&s=dde52590ef03f10a49f6e3b2bd26159f173c1c79" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
