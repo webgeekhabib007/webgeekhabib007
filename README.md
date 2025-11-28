@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Puppies be like**  
-<img src="https://preview.redd.it/75l2b138dv3g1.png?width=1080&crop=smart&auto=webp&s=333e2f797c610f77c519b8f4b71b80c033c4721b" alt="Random Meme" width="500"/>
+**Title***  
+<img src="https://preview.redd.it/o89hfmfobk3g1.png?width=640&crop=smart&auto=webp&s=33ea5fb86ffaafa668303d8c392dc45ea8afa73a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
