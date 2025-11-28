@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is this too soon?**  
-<img src="https://preview.redd.it/r4m1twlkfo3g1.gif?width=320&crop=smart&format=png8&s=72a3d97c023d96053954e646e4893510d1943958" alt="Random Meme" width="500"/>
+**Seriously why are they all so horrendous?**  
+<img src="https://preview.redd.it/uh1pff6umz3g1.png?width=960&crop=smart&auto=webp&s=29bc21cfeb8981a1e6b24486d50c67cc16dd60f4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
