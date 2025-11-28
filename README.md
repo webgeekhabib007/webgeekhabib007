@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They literally all left and decided to lockdown the subreddit before leaving. That’s literally the most childish thing you can do. It’s like a child throwing the ball over the fence because they were losing the game.**  
-<img src="https://preview.redd.it/s84m3flujp3g1.gif?width=640&crop=smart&format=png8&s=7d4fdbdb67e636d8bf9fcd220a2cb3ab37add09c" alt="Random Meme" width="500"/>
+**I want to go back :(**  
+<img src="https://preview.redd.it/887y5vcpy04g1.gif?width=640&crop=smart&format=png8&s=796390f9e1b81ab709ecee743a9301c988db1895" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
