@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they let the dog cook dinner**  
-<img src="https://preview.redd.it/57i9syxk2v3g1.png?width=1080&crop=smart&auto=webp&s=59fd9d72a1a079850425555a726e52fd2aa04a3c" alt="Random Meme" width="500"/>
+**I wonder what kind of a redditor I was**  
+<img src="https://preview.redd.it/2jc318yody3g1.png?width=1080&crop=smart&auto=webp&s=690f9eea1c35a392ae33fb2d3671f5693f3cceec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
