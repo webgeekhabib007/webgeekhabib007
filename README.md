@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Schrödinger's Schrödinger**  
-<img src="https://preview.redd.it/2wdpot264v3g1.png?width=640&crop=smart&auto=webp&s=3e2d925e7674924cd05a8bf175e72af306282e76" alt="Random Meme" width="500"/>
+**they let the dog cook dinner**  
+<img src="https://preview.redd.it/57i9syxk2v3g1.png?width=1080&crop=smart&auto=webp&s=59fd9d72a1a079850425555a726e52fd2aa04a3c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
