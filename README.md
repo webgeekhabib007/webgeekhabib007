@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How to/not to rizz up a torta.**  
-<img src="https://preview.redd.it/xtuiniyxlq3g1.png?width=640&crop=smart&auto=webp&s=606cdaf2bb3addc3432237fd2acfba4e948474b5" alt="Random Meme" width="500"/>
+**Im just saying most of these roasts are rlly basic**  
+<img src="https://preview.redd.it/4qno7czcms3g1.png?width=1080&crop=smart&auto=webp&s=7aad8e2b555b3814c81c8b5c9265eb5f4122208e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
