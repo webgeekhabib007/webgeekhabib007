@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Im just saying most of these roasts are rlly basic**  
-<img src="https://preview.redd.it/4qno7czcms3g1.png?width=1080&crop=smart&auto=webp&s=7aad8e2b555b3814c81c8b5c9265eb5f4122208e" alt="Random Meme" width="500"/>
+**Quality over quantity**  
+<img src="https://preview.redd.it/sezx63sogl3g1.png?width=640&crop=smart&auto=webp&s=d78d98326c370ceb7d7d04c9e90c38b49c43ff4e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
