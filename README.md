@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Seriously why are they all so horrendous?**  
-<img src="https://preview.redd.it/uh1pff6umz3g1.png?width=960&crop=smart&auto=webp&s=29bc21cfeb8981a1e6b24486d50c67cc16dd60f4" alt="Random Meme" width="500"/>
+**I totally didn’t download a mod for TF2 that turned sniper into a woman whose model shows her midriff. But if I did it’s because women with Australian accents are hot and I’m not ashamed to admit that.**  
+<img src="https://preview.redd.it/qvpwivxtjr3g1.gif?width=640&crop=smart&format=png8&s=95ed13a59d2d517dc1c793ad3d0d0a0eb4026d7b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
