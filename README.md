@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I totally didn’t download a mod for TF2 that turned sniper into a woman whose model shows her midriff. But if I did it’s because women with Australian accents are hot and I’m not ashamed to admit that.**  
-<img src="https://preview.redd.it/qvpwivxtjr3g1.gif?width=640&crop=smart&format=png8&s=95ed13a59d2d517dc1c793ad3d0d0a0eb4026d7b" alt="Random Meme" width="500"/>
+**I have two sides**  
+<img src="https://preview.redd.it/mqmibxo9ym3g1.png?width=960&crop=smart&auto=webp&s=5fa0336d1b884468b37f6ce92231406d2b6a9445" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
