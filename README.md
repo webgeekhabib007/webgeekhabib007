@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ywcp8drf734g1.png?width=1080&crop=smart&auto=webp&s=3a2444ff006ee92a1886254b73782265b1c7d19a" alt="Random Meme" width="500"/>
+**Be wise and not spend on reddit, also same with streamers**  
+<img src="https://preview.redd.it/p277zau9hz3g1.png?width=320&crop=smart&auto=webp&s=005e54e5f5623c8057c5fc55d6ed4b918425f014" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
