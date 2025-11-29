@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Point of view**  
-<img src="https://preview.redd.it/ftfdx8ynuz3g1.png?width=640&crop=smart&auto=webp&s=08c50a3d924cad480ecb739abdddcf3c08081bff" alt="Random Meme" width="500"/>
+**“When I grow up I will be rich!” 20 years later**  
+<img src="https://preview.redd.it/2jh41ahvy14g1.gif?width=320&crop=smart&format=png8&s=e94364b4f378f2ce6c3d152c894a58e32994141e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
