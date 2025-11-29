@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They literally all left and decided to lockdown the subreddit before leaving. That’s literally the most childish thing you can do. It’s like a child throwing the ball over the fence because they were losing the game.**  
-<img src="https://preview.redd.it/s84m3flujp3g1.gif?width=640&crop=smart&format=png8&s=7d4fdbdb67e636d8bf9fcd220a2cb3ab37add09c" alt="Random Meme" width="500"/>
+**Its always the "Ai is getting dangerous" that saves me😭**  
+<img src="https://preview.redd.it/j5k6zcq9d64g1.png?width=640&crop=smart&auto=webp&s=f078fee8c2a163f175afb0b61fcb70c94fb69592" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
