@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Its always the "Ai is getting dangerous" that saves me😭**  
-<img src="https://preview.redd.it/j5k6zcq9d64g1.png?width=640&crop=smart&auto=webp&s=f078fee8c2a163f175afb0b61fcb70c94fb69592" alt="Random Meme" width="500"/>
+**What are the Pokemon writers on because it must be some good shit.**  
+<img src="https://preview.redd.it/yfqef4zqhp3g1.gif?width=640&crop=smart&format=png8&s=d85da0d9038ae64fb62267db4d6025bb6451c67c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
