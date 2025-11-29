@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**market situation rn**  
-<img src="https://preview.redd.it/8nq3mky8a54g1.png?width=320&crop=smart&auto=webp&s=34110e1db1ab18e6d8a6e31bf0fe166244b7c3ab" alt="Random Meme" width="500"/>
+**Don't come back please**  
+<img src="https://preview.redd.it/lr6oadggwo3g1.gif?width=320&crop=smart&format=png8&s=4fc3618b579bbc3bd76069f11da69ccadbc6d330" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
