@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Imperial Japan be like that tho**  
-<img src="https://preview.redd.it/4ctr1rqbe84g1.png?width=1080&crop=smart&auto=webp&s=f26091663056d0bfc6f1ef2d6654105fa59d6fa0" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/veo28r7ff94g1.png?width=640&crop=smart&auto=webp&s=55fd860a059eaa55dba16edb20768ad13ff1bdb7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
