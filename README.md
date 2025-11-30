@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The future is now**  
-<img src="https://preview.redd.it/yd26vft44o3g1.gif?width=640&crop=smart&format=png8&s=952ba8b4773a668c196be29173a5b77228e2b24c" alt="Random Meme" width="500"/>
+**Imperial Japan be like that tho**  
+<img src="https://preview.redd.it/4ctr1rqbe84g1.png?width=1080&crop=smart&auto=webp&s=f26091663056d0bfc6f1ef2d6654105fa59d6fa0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
