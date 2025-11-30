@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fire you? In this economy?**  
-<img src="https://preview.redd.it/q230br5oui3g1.png?width=320&crop=smart&auto=webp&s=73fe751bc4e126aedfacbb8d2c2342e957bc3a36" alt="Random Meme" width="500"/>
+**They do it on purpose**  
+<img src="https://preview.redd.it/kvfqdyfhk24g1.png?width=960&crop=smart&auto=webp&s=3c3bf6f6e3aa7be4c17597f3279c1a42b3fb1951" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
