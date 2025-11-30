@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thanksgiving ruined**  
-<img src="https://preview.redd.it/217r0qwwrm3g1.png?width=1080&crop=smart&auto=webp&s=9ed8650f40f3999f1e4a73780c7bd51e502b4577" alt="Random Meme" width="500"/>
+**The future is now**  
+<img src="https://preview.redd.it/yd26vft44o3g1.gif?width=640&crop=smart&format=png8&s=952ba8b4773a668c196be29173a5b77228e2b24c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
