@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They do it on purpose**  
-<img src="https://preview.redd.it/kvfqdyfhk24g1.png?width=960&crop=smart&auto=webp&s=3c3bf6f6e3aa7be4c17597f3279c1a42b3fb1951" alt="Random Meme" width="500"/>
+**Thanksgiving ruined**  
+<img src="https://preview.redd.it/217r0qwwrm3g1.png?width=1080&crop=smart&auto=webp&s=9ed8650f40f3999f1e4a73780c7bd51e502b4577" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
