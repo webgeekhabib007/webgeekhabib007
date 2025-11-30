@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**EPSON list released!!1!**  
-<img src="https://preview.redd.it/n8itsxp1594g1.png?width=1080&crop=smart&auto=webp&s=57adaee923f939459245cafb99bdc521eab026a3" alt="Random Meme" width="500"/>
+**Prints of this meme are not available**  
+<img src="https://preview.redd.it/xwdrsm48ft3g1.png?width=320&crop=smart&auto=webp&s=a1ba762e1e0c5f5d99ae87bcc2342fe7cfc61ccc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
