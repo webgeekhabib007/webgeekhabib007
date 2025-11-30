@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I have two sides**  
-<img src="https://preview.redd.it/mqmibxo9ym3g1.png?width=960&crop=smart&auto=webp&s=5fa0336d1b884468b37f6ce92231406d2b6a9445" alt="Random Meme" width="500"/>
+**Fire you? In this economy?**  
+<img src="https://preview.redd.it/q230br5oui3g1.png?width=320&crop=smart&auto=webp&s=73fe751bc4e126aedfacbb8d2c2342e957bc3a36" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
