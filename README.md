@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The future is now**  
-<img src="https://preview.redd.it/yd26vft44o3g1.gif?width=640&crop=smart&format=png8&s=952ba8b4773a668c196be29173a5b77228e2b24c" alt="Random Meme" width="500"/>
+**Kinda problematic ngl**  
+<img src="https://preview.redd.it/tiv7njqn8u3g1.gif?width=320&crop=smart&format=png8&s=eebe679ec04a8052b7a6e89d1cc697e41c7033dc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
