@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Average 13 year old**  
-<img src="https://preview.redd.it/g0rkeml7b74g1.png?width=320&crop=smart&auto=webp&s=fb02770531cc957338ffa42da7fce28381996356" alt="Random Meme" width="500"/>
+**The future is now**  
+<img src="https://preview.redd.it/yd26vft44o3g1.gif?width=640&crop=smart&format=png8&s=952ba8b4773a668c196be29173a5b77228e2b24c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
