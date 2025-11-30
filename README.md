@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sorry to disappoint…**  
-<img src="https://preview.redd.it/j1ihxlcy284g1.gif?width=320&crop=smart&format=png8&s=a39767144c722a6e6bd3d45b65dc34eed9a828d6" alt="Random Meme" width="500"/>
+**My music taste is multiversal**  
+<img src="https://preview.redd.it/6t31aidb7f4g1.png?width=1080&crop=smart&auto=webp&s=0ec64bf2f1ec0066b8ffb4ff733ea79ac060e595" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
