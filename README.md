@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Kinda problematic ngl**  
-<img src="https://preview.redd.it/tiv7njqn8u3g1.gif?width=320&crop=smart&format=png8&s=eebe679ec04a8052b7a6e89d1cc697e41c7033dc" alt="Random Meme" width="500"/>
+**Average 13 year old**  
+<img src="https://preview.redd.it/g0rkeml7b74g1.png?width=320&crop=smart&auto=webp&s=fb02770531cc957338ffa42da7fce28381996356" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
