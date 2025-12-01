@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/q9qfd44e5k4g1.png?width=640&crop=smart&auto=webp&s=9bf225638dc101629b0d3f812503f0369abeb298" alt="Random Meme" width="500"/>
+**They literally all left and decided to lockdown the subreddit before leaving. That’s literally the most childish thing you can do. It’s like a child throwing the ball over the fence because they were losing the game.**  
+<img src="https://preview.redd.it/s84m3flujp3g1.gif?width=640&crop=smart&format=png8&s=7d4fdbdb67e636d8bf9fcd220a2cb3ab37add09c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
