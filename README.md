@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"I'm just an average 14 year old middle schooler" moment.**  
-<img src="https://preview.redd.it/z29x9zo2h74g1.png?width=640&crop=smart&auto=webp&s=a61607ca797fff487428302dbe8af3601f80aa0f" alt="Random Meme" width="500"/>
+**Sorry to disappoint…**  
+<img src="https://preview.redd.it/j1ihxlcy284g1.gif?width=320&crop=smart&format=png8&s=a39767144c722a6e6bd3d45b65dc34eed9a828d6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
