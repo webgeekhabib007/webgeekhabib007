@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Dildo Of Consequences**  
-<img src="https://preview.redd.it/371xy7fe0e4g1.png?width=960&crop=smart&auto=webp&s=43c4389b48863722d99d1065ed64c988643f59b6" alt="Random Meme" width="500"/>
+**That Warning Sign Seems To Be Understating the Distance...**  
+<img src="https://preview.redd.it/2rpz3tlxsl4g1.png?width=640&crop=smart&auto=webp&s=4d73aec2acacff950ab8ee523a729e4f1dd9bb2f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
