@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A title of some kind.**  
-<img src="https://preview.redd.it/hwg2l0gwox3g1.png?width=640&crop=smart&auto=webp&s=1ff7dcceebd702ad6dc6d7bc8d3425a02698c498" alt="Random Meme" width="500"/>
+**Hotels be like**  
+<img src="https://preview.redd.it/m61a3mzvfh4g1.png?width=1080&crop=smart&auto=webp&s=3d13f854b25cc26d1e877e1db1d26e86bd836be0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
