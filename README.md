@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/q9qfd44e5k4g1.png?width=640&crop=smart&auto=webp&s=9bf225638dc101629b0d3f812503f0369abeb298" alt="Random Meme" width="500"/>
+**The Dildo Of Consequences**  
+<img src="https://preview.redd.it/371xy7fe0e4g1.png?width=960&crop=smart&auto=webp&s=43c4389b48863722d99d1065ed64c988643f59b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
