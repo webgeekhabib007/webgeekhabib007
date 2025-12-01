@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That Warning Sign Seems To Be Understating the Distance...**  
-<img src="https://preview.redd.it/2rpz3tlxsl4g1.png?width=640&crop=smart&auto=webp&s=4d73aec2acacff950ab8ee523a729e4f1dd9bb2f" alt="Random Meme" width="500"/>
+**"I'm just an average 14 year old middle schooler" moment.**  
+<img src="https://preview.redd.it/z29x9zo2h74g1.png?width=640&crop=smart&auto=webp&s=a61607ca797fff487428302dbe8af3601f80aa0f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
