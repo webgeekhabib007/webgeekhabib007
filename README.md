@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Inglish is a mysterious language**  
-<img src="https://preview.redd.it/vvep8ltf274g1.png?width=1080&crop=smart&auto=webp&s=225ff739962c6a8252daad6e74c4a08187fad4b1" alt="Random Meme" width="500"/>
+**happy black friday yall**  
+<img src="https://preview.redd.it/w8vnkr0ux14g1.gif?width=1080&crop=smart&format=png8&s=dbf2de43572dc5bd5899a89c9152ba1ef0aeda4f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
