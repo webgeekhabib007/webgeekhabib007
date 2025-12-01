@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I want to say I'm Rachel team hehe**  
-<img src="https://preview.redd.it/s8pavmctrc4g1.png?width=1080&crop=smart&auto=webp&s=6bbd5098796391b677ca675ad288d4f20a223cf8" alt="Random Meme" width="500"/>
+**A title of some kind.**  
+<img src="https://preview.redd.it/hwg2l0gwox3g1.png?width=640&crop=smart&auto=webp&s=1ff7dcceebd702ad6dc6d7bc8d3425a02698c498" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
