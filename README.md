@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hotels be like**  
-<img src="https://preview.redd.it/m61a3mzvfh4g1.png?width=1080&crop=smart&auto=webp&s=3d13f854b25cc26d1e877e1db1d26e86bd836be0" alt="Random Meme" width="500"/>
+**They literally all left and decided to lockdown the subreddit before leaving. That’s literally the most childish thing you can do. It’s like a child throwing the ball over the fence because they were losing the game.**  
+<img src="https://preview.redd.it/s84m3flujp3g1.gif?width=640&crop=smart&format=png8&s=7d4fdbdb67e636d8bf9fcd220a2cb3ab37add09c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
