@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**happy black friday yall**  
-<img src="https://preview.redd.it/w8vnkr0ux14g1.gif?width=1080&crop=smart&format=png8&s=dbf2de43572dc5bd5899a89c9152ba1ef0aeda4f" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/q9qfd44e5k4g1.png?width=640&crop=smart&auto=webp&s=9bf225638dc101629b0d3f812503f0369abeb298" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
