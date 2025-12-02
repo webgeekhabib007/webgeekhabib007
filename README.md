@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Those prices are insane**  
-<img src="https://preview.redd.it/lylkt0q2ct4g1.png?width=640&crop=smart&auto=webp&s=107c5d0cd3cfc4689d3b3c5f6d3ebcb43dfa78bd" alt="Random Meme" width="500"/>
+**Every time**  
+<img src="https://preview.redd.it/sa83dp4cft4g1.png?width=1080&crop=smart&auto=webp&s=edcc0823aac50f6b1c8aa4de45e350a48404ee39" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
