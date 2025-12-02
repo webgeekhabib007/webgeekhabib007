@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh god I have done it again**  
-<img src="https://preview.redd.it/9kd7tgh9fm4g1.png?width=1080&crop=smart&auto=webp&s=ee05ee6e62b3f8e43e095a64bd8920852c9a5102" alt="Random Meme" width="500"/>
+**My closing argument is that the judge should just trust my vibe**  
+<img src="https://preview.redd.it/amme366okq4g1.png?width=320&crop=smart&auto=webp&s=e8aeb95a03cf4c790065e2ca7a6dbed83b830e23" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
