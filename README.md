@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chilli Defense mechanism goes brrrr !🥀**  
-<img src="https://preview.redd.it/l8jyoggyzp4g1.png?width=1080&crop=smart&auto=webp&s=8b8c12a32787026d6aafee7fb9f477d5724e10ac" alt="Random Meme" width="500"/>
+**Those prices are insane**  
+<img src="https://preview.redd.it/lylkt0q2ct4g1.png?width=640&crop=smart&auto=webp&s=107c5d0cd3cfc4689d3b3c5f6d3ebcb43dfa78bd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
