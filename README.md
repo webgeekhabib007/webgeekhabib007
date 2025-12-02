@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Firefox New Logo**  
-<img src="https://preview.redd.it/99d4st4olc4g1.png?width=640&crop=smart&auto=webp&s=9e220c6d6121dd0476066b5b5fc3db212ea8e761" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/2nbpea55im4g1.png?width=1080&crop=smart&auto=webp&s=347fa8d3647f14eef6dd68fa1d5fd417c2821a1c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
