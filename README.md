@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**how to pee**  
-<img src="https://preview.redd.it/920sf0hxks4g1.png?width=1080&crop=smart&auto=webp&s=6be9fb03cfd88b45732a82d56c703ac1d6f050ea" alt="Random Meme" width="500"/>
+**Chilli Defense mechanism goes brrrr !🥀**  
+<img src="https://preview.redd.it/l8jyoggyzp4g1.png?width=1080&crop=smart&auto=webp&s=8b8c12a32787026d6aafee7fb9f477d5724e10ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
