@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Brutal Truth, Pineapple on pizza tastes good tbh.**  
-<img src="https://preview.redd.it/f20tcnty3l4g1.png?width=640&crop=smart&auto=webp&s=26bf6829bad5764ddecba2ef782e5d8bd1b4bb68" alt="Random Meme" width="500"/>
+**Bro, what...**  
+<img src="https://preview.redd.it/tgrianztol4g1.gif?width=1080&crop=smart&format=png8&s=1f79fa1aff8cf7d5a5f02632c8a11ef091ca1a76" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
