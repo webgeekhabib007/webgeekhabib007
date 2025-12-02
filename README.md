@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If there's just one thing that we can all agree on…..**  
-<img src="https://preview.redd.it/8fdssxavtg4g1.gif?width=640&crop=smart&format=png8&s=115f3fcf2403f7efed6751cdfbfef6561bb8b83d" alt="Random Meme" width="500"/>
+**Sorry to disappoint…**  
+<img src="https://preview.redd.it/j1ihxlcy284g1.gif?width=320&crop=smart&format=png8&s=a39767144c722a6e6bd3d45b65dc34eed9a828d6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
