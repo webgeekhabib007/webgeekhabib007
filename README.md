@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**November 15, 1889, Brazil**  
-<img src="https://preview.redd.it/n60fb35nbp4g1.png?width=640&crop=smart&auto=webp&s=0086e31edf566f482a15f2ed486162a19b119ba4" alt="Random Meme" width="500"/>
+**Even fictional violence has a limit**  
+<img src="https://preview.redd.it/3a78r4afrr4g1.png?width=1080&crop=smart&auto=webp&s=a00f81a0501c1557859dd5fe7e0977f12e75cf4f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
