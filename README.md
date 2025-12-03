@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My closing argument is that the judge should just trust my vibe**  
-<img src="https://preview.redd.it/amme366okq4g1.png?width=320&crop=smart&auto=webp&s=e8aeb95a03cf4c790065e2ca7a6dbed83b830e23" alt="Random Meme" width="500"/>
+**Especially during a busy time**  
+<img src="https://preview.redd.it/7jowje89pv4g1.png?width=1080&crop=smart&auto=webp&s=cb63440250cb40494aa04c050473f79c091df78c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
