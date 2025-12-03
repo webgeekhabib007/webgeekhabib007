@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**you fool 😂🫵**  
-<img src="https://preview.redd.it/48iohhxlfw4g1.png?width=640&crop=smart&auto=webp&s=25b42471cb96e9efdf764fee7187827addbe86a9" alt="Random Meme" width="500"/>
+**Just End It Already.**  
+<img src="https://preview.redd.it/xyugrwkkju4g1.png?width=320&crop=smart&auto=webp&s=d104e8e767587844630daeddaae8a6c6c4b61fb8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
