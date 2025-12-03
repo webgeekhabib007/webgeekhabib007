@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/9jucwx5mxt4g1.png?width=1080&crop=smart&auto=webp&s=c676e38bc1754886fcf348a8e7c4103433f05658" alt="Random Meme" width="500"/>
+**Parliamentarian Internet Access**  
+<img src="https://preview.redd.it/7vxjafmbef4g1.png?width=320&crop=smart&auto=webp&s=63cef4a3ba8e483df15169e3fabab581a35fce4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
