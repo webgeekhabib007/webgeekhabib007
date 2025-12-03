@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just End It Already.**  
-<img src="https://preview.redd.it/xyugrwkkju4g1.png?width=320&crop=smart&auto=webp&s=d104e8e767587844630daeddaae8a6c6c4b61fb8" alt="Random Meme" width="500"/>
+**Oh man do I want to go back..**  
+<img src="https://preview.redd.it/dqsar8524p4g1.png?width=1080&crop=smart&auto=webp&s=a59a2df7f3daebd4e391017a6a05cf73170ce9d8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
