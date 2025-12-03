@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I´m late, I know**  
-<img src="https://preview.redd.it/f1gso7rp105g1.png?width=320&crop=smart&auto=webp&s=608e31f59246d5fc9c41f180a05a7841b8673f56" alt="Random Meme" width="500"/>
+**you fool 😂🫵**  
+<img src="https://preview.redd.it/48iohhxlfw4g1.png?width=640&crop=smart&auto=webp&s=25b42471cb96e9efdf764fee7187827addbe86a9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
