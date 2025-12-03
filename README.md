@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Always Tricking nature...**  
-<img src="https://preview.redd.it/4nlt0qklbt4g1.png?width=640&crop=smart&auto=webp&s=e0ba410ff666dcf002cf4c3817410ca89255df85" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/9jucwx5mxt4g1.png?width=1080&crop=smart&auto=webp&s=c676e38bc1754886fcf348a8e7c4103433f05658" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
