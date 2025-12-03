@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh man do I want to go back..**  
-<img src="https://preview.redd.it/dqsar8524p4g1.png?width=1080&crop=smart&auto=webp&s=a59a2df7f3daebd4e391017a6a05cf73170ce9d8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/gnyee9q2tw4g1.png?width=1080&crop=smart&auto=webp&s=2dce4ba4b0dd7682633b6c7c98054a974e021bea" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
