@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Especially during a busy time**  
-<img src="https://preview.redd.it/7jowje89pv4g1.png?width=1080&crop=smart&auto=webp&s=cb63440250cb40494aa04c050473f79c091df78c" alt="Random Meme" width="500"/>
+**Desire is what drives a man to greatness**  
+<img src="https://preview.redd.it/52u1py4ccj4g1.gif?width=640&crop=smart&format=png8&s=55665e05c48887523ab4902a4d81e4443611d2d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
