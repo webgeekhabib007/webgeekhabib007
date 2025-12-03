@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm glad I'm not an actor/actress.**  
-<img src="https://preview.redd.it/sdf9z8r4qy4g1.png?width=960&crop=smart&auto=webp&s=978d64f3b36a3c3b6f32404b4013af4540142870" alt="Random Meme" width="500"/>
+**in-depth investigation underway**  
+<img src="https://preview.redd.it/xhotx891l05g1.png?width=1080&crop=smart&auto=webp&s=30297f252e4516b3811b4bc408e33564044af657" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
