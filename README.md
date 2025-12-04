@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they keep folding it further man😭**  
-<img src="https://preview.redd.it/wdlamvzy015g1.png?width=1080&crop=smart&auto=webp&s=ae7dcdb78f65ef533e73afb87c510d67e49db1e8" alt="Random Meme" width="500"/>
+**Bro why is there so much DEI in the white supremacy community**  
+<img src="https://preview.redd.it/phffmlkwj45g1.png?width=1080&crop=smart&auto=webp&s=714d1ae57744768e30cf756126deec5086f4e3af" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
