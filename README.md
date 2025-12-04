@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't be a Idiot**  
-<img src="https://preview.redd.it/9g0u3s8z7v4g1.png?width=960&crop=smart&auto=webp&s=3a0d0305f21d04e1ab9f69fb725932b47b7c8298" alt="Random Meme" width="500"/>
+**Who cares about selling collectible Avatars anyway?**  
+<img src="https://preview.redd.it/tzknehb7645g1.png?width=1080&crop=smart&auto=webp&s=1efd9401546b876a3dfad34d3b080d3454840eb1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
