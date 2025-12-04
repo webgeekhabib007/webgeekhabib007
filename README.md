@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/v7j1bdvdqx4g1.png?width=1080&crop=smart&auto=webp&s=4a2c89838228a6fef6f8ff3b3f929213f65e9bc6" alt="Random Meme" width="500"/>
+**Just update the gd firmware**  
+<img src="https://preview.redd.it/dk2bgwq8l35g1.gif?width=320&crop=smart&format=png8&s=0e135b14d213c76c7fab61400c5027876520f0ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
