@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bro why is there so much DEI in the white supremacy community**  
-<img src="https://preview.redd.it/phffmlkwj45g1.png?width=1080&crop=smart&auto=webp&s=714d1ae57744768e30cf756126deec5086f4e3af" alt="Random Meme" width="500"/>
+**Invest in NS before it's too late**  
+<img src="https://preview.redd.it/6ci6b0vh915g1.png?width=640&crop=smart&auto=webp&s=efd8e79d7f65dee2bf26a0dd65841668e3b4f84a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
