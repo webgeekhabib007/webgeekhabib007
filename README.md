@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Who cares about selling collectible Avatars anyway?**  
-<img src="https://preview.redd.it/tzknehb7645g1.png?width=1080&crop=smart&auto=webp&s=1efd9401546b876a3dfad34d3b080d3454840eb1" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/tulpphdxq15g1.png?width=640&crop=smart&auto=webp&s=3bbc08b4ab899d21598e0c688c0c8bf10464ef91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
