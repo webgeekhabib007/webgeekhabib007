@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not today..**  
-<img src="https://preview.redd.it/jnv3kp9yl05g1.png?width=1080&crop=smart&auto=webp&s=2358891185e70ed7bb8301f89f073c02da590cf8" alt="Random Meme" width="500"/>
+**Diverse Socialist society**  
+<img src="https://preview.redd.it/58r2hz42t45g1.png?width=640&crop=smart&auto=webp&s=33582cced8f3580e7cdfbea0085dc4e7618538da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
