@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/vdasgeuw215g1.png?width=640&crop=smart&auto=webp&s=fae1bef10b36ce7c9f40eb539a1e58a4c4a0311f" alt="Random Meme" width="500"/>
+**what it's like to solve trigonometry problems**  
+<img src="https://preview.redd.it/tufn98a4hc5g1.png?width=1080&crop=smart&auto=webp&s=7e896d9d07861ea749907087709a1977c31096ca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
