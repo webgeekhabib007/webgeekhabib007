@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For me?**  
-<img src="https://preview.redd.it/qfvu4cc1r85g1.gif?width=320&crop=smart&format=png8&s=faf800dfd45a016b06a870da7455d93fe06541db" alt="Random Meme" width="500"/>
+**The whiteknighting(?) is crazy!**  
+<img src="https://preview.redd.it/siiuloz99c5g1.gif?width=320&crop=smart&format=png8&s=c0896fdece3bd45c948a1bb2820fbfb513d9628e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
