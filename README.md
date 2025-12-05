@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Good to see a a visual guide on the differences of Asian people.**  
-<img src="https://preview.redd.it/5gysbdprf15g1.png?width=640&crop=smart&auto=webp&s=4618abf5322856bc10eef16831cab5104658d958" alt="Random Meme" width="500"/>
+**let's look**  
+<img src="https://preview.redd.it/eehpu246me5g1.png?width=1080&crop=smart&auto=webp&s=094a21444a41f651ca4f5c6d8ff3aac8d262f045" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
