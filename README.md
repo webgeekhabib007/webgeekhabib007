@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The whiteknighting(?) is crazy!**  
-<img src="https://preview.redd.it/siiuloz99c5g1.gif?width=320&crop=smart&format=png8&s=c0896fdece3bd45c948a1bb2820fbfb513d9628e" alt="Random Meme" width="500"/>
+**"The father wasn't available for comments."**  
+<img src="https://preview.redd.it/xm3myqw0585g1.png?width=640&crop=smart&auto=webp&s=aa90ee872f75f174e7b506f24344287901a51c83" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
