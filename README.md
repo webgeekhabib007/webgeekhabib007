@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"gEt uP gIrL!!!" WITH 30K LIKES! why yall really hate each other that much 💀**  
-<img src="https://preview.redd.it/mgx4vtj3hc5g1.png?width=640&crop=smart&auto=webp&s=a456343759ac0c4c390c2ffc9527bfc8b2a16803" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/yksmwzn5o95g1.png?width=1080&crop=smart&auto=webp&s=dfee8a98b2bf0ddc09555c44e7220f1ef8801909" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
