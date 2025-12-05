@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You've got to wiggle it**  
-<img src="https://preview.redd.it/au0xrdwzyb5g1.gif?width=216&crop=smart&format=png8&s=08df922df808823ec8d60f80f24d12c1afbeb46c" alt="Random Meme" width="500"/>
+**For me?**  
+<img src="https://preview.redd.it/qfvu4cc1r85g1.gif?width=320&crop=smart&format=png8&s=faf800dfd45a016b06a870da7455d93fe06541db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
