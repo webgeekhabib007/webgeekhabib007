@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"The father wasn't available for comments."**  
-<img src="https://preview.redd.it/xm3myqw0585g1.png?width=640&crop=smart&auto=webp&s=aa90ee872f75f174e7b506f24344287901a51c83" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/9jucwx5mxt4g1.png?width=1080&crop=smart&auto=webp&s=c676e38bc1754886fcf348a8e7c4103433f05658" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
