@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Reaching my fitness goals like a pro**  
-<img src="https://preview.redd.it/u4zofatvw75g1.png?width=1080&crop=smart&auto=webp&s=78ce9108402db1e932cf38f791e3e39dbb1cd9bf" alt="Random Meme" width="500"/>
+**How does this sub still exist**  
+<img src="https://preview.redd.it/5iq31quso75g1.png?width=1080&crop=smart&auto=webp&s=428fb802255f27d271994c805f72aed9610a5b88" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
