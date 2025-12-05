@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Same keys, different processes**  
-<img src="https://preview.redd.it/nr83n5euo75g1.png?width=640&crop=smart&auto=webp&s=79ed2b18cab0cb4462e258b70cf4e2407539edf0" alt="Random Meme" width="500"/>
+**Aaaand it's back**  
+<img src="https://preview.redd.it/qm9ppkfklt4g1.png?width=320&crop=smart&auto=webp&s=4031768c56b52f9be86098706241064a9e8ab1d8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
