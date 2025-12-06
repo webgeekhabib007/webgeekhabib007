@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Do I need a lawyer?**  
-<img src="https://preview.redd.it/lekfobw7ya5g1.gif?width=320&crop=smart&format=png8&s=413705b8f4af290038669124bfd095167a2c629c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/9llb4gspxi5g1.png?width=1080&crop=smart&auto=webp&s=5d52ede62bd7174a84149ecfc22229eb4521856b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
