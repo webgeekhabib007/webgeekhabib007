@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/pkhw8u38s75g1.png?width=640&crop=smart&auto=webp&s=3b7d327fea0ec711788db578574d11eab2c88e3a" alt="Random Meme" width="500"/>
+**Condition systems in video games be like**  
+<img src="https://preview.redd.it/hlv74hrqcg5g1.png?width=1080&crop=smart&auto=webp&s=06ca8fbc96be06afe0ba53d021e9506cae371c3b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
