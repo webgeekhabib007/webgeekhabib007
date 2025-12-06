@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**you dont match my level kiddo**  
-<img src="https://preview.redd.it/dsvryoixxj5g1.png?width=960&crop=smart&auto=webp&s=26aece56f73590f1c02cb87159ee304c825572a0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/maodfxunca5g1.png?width=1080&crop=smart&auto=webp&s=ba4f2a6046eb7e9afaa556116ec22a0d1ed0efc3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
