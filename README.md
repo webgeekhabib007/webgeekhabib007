@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If you can't parent, don't parent**  
-<img src="https://preview.redd.it/4bw15gxqph5g1.png?width=1080&crop=smart&auto=webp&s=16dd05572e2e9ec60edf25393ca0e529f695074c" alt="Random Meme" width="500"/>
+**you dont match my level kiddo**  
+<img src="https://preview.redd.it/dsvryoixxj5g1.png?width=960&crop=smart&auto=webp&s=26aece56f73590f1c02cb87159ee304c825572a0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
