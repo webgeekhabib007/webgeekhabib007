@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/crnv7d4dmo5g1.gif?width=320&crop=smart&format=png8&s=b24545411fe82266a2f18414375b96f9c86964de" alt="Random Meme" width="500"/>
+**What is a Christmas Movie?**  
+<img src="https://preview.redd.it/b4fpd3iedp5g1.png?width=1080&crop=smart&auto=webp&s=26005df403d918c029c1d83037191b1a4d061c13" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
