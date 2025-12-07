@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**tis the season**  
-<img src="https://preview.redd.it/garogido1g5g1.png?width=640&crop=smart&auto=webp&s=a71abb30ce8d4d0c6640611fb683308b0009c699" alt="Random Meme" width="500"/>
+**In a few months**  
+<img src="https://preview.redd.it/9hyw1mrbdu5g1.png?width=640&crop=smart&auto=webp&s=696a87edc6198bfff12e32aef17492c56830153c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
