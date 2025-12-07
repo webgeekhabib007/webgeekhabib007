@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Banana Recap?**  
-<img src="https://preview.redd.it/yukj8r0iqd5g1.png?width=1080&crop=smart&auto=webp&s=6a6a9be45e45f05e5b4501e7c4ed36fbcdd81adf" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/hbj0jldnij5g1.png?width=640&crop=smart&auto=webp&s=8406253d1b75e75f294e8e5796d7c1da6f6b3b79" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
