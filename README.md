@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Cloudflare at it again**  
-<img src="https://preview.redd.it/qjq7ocdgqc5g1.png?width=320&crop=smart&auto=webp&s=5867f87827ea6526f8381cca3065ecfefdf61f68" alt="Random Meme" width="500"/>
+**Anytime I talk to a type A person**  
+<img src="https://preview.redd.it/j706ydfadp5g1.png?width=640&crop=smart&auto=webp&s=9bde0033df1edb661606fe8f7917730e89e9bcae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
