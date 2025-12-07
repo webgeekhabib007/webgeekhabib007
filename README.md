@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anytime I talk to a type A person**  
-<img src="https://preview.redd.it/j706ydfadp5g1.png?width=640&crop=smart&auto=webp&s=9bde0033df1edb661606fe8f7917730e89e9bcae" alt="Random Meme" width="500"/>
+**please think.**  
+<img src="https://preview.redd.it/pai2mxbi4q5g1.png?width=1080&crop=smart&auto=webp&s=05b0a4ebdbac3db713d3d8dcb02862edef15b3fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
