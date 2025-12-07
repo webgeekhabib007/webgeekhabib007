@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**As a sonic fan since 5 I can concur**  
-<img src="https://preview.redd.it/c9yi0ayhhl5g1.png?width=640&crop=smart&auto=webp&s=9f7a44b77097c8d0c3fd85516ae18c5f2ecac152" alt="Random Meme" width="500"/>
+**It's always water**  
+<img src="https://preview.redd.it/vnaf9lp4lj5g1.png?width=640&crop=smart&auto=webp&s=9a2f3af32cb4f2c0638dde9fe79a84b9058a086a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
