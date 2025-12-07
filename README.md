@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How do people not realize this?**  
-<img src="https://preview.redd.it/pgb84zwowl5g1.png?width=640&crop=smart&auto=webp&s=5a3eab3a9c287665cef7d1f19cf5180b9f64c2c7" alt="Random Meme" width="500"/>
+**As a sonic fan since 5 I can concur**  
+<img src="https://preview.redd.it/c9yi0ayhhl5g1.png?width=640&crop=smart&auto=webp&s=9f7a44b77097c8d0c3fd85516ae18c5f2ecac152" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
