@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Like a true gentleman should**  
-<img src="https://preview.redd.it/3lplqovl155g1.gif?width=640&crop=smart&format=png8&s=734a93b5c04464c7e77ca5f6798572e6d43762e4" alt="Random Meme" width="500"/>
+**You can sleep when you're dead.**  
+<img src="https://preview.redd.it/9ac873kmzq5g1.png?width=1080&crop=smart&auto=webp&s=3595b335714240e8f8749471a3bfc1e2d9849f4a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
