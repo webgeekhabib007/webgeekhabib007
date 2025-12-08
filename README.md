@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Please, Daddy"**  
-<img src="https://preview.redd.it/vdztgivfgk5g1.png?width=1080&crop=smart&auto=webp&s=049004edb395b0cc3252dbc0b7776cd57c1e64e1" alt="Random Meme" width="500"/>
+**Nah no change really**  
+<img src="https://preview.redd.it/u6dymrld1a5g1.gif?width=640&crop=smart&format=png8&s=72f226188ba891919ee97499b744fe67653efb03" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
