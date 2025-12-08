@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Banana Recap?**  
-<img src="https://preview.redd.it/yukj8r0iqd5g1.png?width=1080&crop=smart&auto=webp&s=6a6a9be45e45f05e5b4501e7c4ed36fbcdd81adf" alt="Random Meme" width="500"/>
+**I translated this 2013 meme from Norway so more people can enjoy it!**  
+<img src="https://preview.redd.it/rczxi28zmc5g1.png?width=320&crop=smart&auto=webp&s=d05d8ed12a17d391df983d093eef49689873cf8b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
