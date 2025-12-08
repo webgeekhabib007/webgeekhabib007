@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Health is true wealth**  
-<img src="https://preview.redd.it/ta798ftdyx5g1.png?width=1080&crop=smart&auto=webp&s=bd05114f33c2cc98d003aef8481adc637edbd16b" alt="Random Meme" width="500"/>
+**learn from your mistakes**  
+<img src="https://preview.redd.it/8dnbcq8f1s5g1.png?width=1080&crop=smart&auto=webp&s=20118efd2c3c311ba46440e94820b81dcf0bfd72" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
