@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In a few months**  
-<img src="https://preview.redd.it/9hyw1mrbdu5g1.png?width=640&crop=smart&auto=webp&s=696a87edc6198bfff12e32aef17492c56830153c" alt="Random Meme" width="500"/>
+**Why are they doing it?**  
+<img src="https://preview.redd.it/rslni10flv5g1.png?width=1080&crop=smart&auto=webp&s=99740ddf5e55ed0aed2831c916733cd1e733f091" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
