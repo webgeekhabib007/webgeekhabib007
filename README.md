@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sam carried me**  
-<img src="https://preview.redd.it/1wct1iovcy5g1.gif?width=640&crop=smart&format=png8&s=f2e015ba02c2814ed85a106ba2c781a5232cd3c9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ap0lwukmyx5g1.png?width=1080&crop=smart&auto=webp&s=38940073f044ad373693c65af3b787120df6d0c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
