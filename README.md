@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We've Been Replaced by Slightly Smarter Bananas**  
-<img src="https://preview.redd.it/ozt74ljq0v5g1.png?width=960&crop=smart&auto=webp&s=9bd01c7abb74b67aae536f20b3054b1e1a987478" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/62bbvdltgj5g1.png?width=1080&crop=smart&auto=webp&s=c87295cacf9fe4c23d5717d08a9b04bd2b5bdf4f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
