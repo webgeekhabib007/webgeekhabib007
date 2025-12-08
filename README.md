@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I translated this 2013 meme from Norway so more people can enjoy it!**  
-<img src="https://preview.redd.it/rczxi28zmc5g1.png?width=320&crop=smart&auto=webp&s=d05d8ed12a17d391df983d093eef49689873cf8b" alt="Random Meme" width="500"/>
+**Sam carried me**  
+<img src="https://preview.redd.it/1wct1iovcy5g1.gif?width=640&crop=smart&format=png8&s=f2e015ba02c2814ed85a106ba2c781a5232cd3c9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
