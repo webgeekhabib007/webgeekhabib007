@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My brain when I start liking someone**  
-<img src="https://preview.redd.it/vqmpxbqcny5g1.png?width=1080&crop=smart&auto=webp&s=046c6d2f6df0a856b203c960042009f151d1fbc6" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/4g54rvh4a06g1.png?width=640&crop=smart&auto=webp&s=37efc7ec8139f658bf8a0d97474af462c4ed9650" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
