@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You know it’s about to be gas**  
-<img src="https://preview.redd.it/8ntluviw606g1.gif?width=640&crop=smart&format=png8&s=ec31c0e2f4f4c9eb8f6671544a3ac6e761bdf960" alt="Random Meme" width="500"/>
+**is that kirkflation?**  
+<img src="https://preview.redd.it/joaafx832s5g1.png?width=1080&crop=smart&auto=webp&s=5a6caffa7a299b15456857ef59feaf1ed838639f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
