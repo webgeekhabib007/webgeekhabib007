@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just gotta stay one word ahead**  
-<img src="https://preview.redd.it/2v04vs6ui06g1.gif?width=320&crop=smart&format=png8&s=c0c82a2f58dfe5d896bad5296fb7ef297b68830d" alt="Random Meme" width="500"/>
+**Why are they doing it?**  
+<img src="https://preview.redd.it/rslni10flv5g1.png?width=1080&crop=smart&auto=webp&s=99740ddf5e55ed0aed2831c916733cd1e733f091" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
