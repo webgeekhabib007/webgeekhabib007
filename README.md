@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**'nuff sed...**  
-<img src="https://preview.redd.it/f620gx7aqj5g1.png?width=640&crop=smart&auto=webp&s=3cc4204ea05cd41c7961566211f720fcfe313d92" alt="Random Meme" width="500"/>
+**My idea for how to improve human teeth:**  
+<img src="https://preview.redd.it/t8de692vi76g1.png?width=1080&crop=smart&auto=webp&s=d86ff1bab6bcb7329e9416d122d1f60f301975c3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
