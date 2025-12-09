@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They're the Captain now**  
-<img src="https://preview.redd.it/rdkecj8bcz5g1.png?width=960&crop=smart&auto=webp&s=45552674d3f86f317c31340b6a20985b6f60b6a3" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/inlnu2617r5g1.png?width=1080&crop=smart&auto=webp&s=7fe65879551bf8352085378e9a8c242d99b35693" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
