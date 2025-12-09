@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"My bike or his neck? Your choice."**  
-<img src="https://preview.redd.it/k3x58gdmcu5g1.png?width=640&crop=smart&auto=webp&s=469d47c0e8a363535e004bed251a05ad11844613" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ko7b1jlt8v5g1.png?width=1080&crop=smart&auto=webp&s=b04a54d8d8940ebcafc4aa7bc4304abd6ce12dde" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
