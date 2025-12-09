@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/znwkp22ceh5g1.png?width=1080&crop=smart&auto=webp&s=5271b1601b6bcbce00cf4f8e03746f47a6090b72" alt="Random Meme" width="500"/>
+**The duality of women.**  
+<img src="https://preview.redd.it/c30l5xttrp5g1.png?width=320&crop=smart&auto=webp&s=3846547a187ceb75af5e1c0e4e18d93b93403569" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
