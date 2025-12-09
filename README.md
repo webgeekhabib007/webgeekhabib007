@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Take It Back now Y'all!**  
-<img src="https://preview.redd.it/i374itolf56g1.png?width=320&crop=smart&auto=webp&s=133886fd4e9c5f60e4e42d8d4313beb9c8c68bbf" alt="Random Meme" width="500"/>
+**They're the Captain now**  
+<img src="https://preview.redd.it/rdkecj8bcz5g1.png?width=960&crop=smart&auto=webp&s=45552674d3f86f317c31340b6a20985b6f60b6a3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
