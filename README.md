@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**is that kirkflation?**  
-<img src="https://preview.redd.it/joaafx832s5g1.png?width=1080&crop=smart&auto=webp&s=5a6caffa7a299b15456857ef59feaf1ed838639f" alt="Random Meme" width="500"/>
+**Pure Memeslop**  
+<img src="https://preview.redd.it/lj0tzz1so76g1.gif?width=320&crop=smart&format=png8&s=0cba9a1bbaa0bb92d39c595df9985beb9e6b422b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
