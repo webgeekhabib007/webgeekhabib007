@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What my cat is up to at 4:29 A.M.**  
-<img src="https://preview.redd.it/k8ftfxxy5a6g1.png?width=320&crop=smart&auto=webp&s=88fb9608bfc5a75f0a8f2aab7a2cb9a8034ecca0" alt="Random Meme" width="500"/>
+**is that kirkflation?**  
+<img src="https://preview.redd.it/joaafx832s5g1.png?width=1080&crop=smart&auto=webp&s=5a6caffa7a299b15456857ef59feaf1ed838639f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
