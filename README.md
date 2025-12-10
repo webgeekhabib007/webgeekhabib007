@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why are they doing it?**  
-<img src="https://preview.redd.it/rslni10flv5g1.png?width=1080&crop=smart&auto=webp&s=99740ddf5e55ed0aed2831c916733cd1e733f091" alt="Random Meme" width="500"/>
+**that 1% will affect the entire 99%**  
+<img src="https://preview.redd.it/6xrytsziey5g1.png?width=960&crop=smart&auto=webp&s=e5e39a3849a0ac33abea529acba7685b06d3bc8d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
