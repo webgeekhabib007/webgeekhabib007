@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**that 1% will affect the entire 99%**  
-<img src="https://preview.redd.it/6xrytsziey5g1.png?width=960&crop=smart&auto=webp&s=e5e39a3849a0ac33abea529acba7685b06d3bc8d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/zv9e6m3rr86g1.png?width=1080&crop=smart&auto=webp&s=1370fbd03426cc64e2ca65277feff43726d5982b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
