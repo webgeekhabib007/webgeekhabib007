@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/2s8do57vfz5g1.png?width=1080&crop=smart&auto=webp&s=8c243630d6e04cbd8f20bf099d56d2e8aab4afa4" alt="Random Meme" width="500"/>
+**Had to go to the zoo for my finals and study animals….Im pretty sure that monkey is thinking on how to hang itself.**  
+<img src="https://preview.redd.it/ru305bp6nf6g1.gif?width=640&crop=smart&format=png8&s=1aa67f3ea7f65339428cc1b733695ae1f6497aa9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
