@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**[Boss music intensifies]**  
-<img src="https://preview.redd.it/hug4u0wuji6g1.png?width=640&crop=smart&auto=webp&s=a7ccc4876b4202a3608bff635e513f8dea08d4ce" alt="Random Meme" width="500"/>
+**That'll really enhance it**  
+<img src="https://preview.redd.it/nsrdb19cdc6g1.png?width=320&crop=smart&auto=webp&s=94c048e6b1db803e3c9455c59af0e3b0b606c957" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
