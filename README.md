@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mathematics counts toward this.**  
-<img src="https://preview.redd.it/mcworsv5mg6g1.png?width=1080&crop=smart&auto=webp&s=31b56c20f2ac80115240b573b50f61091e52263d" alt="Random Meme" width="500"/>
+**Bad timing**  
+<img src="https://preview.redd.it/x8g3pnhjme6g1.png?width=1080&crop=smart&auto=webp&s=43458eea99ccdd2a8f89723c3fe66c7e61deb003" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
