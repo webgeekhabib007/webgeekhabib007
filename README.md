@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You missed the bus.**  
-<img src="https://preview.redd.it/ngbzipaz5l6g1.png?width=640&crop=smart&auto=webp&s=0f347c1294e47b28ae7622e89c510c6ea618f1d8" alt="Random Meme" width="500"/>
+**James Hunt and Lando Norris...Goo Lando**  
+<img src="https://preview.redd.it/e0ecgm7gb16g1.png?width=640&crop=smart&auto=webp&s=00584720c43b201f695002f61bd55313695ae539" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
