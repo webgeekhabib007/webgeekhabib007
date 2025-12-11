@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A glowing title.**  
-<img src="https://preview.redd.it/6nlk0rapcv5g1.png?width=640&crop=smart&auto=webp&s=c12ba951925fb0093e84fd04700c7db0449c5b87" alt="Random Meme" width="500"/>
+**Maybe I should delete Twitter istg**  
+<img src="https://preview.redd.it/yzj7ot0im06g1.gif?width=320&crop=smart&format=png8&s=51c78951e11b28ffe64859ebd85a68c4aed3ccab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
