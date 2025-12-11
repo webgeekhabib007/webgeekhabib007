@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Maybe I should delete Twitter istg**  
-<img src="https://preview.redd.it/yzj7ot0im06g1.gif?width=320&crop=smart&format=png8&s=51c78951e11b28ffe64859ebd85a68c4aed3ccab" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/13c5dn18l86g1.png?width=640&crop=smart&auto=webp&s=9df62afcc8d6f2d4e0091e08e7b25f079cd7d5a9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
