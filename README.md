@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Stop worrying about the specs, just play &amp; have a good time.**  
-<img src="https://preview.redd.it/s0fhvd9laj6g1.png?width=1080&crop=smart&auto=webp&s=1181e100d21c87cba927b587439a5a89090c81fc" alt="Random Meme" width="500"/>
+**Mathematics counts toward this.**  
+<img src="https://preview.redd.it/mcworsv5mg6g1.png?width=1080&crop=smart&auto=webp&s=31b56c20f2ac80115240b573b50f61091e52263d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
