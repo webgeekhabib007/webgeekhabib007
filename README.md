@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/13c5dn18l86g1.png?width=640&crop=smart&auto=webp&s=9df62afcc8d6f2d4e0091e08e7b25f079cd7d5a9" alt="Random Meme" width="500"/>
+**"Dragons hoarding all the gold is actually beneficial for the public."**  
+<img src="https://preview.redd.it/1n2x6ra54e6g1.png?width=640&crop=smart&auto=webp&s=461d09b7ee4060307f6990bedb77409f639002ef" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
