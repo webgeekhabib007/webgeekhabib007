@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/yru40f20q86g1.png?width=1080&crop=smart&auto=webp&s=0f3d2c336e09501fe5f888581548c5d6e96ba365" alt="Random Meme" width="500"/>
+**Bide your time? Lie in wait?**  
+<img src="https://preview.redd.it/ke5zf6osqi6g1.gif?width=320&crop=smart&format=png8&s=29c238db11535c794a456eeb1803d4b97493d992" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
