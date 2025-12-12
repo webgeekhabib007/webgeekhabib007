@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**linux users**  
-<img src="https://preview.redd.it/xprr4xj28f6g1.gif?width=640&crop=smart&format=png8&s=b59caa6ea0eac4cb2b7cfe6dd4779ac9a8999e7a" alt="Random Meme" width="500"/>
+**Where are they ?**  
+<img src="https://preview.redd.it/78ne4r8v5n6g1.gif?width=640&crop=smart&format=png8&s=5f058b425e391dce8f039b0817fb82894ae9e91d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
