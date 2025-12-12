@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't differentiate these days🧐**  
-<img src="https://preview.redd.it/0fhmpafaln6g1.png?width=1080&crop=smart&auto=webp&s=232174377c26f48efc6acf7c0df42fe37abf6098" alt="Random Meme" width="500"/>
+**linux users**  
+<img src="https://preview.redd.it/xprr4xj28f6g1.gif?width=640&crop=smart&format=png8&s=b59caa6ea0eac4cb2b7cfe6dd4779ac9a8999e7a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
