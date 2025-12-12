@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yo dude, check it out there's a world outside your window!**  
-<img src="https://preview.redd.it/k9qi0741os6g1.png?width=1080&crop=smart&auto=webp&s=3fbaa3fa9511e1a5015234cc3c90b05f7050ab72" alt="Random Meme" width="500"/>
+**Suddenly there are thousands?**  
+<img src="https://preview.redd.it/5uon4pfexn6g1.gif?width=320&crop=smart&format=png8&s=1899024b1e0405f840238a9f07df288bc76bef6f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
