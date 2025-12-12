@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/awr6nzh8ko6g1.png?width=1080&crop=smart&auto=webp&s=cab06adddf95a44ec4ef6d3cac2cab1dd928b3a1" alt="Random Meme" width="500"/>
+**"I ain't losing to no Clanker!"**  
+<img src="https://preview.redd.it/4k995w8dam6g1.png?width=640&crop=smart&auto=webp&s=ae9bdedcfcd01d16825bf1222415f3af61773462" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
