@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**successfully ruins my sleep everytime**  
-<img src="https://preview.redd.it/c2nnbb6gfr6g1.png?width=320&crop=smart&auto=webp&s=657b246281705bf8aa031b50b5b03b1a8af12c98" alt="Random Meme" width="500"/>
+**Homopotter**  
+<img src="https://preview.redd.it/0st7u8seju6g1.png?width=960&crop=smart&auto=webp&s=abc4cea048999e96dee29988f105dd638d91636b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
