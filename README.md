@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The prophecy has come true.**  
-<img src="https://preview.redd.it/a94v1otg2x6g1.png?width=1080&crop=smart&auto=webp&s=627e428a830da72371adc1f644ab3416f3d22f79" alt="Random Meme" width="500"/>
+**successfully ruins my sleep everytime**  
+<img src="https://preview.redd.it/c2nnbb6gfr6g1.png?width=320&crop=smart&auto=webp&s=657b246281705bf8aa031b50b5b03b1a8af12c98" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
