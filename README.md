@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Homopotter**  
-<img src="https://preview.redd.it/0st7u8seju6g1.png?width=960&crop=smart&auto=webp&s=abc4cea048999e96dee29988f105dd638d91636b" alt="Random Meme" width="500"/>
+**oh.....yeah**  
+<img src="https://preview.redd.it/oj8iqvtsh86g1.png?width=1080&crop=smart&auto=webp&s=6a5cadbdd16303fb871485036a3f98423d4d152d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
