@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Behold! Dear husband!**  
-<img src="https://preview.redd.it/92guepe0wm6g1.gif?width=640&crop=smart&format=png8&s=b28e8007309583d3513d1c04601a9bfa464fb35d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/4jxbfhrxvs6g1.png?width=1080&crop=smart&auto=webp&s=ac795ffa13650af6dab3fddb326fff493e8294bd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
