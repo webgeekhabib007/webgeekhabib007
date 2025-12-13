@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/cguhz6a45t6g1.png?width=1080&crop=smart&auto=webp&s=011ca60f610e200c42d540930d9b8f68fcd9bb63" alt="Random Meme" width="500"/>
+**Sesbian Lex or we riot**  
+<img src="https://preview.redd.it/4v1tl1movp6g1.gif?width=216&crop=smart&format=png8&s=4d19172d30d4b756db36c7fad42d9614376c2228" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
