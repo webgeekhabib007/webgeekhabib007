@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Suddenly there are thousands?**  
-<img src="https://preview.redd.it/5uon4pfexn6g1.gif?width=320&crop=smart&format=png8&s=1899024b1e0405f840238a9f07df288bc76bef6f" alt="Random Meme" width="500"/>
+**quentin danantino**  
+<img src="https://preview.redd.it/lulvnct9ru6g1.png?width=640&crop=smart&auto=webp&s=83f8da1247a97ffdf7dbf99291c12a147d9c9a0e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
