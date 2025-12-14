@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**some things take time**  
-<img src="https://preview.redd.it/08l53dfhq67g1.png?width=1080&crop=smart&auto=webp&s=14d4f14d1eac710f57f94830c2833f40ea24b902" alt="Random Meme" width="500"/>
+**Family trip or Donner party?**  
+<img src="https://preview.redd.it/1uy2r0le0p6g1.gif?width=640&crop=smart&format=png8&s=13f690c6edbc3f39fed658ca91ea52b96e099caf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
