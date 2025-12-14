@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hope this email finds you well**  
-<img src="https://preview.redd.it/fwmm4j42q47g1.png?width=640&crop=smart&auto=webp&s=06257961835102e44dbd244642ac013cc36f3638" alt="Random Meme" width="500"/>
+**blud is going up to the roof to drink with his buds**  
+<img src="https://preview.redd.it/1l5lf1jl857g1.png?width=960&crop=smart&auto=webp&s=ba02e50f40c769fb34355cd52419f3cfd9a746d2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
