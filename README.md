@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**blud is going up to the roof to drink with his buds**  
-<img src="https://preview.redd.it/1l5lf1jl857g1.png?width=960&crop=smart&auto=webp&s=ba02e50f40c769fb34355cd52419f3cfd9a746d2" alt="Random Meme" width="500"/>
+**Good gompany? I choose "no company"**  
+<img src="https://preview.redd.it/qwwsdnspyz6g1.gif?width=640&crop=smart&format=png8&s=59fc3008189aec3e3c237c0783be0fb5df3a4766" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
