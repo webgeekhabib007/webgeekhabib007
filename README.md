@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the fandom is dying**  
-<img src="https://preview.redd.it/qunbu89ldt6g1.png?width=1080&crop=smart&auto=webp&s=f7ab0b9ca64986ca151eee95233fa10b63554145" alt="Random Meme" width="500"/>
+**ts stuff pmo**  
+<img src="https://preview.redd.it/ritxo1yn037g1.png?width=320&crop=smart&auto=webp&s=066834782516ac59a66870d0f21be2d250554322" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
