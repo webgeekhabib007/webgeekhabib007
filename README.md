@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Eating contest celebs**  
-<img src="https://preview.redd.it/m1ywjegb137g1.png?width=640&crop=smart&auto=webp&s=9c75239a71b5555c1bdfb4cf6fe2dae8c8b9db6f" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/vdzeknpub27g1.png?width=320&crop=smart&auto=webp&s=e019f746aac890da3c092f9d77c821e08594abed" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
