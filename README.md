@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/vdzeknpub27g1.png?width=320&crop=smart&auto=webp&s=e019f746aac890da3c092f9d77c821e08594abed" alt="Random Meme" width="500"/>
+**Good gompany? I choose "no company"**  
+<img src="https://preview.redd.it/qwwsdnspyz6g1.gif?width=640&crop=smart&format=png8&s=59fc3008189aec3e3c237c0783be0fb5df3a4766" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
