@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Peak gameplay and story**  
-<img src="https://preview.redd.it/quh0b3rsh67g1.png?width=640&crop=smart&auto=webp&s=73ba629d6046cb3988cf66fa2921dc49cb69cfb9" alt="Random Meme" width="500"/>
+**try again**  
+<img src="https://preview.redd.it/0lsift2xym6g1.png?width=960&crop=smart&auto=webp&s=8abd21d9557dc9c0ce8bc2ae9ebfeb32dde6e2a1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
