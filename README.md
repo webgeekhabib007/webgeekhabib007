@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mfw I dont have to play Lego with the great-grandkids anymore**  
-<img src="https://preview.redd.it/rrz8zngf8x6g1.png?width=1080&crop=smart&auto=webp&s=c23c23fa954740dd4677227602d75b928cae31b5" alt="Random Meme" width="500"/>
+**who would win?**  
+<img src="https://preview.redd.it/6xkuotdi357g1.png?width=640&crop=smart&auto=webp&s=eaa2c8c18a58948db0d297e267a5b1f7d7cd665f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
