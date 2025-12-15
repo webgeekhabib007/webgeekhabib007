@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Family trip or Donner party?**  
-<img src="https://preview.redd.it/1uy2r0le0p6g1.gif?width=640&crop=smart&format=png8&s=13f690c6edbc3f39fed658ca91ea52b96e099caf" alt="Random Meme" width="500"/>
+**"B-But you did this."**  
+<img src="https://preview.redd.it/3l7hro7tg87g1.png?width=640&crop=smart&auto=webp&s=36580de1d5e040a737ab47abc5ae6cdcd68a9a60" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
