@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mfw I dont have to play Lego with the great-grandkids anymore**  
-<img src="https://preview.redd.it/rrz8zngf8x6g1.png?width=1080&crop=smart&auto=webp&s=c23c23fa954740dd4677227602d75b928cae31b5" alt="Random Meme" width="500"/>
+**Why do you consider it holy?**  
+<img src="https://preview.redd.it/3oo7hw22zz6g1.png?width=1080&crop=smart&auto=webp&s=fc79a135bd70f6ea427b680d234c60e6e6477edb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
