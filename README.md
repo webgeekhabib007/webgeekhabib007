@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/yl0g7o18a97g1.png?width=640&crop=smart&auto=webp&s=39660f4717d937ce1bff7461fda6795b91f26986" alt="Random Meme" width="500"/>
+**Mfw I dont have to play Lego with the great-grandkids anymore**  
+<img src="https://preview.redd.it/rrz8zngf8x6g1.png?width=1080&crop=smart&auto=webp&s=c23c23fa954740dd4677227602d75b928cae31b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
