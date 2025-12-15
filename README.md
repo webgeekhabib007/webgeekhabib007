@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wow monday**  
-<img src="https://preview.redd.it/ft04kw7yca7g1.png?width=640&crop=smart&auto=webp&s=c07c2a5e6180b80173de4df6c917e39cbbf04816" alt="Random Meme" width="500"/>
+**Peace**  
+<img src="https://preview.redd.it/np3ou0hzu57g1.gif?width=640&crop=smart&format=png8&s=fb8cb0afc1e890af4a3ad4021b18b5c7e03bfc73" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
