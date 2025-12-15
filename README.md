@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"B-But you did this."**  
-<img src="https://preview.redd.it/3l7hro7tg87g1.png?width=640&crop=smart&auto=webp&s=36580de1d5e040a737ab47abc5ae6cdcd68a9a60" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/a3d4sd3uq07g1.png?width=640&crop=smart&auto=webp&s=7eba73ffb4bde92e7eac323d0a4cedac514a7ebe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
