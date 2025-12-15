@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Peace**  
-<img src="https://preview.redd.it/np3ou0hzu57g1.gif?width=640&crop=smart&format=png8&s=fb8cb0afc1e890af4a3ad4021b18b5c7e03bfc73" alt="Random Meme" width="500"/>
+**Welcome, yet another year**  
+<img src="https://preview.redd.it/98dcsltflo6g1.gif?width=320&crop=smart&format=png8&s=fabf3f7a6c5e97f044d336143ee13940c49dea4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
