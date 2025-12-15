@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In these trying times, allow me to suggest(ironically),… migration**  
-<img src="https://preview.redd.it/1fqlhk0v697g1.gif?width=320&crop=smart&format=png8&s=a3272edc1ac8f0174ebcffb4baec28adc5ff5b10" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/yl0g7o18a97g1.png?width=640&crop=smart&auto=webp&s=39660f4717d937ce1bff7461fda6795b91f26986" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
