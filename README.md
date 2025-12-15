@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sesbian Lex or we riot**  
-<img src="https://preview.redd.it/4v1tl1movp6g1.gif?width=216&crop=smart&format=png8&s=4d19172d30d4b756db36c7fad42d9614376c2228" alt="Random Meme" width="500"/>
+**People do have converstations where they randomly recommend political parties to one another**  
+<img src="https://preview.redd.it/cimagu9gn07g1.png?width=640&crop=smart&auto=webp&s=a4de0fdec89f06616c920fd956c5da609eb550a1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
