@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**who would win?**  
-<img src="https://preview.redd.it/6xkuotdi357g1.png?width=640&crop=smart&auto=webp&s=eaa2c8c18a58948db0d297e267a5b1f7d7cd665f" alt="Random Meme" width="500"/>
+**In these trying times, allow me to suggest(ironically),… migration**  
+<img src="https://preview.redd.it/1fqlhk0v697g1.gif?width=320&crop=smart&format=png8&s=a3272edc1ac8f0174ebcffb4baec28adc5ff5b10" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
