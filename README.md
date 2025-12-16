@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Smells Like Fear**  
-<img src="https://preview.redd.it/fy5fyg8z9b7g1.png?width=640&crop=smart&auto=webp&s=fa88432e1ecab868882cccd27d8efd1e9c510d59" alt="Random Meme" width="500"/>
+**ARMATURES!**  
+<img src="https://preview.redd.it/p886hff33g7g1.png?width=320&crop=smart&auto=webp&s=e8edd5279686574d9180f0cc885b75edba781c34" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
