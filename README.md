@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i just watched the game awards**  
-<img src="https://preview.redd.it/42v2n09iif7g1.png?width=1080&crop=smart&auto=webp&s=43172fb91a5a91f607ce74b99232f9830314700e" alt="Random Meme" width="500"/>
+**im never trusting a clanker**  
+<img src="https://preview.redd.it/rdtsxh4rga7g1.png?width=640&crop=smart&auto=webp&s=5f4d6c243b2599d819cd4ebf23ea844fb1d7597c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
