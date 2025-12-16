@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**im never trusting a clanker**  
-<img src="https://preview.redd.it/rdtsxh4rga7g1.png?width=640&crop=smart&auto=webp&s=5f4d6c243b2599d819cd4ebf23ea844fb1d7597c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/7je2mzd4wf7g1.png?width=1080&crop=smart&auto=webp&s=c141000f573928f9a7635a74aae84bf73a4772e5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
