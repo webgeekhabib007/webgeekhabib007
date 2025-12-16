@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/7je2mzd4wf7g1.png?width=1080&crop=smart&auto=webp&s=c141000f573928f9a7635a74aae84bf73a4772e5" alt="Random Meme" width="500"/>
+**Every guru ever**  
+<img src="https://preview.redd.it/rz4l2fu4ye7g1.png?width=960&crop=smart&auto=webp&s=91af706776e1974cac465a5af99e727facc9a0af" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
