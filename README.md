@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/fy51i3q2jd7g1.png?width=640&crop=smart&auto=webp&s=d63534521477c3c50c24a9e9a6db48e60bce5f44" alt="Random Meme" width="500"/>
+**Why do you consider it holy?**  
+<img src="https://preview.redd.it/3oo7hw22zz6g1.png?width=1080&crop=smart&auto=webp&s=fc79a135bd70f6ea427b680d234c60e6e6477edb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
