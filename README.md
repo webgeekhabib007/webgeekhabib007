@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What the hell is going on with them?**  
-<img src="https://preview.redd.it/f3xqjuw76g7g1.png?width=320&crop=smart&auto=webp&s=d4ebd2760d0ae2230a473fa886c9901ff5d5e767" alt="Random Meme" width="500"/>
+**i just watched the game awards**  
+<img src="https://preview.redd.it/42v2n09iif7g1.png?width=1080&crop=smart&auto=webp&s=43172fb91a5a91f607ce74b99232f9830314700e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
