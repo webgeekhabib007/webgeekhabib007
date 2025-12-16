@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There is nothing we can do**  
-<img src="https://preview.redd.it/udi9jinis77g1.png?width=1080&crop=smart&auto=webp&s=d44ad0d243ed53e439094a8451f6b291d361e04a" alt="Random Meme" width="500"/>
+**I didn't do it**  
+<img src="https://preview.redd.it/1w1ddy6zm37g1.png?width=640&crop=smart&auto=webp&s=7d947fb89a8d4e830c24b272ebb2577da03df6da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
