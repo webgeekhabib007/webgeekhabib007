@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There is nothing we can do**  
-<img src="https://preview.redd.it/udi9jinis77g1.png?width=1080&crop=smart&auto=webp&s=d44ad0d243ed53e439094a8451f6b291d361e04a" alt="Random Meme" width="500"/>
+**When a when asks hows life treating you ?**  
+<img src="https://preview.redd.it/i6wv1i06vl7g1.png?width=1080&crop=smart&auto=webp&s=f88bb9e8c7517e2cd2a21f2461162e33a02aa2d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
