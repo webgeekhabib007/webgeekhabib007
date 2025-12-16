@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why do you consider it holy?**  
-<img src="https://preview.redd.it/3oo7hw22zz6g1.png?width=1080&crop=smart&auto=webp&s=fc79a135bd70f6ea427b680d234c60e6e6477edb" alt="Random Meme" width="500"/>
+**Smells Like Fear**  
+<img src="https://preview.redd.it/fy5fyg8z9b7g1.png?width=640&crop=smart&auto=webp&s=fa88432e1ecab868882cccd27d8efd1e9c510d59" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
