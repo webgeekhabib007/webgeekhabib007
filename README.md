@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Watch as Pump rates Spooky Month!**  
-<img src="https://preview.redd.it/wf9wye8yul7g1.png?width=1080&crop=smart&auto=webp&s=419dd2f652e7789c13438e7ec169a03a3abb656d" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/h8n6rdelvi7g1.png?width=1080&crop=smart&auto=webp&s=be964ef69bea5f363d5a46dde6fc4080bf5c3fd5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
