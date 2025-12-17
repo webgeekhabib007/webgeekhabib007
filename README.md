@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When a when asks hows life treating you ?**  
-<img src="https://preview.redd.it/i6wv1i06vl7g1.png?width=1080&crop=smart&auto=webp&s=f88bb9e8c7517e2cd2a21f2461162e33a02aa2d1" alt="Random Meme" width="500"/>
+**You're not avoiding yt ads on tv without computer science degree, trust me**  
+<img src="https://preview.redd.it/uvnisw8iyi7g1.png?width=320&crop=smart&auto=webp&s=47ea51a1b07d6d21b34d7a1d82792e2a8e51b963" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
