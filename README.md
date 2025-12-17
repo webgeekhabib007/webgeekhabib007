@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There is nothing we can do**  
-<img src="https://preview.redd.it/udi9jinis77g1.png?width=1080&crop=smart&auto=webp&s=d44ad0d243ed53e439094a8451f6b291d361e04a" alt="Random Meme" width="500"/>
+**You're not avoiding yt ads on tv without computer science degree, trust me**  
+<img src="https://preview.redd.it/uvnisw8iyi7g1.png?width=320&crop=smart&auto=webp&s=47ea51a1b07d6d21b34d7a1d82792e2a8e51b963" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
