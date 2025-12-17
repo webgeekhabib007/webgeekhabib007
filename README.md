@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He's going to fight in the front line**  
-<img src="https://preview.redd.it/mu5xav2sho7g1.png?width=640&crop=smart&auto=webp&s=d49df82092741a0bcae48d1c51dd909527e7a126" alt="Random Meme" width="500"/>
+**I literally fixed it at Thanksgiving.**  
+<img src="https://preview.redd.it/coyuo74uwl7g1.png?width=960&crop=smart&auto=webp&s=df82d8591a1cef3906d21147107ccafa8d02845e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
