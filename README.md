@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You're not avoiding yt ads on tv without computer science degree, trust me**  
-<img src="https://preview.redd.it/uvnisw8iyi7g1.png?width=320&crop=smart&auto=webp&s=47ea51a1b07d6d21b34d7a1d82792e2a8e51b963" alt="Random Meme" width="500"/>
+**im never trusting a clanker**  
+<img src="https://preview.redd.it/rdtsxh4rga7g1.png?width=640&crop=smart&auto=webp&s=5f4d6c243b2599d819cd4ebf23ea844fb1d7597c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
