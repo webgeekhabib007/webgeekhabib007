@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ever since I switched to Windows 11... I hear a penguin's call.**  
-<img src="https://preview.redd.it/p3656qmhsr7g1.png?width=960&crop=smart&auto=webp&s=933640f3ae01ce335a06ad15169a6939913f4770" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2kztfpyfjl7g1.png?width=640&crop=smart&auto=webp&s=ab9837b980fd94632546d1e430fa333314f85011" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
