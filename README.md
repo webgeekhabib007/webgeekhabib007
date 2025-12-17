@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**who would win?**  
-<img src="https://preview.redd.it/6xkuotdi357g1.png?width=640&crop=smart&auto=webp&s=eaa2c8c18a58948db0d297e267a5b1f7d7cd665f" alt="Random Meme" width="500"/>
+**An amazing titleltit gnizama nA**  
+<img src="https://preview.redd.it/cuz9oil7m87g1.png?width=640&crop=smart&auto=webp&s=955a9ca70203490d45c74c9a6318c032b3e480ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
