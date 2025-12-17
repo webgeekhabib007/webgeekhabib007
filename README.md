@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I literally fixed it at Thanksgiving.**  
-<img src="https://preview.redd.it/coyuo74uwl7g1.png?width=960&crop=smart&auto=webp&s=df82d8591a1cef3906d21147107ccafa8d02845e" alt="Random Meme" width="500"/>
+**ah yes Hero shooter**  
+<img src="https://preview.redd.it/3f7hs9nwmq7g1.png?width=1080&crop=smart&auto=webp&s=d6517562a53a5d1750f84452cbe04a4871e63850" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
