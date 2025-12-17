@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I literally fixed it at Thanksgiving.**  
-<img src="https://preview.redd.it/coyuo74uwl7g1.png?width=960&crop=smart&auto=webp&s=df82d8591a1cef3906d21147107ccafa8d02845e" alt="Random Meme" width="500"/>
+**I agree to his point..**  
+<img src="https://preview.redd.it/hu2liwqi4o7g1.png?width=640&crop=smart&auto=webp&s=eac8e6ee76805eef1c37994f9b327bc735802062" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
