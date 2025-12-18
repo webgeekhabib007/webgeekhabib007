@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Peace**  
-<img src="https://preview.redd.it/np3ou0hzu57g1.gif?width=640&crop=smart&format=png8&s=fb8cb0afc1e890af4a3ad4021b18b5c7e03bfc73" alt="Random Meme" width="500"/>
+**the b-day amnesia - NotComedyComix**  
+<img src="https://preview.redd.it/xfjotja3xz7g1.png?width=1080&crop=smart&auto=webp&s=fa2a63d5a147cfdd012842850f03e05873c0bac5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
