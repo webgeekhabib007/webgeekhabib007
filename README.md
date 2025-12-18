@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Orange man doesn't even have a clone**  
-<img src="https://preview.redd.it/xvw9pc4vle7g1.png?width=960&crop=smart&auto=webp&s=6d049139b1c9d2724eb51d92085e663f914f40ec" alt="Random Meme" width="500"/>
+**But I donated my life savings to you!!! How could you betray me!!! And that’s the real reason why Pokimane doesn’t date because she’ll lose 99% of her income.**  
+<img src="https://preview.redd.it/asa86wsxqy7g1.gif?width=640&crop=smart&format=png8&s=f35996689de9a642ca3fc0c6d2f6096014fd31d0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
