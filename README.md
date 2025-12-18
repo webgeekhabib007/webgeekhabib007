@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**But I donated my life savings to you!!! How could you betray me!!! And that’s the real reason why Pokimane doesn’t date because she’ll lose 99% of her income.**  
-<img src="https://preview.redd.it/asa86wsxqy7g1.gif?width=640&crop=smart&format=png8&s=f35996689de9a642ca3fc0c6d2f6096014fd31d0" alt="Random Meme" width="500"/>
+**Peace**  
+<img src="https://preview.redd.it/np3ou0hzu57g1.gif?width=640&crop=smart&format=png8&s=fb8cb0afc1e890af4a3ad4021b18b5c7e03bfc73" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
