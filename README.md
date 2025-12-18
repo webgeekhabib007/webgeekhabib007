@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Orange man doesn't even have a clone**  
-<img src="https://preview.redd.it/xvw9pc4vle7g1.png?width=960&crop=smart&auto=webp&s=6d049139b1c9d2724eb51d92085e663f914f40ec" alt="Random Meme" width="500"/>
+**I like that he's making movies the way *HE* wants them, not the way studios or audiences want them.**  
+<img src="https://preview.redd.it/3wp64gqzyv7g1.png?width=1080&crop=smart&auto=webp&s=74c31e4c73dbb52b0fd3b7b1fceb78f86c47dcd9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
