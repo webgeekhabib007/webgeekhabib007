@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's Afraid**  
-<img src="https://preview.redd.it/ydbngb56ab7g1.png?width=640&crop=smart&auto=webp&s=a4ea684959ae80d69d1834abe05432c3eb931d4b" alt="Random Meme" width="500"/>
+**When cats return**  
+<img src="https://preview.redd.it/ydxjqqe3bm7g1.png?width=1080&crop=smart&auto=webp&s=0c2677121b396f913da9e6d649113a5b1ee691ed" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
