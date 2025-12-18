@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**your honor, he's me; he did it**  
-<img src="https://preview.redd.it/6slbyw615u7g1.gif?width=640&crop=smart&format=png8&s=a0d5a4ea59f7948ce6f96861e082c134b92df6c8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/hl12b1c3bn7g1.png?width=1080&crop=smart&auto=webp&s=a7700a3051cdfa76711d42eb838399e50303113f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
