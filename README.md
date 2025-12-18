@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I like that he's making movies the way *HE* wants them, not the way studios or audiences want them.**  
-<img src="https://preview.redd.it/3wp64gqzyv7g1.png?width=1080&crop=smart&auto=webp&s=74c31e4c73dbb52b0fd3b7b1fceb78f86c47dcd9" alt="Random Meme" width="500"/>
+**You know who you are.**  
+<img src="https://preview.redd.it/gnidtjypot7g1.png?width=1080&crop=smart&auto=webp&s=9662beba46e6bdd78fec530c8eee673602fd7703" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
