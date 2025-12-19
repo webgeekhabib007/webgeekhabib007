@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/qmjuv9groy7g1.png?width=1080&crop=smart&auto=webp&s=38c98574409ddf489bfbb0b0401762f9a47870c9" alt="Random Meme" width="500"/>
+**Orange man doesn't even have a clone**  
+<img src="https://preview.redd.it/xvw9pc4vle7g1.png?width=960&crop=smart&auto=webp&s=6d049139b1c9d2724eb51d92085e663f914f40ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
