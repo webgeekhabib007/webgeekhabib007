@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i i legit cant man**  
-<img src="https://preview.redd.it/xyul5xn0ow7g1.png?width=960&crop=smart&auto=webp&s=ad46e0d37f7c993a40da276ef4cf09e35bf766c3" alt="Random Meme" width="500"/>
+**2000 years watermarking others' memes**  
+<img src="https://preview.redd.it/48pe932lux7g1.png?width=1080&crop=smart&auto=webp&s=7e84bf056061186b3ccfaaf4440517ca1dd468ea" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
