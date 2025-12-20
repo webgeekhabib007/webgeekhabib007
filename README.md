@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Piggy on the barbie**  
-<img src="https://preview.redd.it/3jbn60rnj18g1.png?width=960&crop=smart&auto=webp&s=d6e226dc075b26d80ef47217182e530975a60ca1" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/bvqm4bf7ab8g1.png?width=1080&crop=smart&auto=webp&s=3b4ffe2b2f7015eaaddf3a9983c291347955a454" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
