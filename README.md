@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dinner and a Show**  
-<img src="https://preview.redd.it/xjhvjlurzs7g1.gif?width=320&crop=smart&format=png8&s=8bd3917e018bf0d4eea118a384cc81dbfd040140" alt="Random Meme" width="500"/>
+**Piggy on the barbie**  
+<img src="https://preview.redd.it/3jbn60rnj18g1.png?width=960&crop=smart&auto=webp&s=d6e226dc075b26d80ef47217182e530975a60ca1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
