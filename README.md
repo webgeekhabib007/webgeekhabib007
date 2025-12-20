@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Every. Single. Year.**  
-<img src="https://preview.redd.it/yrolu95btd8g1.png?width=960&crop=smart&auto=webp&s=025ef9ea50a997c0a76258ceca0c3204fdb5c1e2" alt="Random Meme" width="500"/>
+**to the absolute surprise of nobody**  
+<img src="https://preview.redd.it/zmh32lovcc8g1.png?width=1080&crop=smart&auto=webp&s=4ff35e89648b9df99687ba385a622f0833feffab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
