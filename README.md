@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They're the same.**  
-<img src="https://preview.redd.it/ee3mt3vfz58g1.png?width=640&crop=smart&auto=webp&s=0cb6e658b5d45550bdd9c286d995fcd4cc5205e0" alt="Random Meme" width="500"/>
+**Dinner and a Show**  
+<img src="https://preview.redd.it/xjhvjlurzs7g1.gif?width=320&crop=smart&format=png8&s=8bd3917e018bf0d4eea118a384cc81dbfd040140" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
