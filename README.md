@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**what goes around comes around**  
-<img src="https://preview.redd.it/vnazyhqb748g1.png?width=640&crop=smart&auto=webp&s=39293f538493055ecf09e10e02f256f392f76ecc" alt="Random Meme" width="500"/>
+**Celebrating New Year**  
+<img src="https://preview.redd.it/4zgvxho2t98g1.png?width=320&crop=smart&auto=webp&s=6822ddc80982073061697f8e998c314127c9e712" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
