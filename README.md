@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Good comparison**  
-<img src="https://preview.redd.it/es0taii2ne8g1.png?width=1080&crop=smart&auto=webp&s=1930c558b036a2d5717315de726eb0cfaf7d0470" alt="Random Meme" width="500"/>
+**Women, we love you, but please stop telling us to shave. We know what's under there. You don't.**  
+<img src="https://preview.redd.it/dal02qhfr78g1.png?width=640&crop=smart&auto=webp&s=bd355f043d6a9af92f76212ed0100373ca8cd571" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
