@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**don't be mad at your boss, be mad at the computer your boss hired to replace you**  
-<img src="https://preview.redd.it/eovd48sh9g8g1.png?width=320&crop=smart&auto=webp&s=6bd0c6dd3b1dd11ae20f8ba628aa11d7240e0899" alt="Random Meme" width="500"/>
+**Happy birthday, big chungus!**  
+<img src="https://preview.redd.it/2t6jrqqd1h8g1.png?width=1080&crop=smart&auto=webp&s=c2dc1394f688b3a0b1f556fdb1d028d432d5218f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
