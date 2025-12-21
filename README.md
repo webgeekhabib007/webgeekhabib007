@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happy birthday, big chungus!**  
-<img src="https://preview.redd.it/2t6jrqqd1h8g1.png?width=1080&crop=smart&auto=webp&s=c2dc1394f688b3a0b1f556fdb1d028d432d5218f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3rr5expwhe8g1.png?width=320&crop=smart&auto=webp&s=66d23ecb06c0cc16aac44e9a484bd67ec1cc86fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
