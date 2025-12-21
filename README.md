@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This has already been done to death but I honestly couldn't help myself XD I'm sorry**  
-<img src="https://preview.redd.it/6vihnd11la8g1.png?width=1080&crop=smart&auto=webp&s=614ffab1813148366ef98c853d0a288812454938" alt="Random Meme" width="500"/>
+**emotional flex**  
+<img src="https://preview.redd.it/w7br8ztpf18g1.png?width=640&crop=smart&auto=webp&s=ddee185c8b44ac0911e1db2b094421234d5460df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
