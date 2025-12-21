@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**POV: When my friend slips in the snow**  
-<img src="https://preview.redd.it/fdpny0aq0a8g1.png?width=1080&crop=smart&auto=webp&s=e72374c208107b0d5c20006448cefa333b563b90" alt="Random Meme" width="500"/>
+**A sad title.**  
+<img src="https://preview.redd.it/sw00ajzwz38g1.png?width=640&crop=smart&auto=webp&s=f361d2cca8b499eb20d1fa3d36704bbea69c273c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
