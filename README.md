@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It was at this moment he knew he f'd up**  
-<img src="https://preview.redd.it/1lqcbq20rj8g1.png?width=1080&crop=smart&auto=webp&s=26fd76fc5c766cce42173a6ea16173dceeaccf37" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/bmb3fei0oi8g1.png?width=1080&crop=smart&auto=webp&s=67e499ed076913d2dead1478f18301198285a210" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
