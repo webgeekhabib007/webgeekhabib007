@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**All that resource usage for this ?**  
-<img src="https://preview.redd.it/yfx9slxg848g1.gif?width=320&crop=smart&format=png8&s=5b1adc439ad821bec11b17b85b637c4227f9d88c" alt="Random Meme" width="500"/>
+**don't be mad at your boss, be mad at the computer your boss hired to replace you**  
+<img src="https://preview.redd.it/eovd48sh9g8g1.png?width=320&crop=smart&auto=webp&s=6bd0c6dd3b1dd11ae20f8ba628aa11d7240e0899" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
