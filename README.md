@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**delete your comment history while you still can**  
-<img src="https://preview.redd.it/nt3vx7brlf8g1.png?width=320&crop=smart&auto=webp&s=4d5ab0328709c5d173cb6d84ab6ea7e136b7a59b" alt="Random Meme" width="500"/>
+**POV: When my friend slips in the snow**  
+<img src="https://preview.redd.it/fdpny0aq0a8g1.png?width=1080&crop=smart&auto=webp&s=e72374c208107b0d5c20006448cefa333b563b90" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
