@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A amazon chasing title**  
-<img src="https://preview.redd.it/wy3ujq3zsa8g1.png?width=640&crop=smart&auto=webp&s=0ccc2480ae87e00f973c1e3fd45ce54e2e83ce2f" alt="Random Meme" width="500"/>
+**delete your comment history while you still can**  
+<img src="https://preview.redd.it/nt3vx7brlf8g1.png?width=320&crop=smart&auto=webp&s=4d5ab0328709c5d173cb6d84ab6ea7e136b7a59b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
