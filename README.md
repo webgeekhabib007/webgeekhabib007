@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/4o2bfxjao08g1.png?width=1080&crop=smart&auto=webp&s=aea738d8980ec8c25977f6a84ecbd5dec47ff809" alt="Random Meme" width="500"/>
+**5 Gum ads really promised this experience**  
+<img src="https://preview.redd.it/ercfvld7mf8g1.png?width=320&crop=smart&auto=webp&s=ae2794d63e320be63e6b7575c5912724efdfca03" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
