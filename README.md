@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Maybe the timeline will heal**  
-<img src="https://preview.redd.it/yvvc26xmxl8g1.png?width=640&crop=smart&auto=webp&s=26bbbee530f713e2f8d01fb466d628472e563142" alt="Random Meme" width="500"/>
+**Top G became the Bottom B**  
+<img src="https://preview.redd.it/36ssum1isl8g1.png?width=1080&crop=smart&auto=webp&s=0b051a7f496212a8619748761a37137c4721fdbf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
