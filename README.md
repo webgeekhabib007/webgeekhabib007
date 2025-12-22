@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Born fugly**  
-<img src="https://preview.redd.it/kpfvpspx2o8g1.png?width=320&crop=smart&auto=webp&s=6f99bd3c2a4f8986a70be0c2101c6a19b8eca673" alt="Random Meme" width="500"/>
+**can't blame them**  
+<img src="https://preview.redd.it/r1bahd6jwa8g1.gif?width=216&crop=smart&format=png8&s=5b2e8da19ba582182f48de08fa9a01cf01139b8a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
