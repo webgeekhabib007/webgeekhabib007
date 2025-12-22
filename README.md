@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/u5mvuv3omg8g1.png?width=640&crop=smart&auto=webp&s=74998c4c028e6230b0e7c560d250cb2a3f7d7f51" alt="Random Meme" width="500"/>
+**Top G became the Bottom B**  
+<img src="https://preview.redd.it/36ssum1isl8g1.png?width=1080&crop=smart&auto=webp&s=0b051a7f496212a8619748761a37137c4721fdbf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
