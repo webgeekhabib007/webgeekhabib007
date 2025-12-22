@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Perfect example for the phrase "Expectation vs Reality”**  
-<img src="https://preview.redd.it/2jdad9fcpk8g1.png?width=1080&crop=smart&auto=webp&s=b127770e18a6787903892a8a2b54994f4d23e7e4" alt="Random Meme" width="500"/>
+**The [Redacted] Files be like -**  
+<img src="https://preview.redd.it/nw63y5klui8g1.png?width=640&crop=smart&auto=webp&s=1eeac968478f4157c8c29c2e8151a8da23b1a29d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
