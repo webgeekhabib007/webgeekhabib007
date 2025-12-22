@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The [Redacted] Files be like -**  
-<img src="https://preview.redd.it/nw63y5klui8g1.png?width=640&crop=smart&auto=webp&s=1eeac968478f4157c8c29c2e8151a8da23b1a29d" alt="Random Meme" width="500"/>
+**Thank goodness they released the files**  
+<img src="https://preview.redd.it/2fg8cek41f8g1.png?width=320&crop=smart&auto=webp&s=4e9545a7e31b6147b6d1e130034c9d4a7f511374" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
