@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Eltit**  
-<img src="https://preview.redd.it/6qhrq9bjyn8g1.png?width=640&crop=smart&auto=webp&s=6f0efc79f8acd642d7a869b758bd98bb90d0da1a" alt="Random Meme" width="500"/>
+**Why is it so true...**  
+<img src="https://preview.redd.it/f8pye4ibhl8g1.png?width=1080&crop=smart&auto=webp&s=876567bb73a99aeb601f60bf39d57859ce4b7592" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
