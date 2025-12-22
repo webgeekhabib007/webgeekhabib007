@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Top G became the Bottom B**  
-<img src="https://preview.redd.it/36ssum1isl8g1.png?width=1080&crop=smart&auto=webp&s=0b051a7f496212a8619748761a37137c4721fdbf" alt="Random Meme" width="500"/>
+**Didn't eats me spinach**  
+<img src="https://preview.redd.it/lc0h3tucpm8g1.png?width=640&crop=smart&auto=webp&s=3a73db13f4ca163edde3c8de01046d329efae2c3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
