@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**2027 coming from the top rope too**  
-<img src="https://preview.redd.it/xttfimikqf8g1.png?width=640&crop=smart&auto=webp&s=78364c7b0836ca12435159daf7b6f352c0052722" alt="Random Meme" width="500"/>
+**Lucky bastards. Why did my family have to be religious**  
+<img src="https://preview.redd.it/8ipympv8oo8g1.gif?width=640&crop=smart&format=png8&s=fc0c1cbb0a6b999cb1f651a8ccc871a3723a4ab4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
