@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Lucky bastards. Why did my family have to be religious**  
-<img src="https://preview.redd.it/8ipympv8oo8g1.gif?width=640&crop=smart&format=png8&s=fc0c1cbb0a6b999cb1f651a8ccc871a3723a4ab4" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/u5mvuv3omg8g1.png?width=640&crop=smart&auto=webp&s=74998c4c028e6230b0e7c560d250cb2a3f7d7f51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
