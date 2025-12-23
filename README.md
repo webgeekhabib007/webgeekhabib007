@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/dfuyc77wgt8g1.png?width=1080&crop=smart&auto=webp&s=f4aa25e59944d8a57b10ce993ed52671c55eddd1" alt="Random Meme" width="500"/>
+**I think I found my favorite unboxing video of this Christmas season**  
+<img src="https://preview.redd.it/f7o4589kaf8g1.png?width=1080&crop=smart&auto=webp&s=64708f406c0c2aa9b445f78f52b61e01e30db40d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
