@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/a1vlhtzkdl8g1.png?width=1080&crop=smart&auto=webp&s=123f0bb84ca2848654d180aab21bcd887644658d" alt="Random Meme" width="500"/>
+**2027 coming from the top rope too**  
+<img src="https://preview.redd.it/xttfimikqf8g1.png?width=640&crop=smart&auto=webp&s=78364c7b0836ca12435159daf7b6f352c0052722" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
