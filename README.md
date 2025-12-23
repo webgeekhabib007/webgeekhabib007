@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I think I found my favorite unboxing video of this Christmas season**  
-<img src="https://preview.redd.it/f7o4589kaf8g1.png?width=1080&crop=smart&auto=webp&s=64708f406c0c2aa9b445f78f52b61e01e30db40d" alt="Random Meme" width="500"/>
+**It's the law**  
+<img src="https://preview.redd.it/dj71rt4j2t8g1.gif?width=640&crop=smart&format=png8&s=b3053fdfd4e256370a831d542c1702beef7cc08f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
