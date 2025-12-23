@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Here comes the money**  
-<img src="https://preview.redd.it/jsq0rpva2d8g1.gif?width=640&crop=smart&format=png8&s=8a6661af17cc938d8f0ee513275753ea6a269860" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/90mo83tcsk8g1.png?width=1080&crop=smart&auto=webp&s=3091735ae04dc6c09a1c2a6ebead508f5df15ed1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
