@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/90mo83tcsk8g1.png?width=1080&crop=smart&auto=webp&s=3091735ae04dc6c09a1c2a6ebead508f5df15ed1" alt="Random Meme" width="500"/>
+**JRPGs these days are a little weird**  
+<img src="https://preview.redd.it/xjrnfkp2du8g1.png?width=1080&crop=smart&auto=webp&s=0ad609a44b514c4933cbe5f1b02540c39a2a46f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
