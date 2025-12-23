@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's the law**  
-<img src="https://preview.redd.it/dj71rt4j2t8g1.gif?width=640&crop=smart&format=png8&s=b3053fdfd4e256370a831d542c1702beef7cc08f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/l2x6yzjt3r8g1.png?width=640&crop=smart&auto=webp&s=945189cd206f7491ab21ed8f5a0edeeab046d372" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
