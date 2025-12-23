@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/l2x6yzjt3r8g1.png?width=640&crop=smart&auto=webp&s=945189cd206f7491ab21ed8f5a0edeeab046d372" alt="Random Meme" width="500"/>
+**Canada-san?! 🤤**  
+<img src="https://preview.redd.it/00hkaq1ogy8g1.png?width=1080&crop=smart&auto=webp&s=6b4804327499d81b8cbf5065cfe95b907a0915ba" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
