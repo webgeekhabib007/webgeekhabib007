@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**2005: gamer. 2025: survivor**  
-<img src="https://preview.redd.it/udx8adjigx8g1.png?width=640&crop=smart&auto=webp&s=a5dce3a9ccaca6e0d119821534087b24755c50bc" alt="Random Meme" width="500"/>
+**Relatable AF😭😭**  
+<img src="https://preview.redd.it/pk4vy9ff8w8g1.png?width=1080&crop=smart&auto=webp&s=03a3127fa1bfa3f19b4cdcce5e472bbda7737009" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
