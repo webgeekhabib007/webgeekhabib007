@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh shit, now they're coming...**  
-<img src="https://preview.redd.it/ho7r2ahbt29g1.png?width=1080&crop=smart&auto=webp&s=0829afcdacc36114c6b32e5125bbb35e581cccfe" alt="Random Meme" width="500"/>
+**"Never interrupt your enemy when it's making a mistake"**  
+<img src="https://preview.redd.it/gynsmlzvu09g1.png?width=1080&crop=smart&auto=webp&s=fe4931e52c2a9a19944ad61697716d123f74360d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
