@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It illy do be**  
-<img src="https://preview.redd.it/99pdqk77z29g1.gif?width=640&crop=smart&format=png8&s=67cf689d3a525819ed13c7ce797829f4b8cd56f3" alt="Random Meme" width="500"/>
+**Kinda True..**  
+<img src="https://preview.redd.it/opmum13rf29g1.png?width=960&crop=smart&auto=webp&s=e5c64a2fa65aece44a4572b9eddc5c735523e64a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
