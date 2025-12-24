@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Posting Original Gremlin Memes for 25 Days: Day 24**  
-<img src="https://preview.redd.it/eocu6r0gg59g1.gif?width=1080&crop=smart&format=png8&s=072edbfe2b6a000d764cbf317cc5098019f09cfb" alt="Random Meme" width="500"/>
+**Figma dictionary be like. What the hell does it even mean?!**  
+<img src="https://preview.redd.it/tta5v53kp59g1.png?width=1080&crop=smart&auto=webp&s=c9d2d915f4b20b574277f0eba4af1cbbbb3f9c84" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
