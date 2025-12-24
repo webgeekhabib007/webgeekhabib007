@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Odysseus, I...**  
-<img src="https://preview.redd.it/5wn9qifpoy8g1.png?width=320&crop=smart&auto=webp&s=ef0a62073799ed2e55af372d6302d4344783f01d" alt="Random Meme" width="500"/>
+**so based for that, fuck lost media**  
+<img src="https://preview.redd.it/xx3pirddnz8g1.png?width=1080&crop=smart&auto=webp&s=f41067d6178ab7dbbf9de36b567a005b4f70b60a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
