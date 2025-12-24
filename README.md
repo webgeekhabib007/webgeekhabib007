@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Never interrupt your enemy when it's making a mistake"**  
-<img src="https://preview.redd.it/gynsmlzvu09g1.png?width=1080&crop=smart&auto=webp&s=fe4931e52c2a9a19944ad61697716d123f74360d" alt="Random Meme" width="500"/>
+**Prediction perhaps....**  
+<img src="https://preview.redd.it/sweayszp529g1.png?width=1080&crop=smart&auto=webp&s=5e8ee7cde10daa5855caa74bbc682c46be5f0513" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
