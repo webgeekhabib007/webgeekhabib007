@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**so based for that, fuck lost media**  
-<img src="https://preview.redd.it/xx3pirddnz8g1.png?width=1080&crop=smart&auto=webp&s=f41067d6178ab7dbbf9de36b567a005b4f70b60a" alt="Random Meme" width="500"/>
+**Watching movies in 2025**  
+<img src="https://preview.redd.it/b3tt7k9dqz8g1.png?width=1080&crop=smart&auto=webp&s=b09a2936037cf683e78c1a93b976d83af07282da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
