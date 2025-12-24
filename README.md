@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/dfuyc77wgt8g1.png?width=1080&crop=smart&auto=webp&s=f4aa25e59944d8a57b10ce993ed52671c55eddd1" alt="Random Meme" width="500"/>
+**Odysseus, I...**  
+<img src="https://preview.redd.it/5wn9qifpoy8g1.png?width=320&crop=smart&auto=webp&s=ef0a62073799ed2e55af372d6302d4344783f01d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
