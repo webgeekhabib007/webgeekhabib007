@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
+**Literally happened in my second to third week of that class and thank god it wasn’t brought up since the lessons are recorded 3 years ago. I sure did dodge a bullet….unlike him**  
+<img src="https://preview.redd.it/lxjwlslny29g1.gif?width=640&crop=smart&format=png8&s=2f63750acfa1d37015d20b725f32c983e40e1ac8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
