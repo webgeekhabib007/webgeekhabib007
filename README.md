@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**they were there more than Ghislaine**  
-<img src="https://preview.redd.it/rqkanqayis8g1.gif?width=320&crop=smart&format=png8&s=097077e777131cf7a591ee0046d0820a50659748" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
