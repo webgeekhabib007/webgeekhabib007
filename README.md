@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Poor kids are naughty**  
-<img src="https://preview.redd.it/36ydkyv7059g1.png?width=320&crop=smart&auto=webp&s=b25982b333c05930c4a388a774e036f0ac7e7213" alt="Random Meme" width="500"/>
+**unlimited ctrl power**  
+<img src="https://preview.redd.it/w1apr0zzb59g1.png?width=640&crop=smart&auto=webp&s=6fc43e77e7f2c1fe647385b950eb628489ada14e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
