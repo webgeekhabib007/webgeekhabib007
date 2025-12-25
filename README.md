@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Blink it you miss it**  
-<img src="https://preview.redd.it/2ltt3rfzjb9g1.png?width=1080&crop=smart&auto=webp&s=ec876a0c5ac95de3d42ec352f166cc09652f9c08" alt="Random Meme" width="500"/>
+**Just drop it**  
+<img src="https://preview.redd.it/evlgyijcvc9g1.png?width=1080&crop=smart&auto=webp&s=ef7b94fa0d0969288ab14f266d375a7f95d8436a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
