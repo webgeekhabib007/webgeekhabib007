@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is mayonnaise a title?**  
-<img src="https://preview.redd.it/gfw6kjf3h39g1.png?width=640&crop=smart&auto=webp&s=e37c483936a542166233616fbbf5eebb12f4a3fb" alt="Random Meme" width="500"/>
+**It's a W for fans.**  
+<img src="https://preview.redd.it/ydy98uy1z59g1.png?width=640&crop=smart&auto=webp&s=3aadefff3c1596e6704ad04282c572a5ee74c2e5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
