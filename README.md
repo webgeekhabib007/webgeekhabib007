@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's a W for fans.**  
-<img src="https://preview.redd.it/ydy98uy1z59g1.png?width=640&crop=smart&auto=webp&s=3aadefff3c1596e6704ad04282c572a5ee74c2e5" alt="Random Meme" width="500"/>
+**Blink it you miss it**  
+<img src="https://preview.redd.it/2ltt3rfzjb9g1.png?width=1080&crop=smart&auto=webp&s=ec876a0c5ac95de3d42ec352f166cc09652f9c08" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
