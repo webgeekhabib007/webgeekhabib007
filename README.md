@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Everyone and their mother is in the Epstein files**  
-<img src="https://preview.redd.it/fgwe1mrbgd9g1.png?width=1080&crop=smart&auto=webp&s=e83d892e886d7951fe1aa8ee5d065ef7110f217d" alt="Random Meme" width="500"/>
+**"These bullets, I reject!"**  
+<img src="https://preview.redd.it/ni3ui1i87w8g1.png?width=640&crop=smart&auto=webp&s=ff1515b652a5d98f7cd514e96c4c845d62f22339" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
