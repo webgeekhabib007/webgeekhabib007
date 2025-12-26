@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Are we still milking it or naw**  
-<img src="https://preview.redd.it/vxikjh6q1t8g1.gif?width=320&crop=smart&format=png8&s=4d2f2a65731e99017479b4ead21a041bd504c582" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/cqkomx8cdb9g1.png?width=320&crop=smart&auto=webp&s=4cf62448422ea4e8d3fdb9fa4ac244aa69f97565" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
