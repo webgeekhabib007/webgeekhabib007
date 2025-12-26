@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Blink it you miss it**  
-<img src="https://preview.redd.it/2ltt3rfzjb9g1.png?width=1080&crop=smart&auto=webp&s=ec876a0c5ac95de3d42ec352f166cc09652f9c08" alt="Random Meme" width="500"/>
+**It's a Boxing Day Tradition**  
+<img src="https://preview.redd.it/9e2i085q8k9g1.png?width=960&crop=smart&auto=webp&s=9fda8f9efae1af4182128b38fd3dcfad52a63913" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
