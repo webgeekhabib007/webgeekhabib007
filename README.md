@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Becoming a normal day as an adult**  
-<img src="https://preview.redd.it/yhj7mjeped9g1.png?width=1080&crop=smart&auto=webp&s=86dff1f28daa1943da7cf9ca4cf8f9d731d8825e" alt="Random Meme" width="500"/>
+**Its ⬛️⬛️⬛️⬛️**  
+<img src="https://preview.redd.it/xqbej9z0af9g1.png?width=1080&crop=smart&auto=webp&s=36ce249436b68dae7cf52b2c51ca917d38ea3f8a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
