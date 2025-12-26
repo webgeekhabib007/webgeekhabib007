@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"These bullets, I reject!"**  
-<img src="https://preview.redd.it/ni3ui1i87w8g1.png?width=640&crop=smart&auto=webp&s=ff1515b652a5d98f7cd514e96c4c845d62f22339" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/dspbckd1p79g1.png?width=640&crop=smart&auto=webp&s=8204cbdd1a5a8b70374c5df02375b425e711dc48" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
