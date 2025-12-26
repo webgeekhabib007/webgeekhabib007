@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me when the recent events**  
-<img src="https://preview.redd.it/t7v26y5ccg9g1.png?width=1080&crop=smart&auto=webp&s=037db71e5873fe2504cd4f7aff27bb49c403c8bf" alt="Random Meme" width="500"/>
+**What’s up with the mom in The Santa Clause movie with Tim Allen trying so hard to convince her son that Santa isn’t real and treating him as if he’s clinically insane. It’s pretty normal for a child to believe their father is Santa regardless.**  
+<img src="https://preview.redd.it/oen4x5bt4b9g1.gif?width=640&crop=smart&format=png8&s=cfaa68579131d2e6a243918d82483002871c8128" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
