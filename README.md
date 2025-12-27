@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Man the budget for these challenges are getting crazy**  
-<img src="https://preview.redd.it/f7ebhyj6eq9g1.gif?width=320&crop=smart&format=png8&s=9a00415c6f8eb9aaa0eb67be690897859383b9b4" alt="Random Meme" width="500"/>
+**Parade of ignorance there is**  
+<img src="https://preview.redd.it/a9t0x07stk9g1.png?width=320&crop=smart&auto=webp&s=1a5a7f90c05d4e5b4daf69ad3ed32dffbd1ad3f3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
