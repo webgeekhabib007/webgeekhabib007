@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Parade of ignorance there is**  
-<img src="https://preview.redd.it/a9t0x07stk9g1.png?width=320&crop=smart&auto=webp&s=1a5a7f90c05d4e5b4daf69ad3ed32dffbd1ad3f3" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/cqkomx8cdb9g1.png?width=320&crop=smart&auto=webp&s=4cf62448422ea4e8d3fdb9fa4ac244aa69f97565" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
