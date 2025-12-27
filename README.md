@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's a Boxing Day Tradition**  
-<img src="https://preview.redd.it/9e2i085q8k9g1.png?width=960&crop=smart&auto=webp&s=9fda8f9efae1af4182128b38fd3dcfad52a63913" alt="Random Meme" width="500"/>
+**Oh ThEY mIGht Be A BoT**  
+<img src="https://preview.redd.it/idws6zi61i9g1.png?width=320&crop=smart&auto=webp&s=d3b76172ddf7ee406a669ea086ef770619f58600" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
