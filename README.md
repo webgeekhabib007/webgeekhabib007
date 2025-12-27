@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The saddest scene in television history**  
-<img src="https://preview.redd.it/lg9w69g4rl9g1.png?width=320&crop=smart&auto=webp&s=ea86c23d306c08ead60715e1b5159642b43c6f44" alt="Random Meme" width="500"/>
+**The People have spoken**  
+<img src="https://preview.redd.it/w1byomipoo9g1.png?width=320&crop=smart&auto=webp&s=6df199002b11df9bbcc1ed43846c9963223f4699" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
