@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Natural intelligence**  
-<img src="https://preview.redd.it/t41kad1m4e9g1.png?width=640&crop=smart&auto=webp&s=c6b4811eddd9960d96ffc3d66d922f903b77d1d8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/wh0wum7wij9g1.png?width=1080&crop=smart&auto=webp&s=8dbdb2b1b5ef3d831a50de8411ca3a447c0c6a62" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
