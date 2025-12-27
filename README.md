@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/0lbjey7k8l9g1.png?width=1080&crop=smart&auto=webp&s=57254ab2879fd1d1ba9c94a777df59ebb52a9f23" alt="Random Meme" width="500"/>
+**The saddest scene in television history**  
+<img src="https://preview.redd.it/lg9w69g4rl9g1.png?width=320&crop=smart&auto=webp&s=ea86c23d306c08ead60715e1b5159642b43c6f44" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
