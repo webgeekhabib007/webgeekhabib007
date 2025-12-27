@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Word on the street is that ASUS is gonna start producing DDR5 memory in 2026**  
-<img src="https://preview.redd.it/stoyy41nuk9g1.png?width=960&crop=smart&auto=webp&s=cd36d730d1d0784468b03b840a7f675fbc1e5e9d" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/jx2ujrc3vd9g1.png?width=1080&crop=smart&auto=webp&s=abbb72b3b6746f9bae2ff970b92f4edd90a7a5eb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
