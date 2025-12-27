@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Time sure does fly**  
-<img src="https://preview.redd.it/k61z5shwrp9g1.png?width=1080&crop=smart&auto=webp&s=aa707a238506e297d99a47bc21c5b5d8f3e75bea" alt="Random Meme" width="500"/>
+**Man the budget for these challenges are getting crazy**  
+<img src="https://preview.redd.it/f7ebhyj6eq9g1.gif?width=320&crop=smart&format=png8&s=9a00415c6f8eb9aaa0eb67be690897859383b9b4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
