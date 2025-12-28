@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For real, lol**  
-<img src="https://preview.redd.it/p8bbtrnxuu9g1.png?width=1080&crop=smart&auto=webp&s=265526210a7a4ab1a1e6d369a769b35c8df5b56a" alt="Random Meme" width="500"/>
+**I *lost* some braincells**  
+<img src="https://preview.redd.it/m52nemgyjx9g1.png?width=640&crop=smart&auto=webp&s=0fbd5db06e3896f880bee4967b2c2a99e513f6a3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
