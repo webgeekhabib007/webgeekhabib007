@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This website/app for the past 10 years:**  
-<img src="https://preview.redd.it/8uo9p0ueev9g1.gif?width=320&crop=smart&format=png8&s=31a6074acdcd0cb9d31bc24f7993d04be72c2330" alt="Random Meme" width="500"/>
+**For real, lol**  
+<img src="https://preview.redd.it/p8bbtrnxuu9g1.png?width=1080&crop=smart&auto=webp&s=265526210a7a4ab1a1e6d369a769b35c8df5b56a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
