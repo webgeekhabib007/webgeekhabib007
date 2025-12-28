@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The R u geh?**  
-<img src="https://preview.redd.it/5jzxbb3j6u9g1.png?width=1080&crop=smart&auto=webp&s=f0222e07f1abe77a84db64d3de2ba47eae1cb337" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/0lbjey7k8l9g1.png?width=1080&crop=smart&auto=webp&s=57254ab2879fd1d1ba9c94a777df59ebb52a9f23" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
