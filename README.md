@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/0lbjey7k8l9g1.png?width=1080&crop=smart&auto=webp&s=57254ab2879fd1d1ba9c94a777df59ebb52a9f23" alt="Random Meme" width="500"/>
+**The People have spoken**  
+<img src="https://preview.redd.it/w1byomipoo9g1.png?width=320&crop=smart&auto=webp&s=6df199002b11df9bbcc1ed43846c9963223f4699" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
