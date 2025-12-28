@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Splitting headache**  
-<img src="https://preview.redd.it/5wetwvg5st9g1.gif?width=216&crop=smart&format=png8&s=ad8804755e49ab5cb305eebeb908c39b91bf25a6" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/lm44nhb5cn9g1.gif?width=320&crop=smart&format=png8&s=8e2e6e7d4f834f58b22403033664fef67abdfd7b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
