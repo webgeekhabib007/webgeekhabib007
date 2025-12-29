@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**those chairs when they're getting old start having black dandruff**  
-<img src="https://preview.redd.it/5nuvzwpj1s9g1.png?width=1080&crop=smart&auto=webp&s=d1dde6b12128454b0fab033c1c4a18678fd3e7fd" alt="Random Meme" width="500"/>
+**Learned the words for Lawyer and Alcohol day 1**  
+<img src="https://preview.redd.it/jrv2krukbj9g1.gif?width=640&crop=smart&format=png8&s=6f73a908cec17ad5bdfc86441391439f67710e6a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
