@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Another lost opportunity, like Bitcoin back in 2011**  
-<img src="https://preview.redd.it/6h6fb0doh5ag1.gif?width=640&crop=smart&format=png8&s=cf040ce776d8315fe4d7984afcaebc735b4ddaa2" alt="Random Meme" width="500"/>
+**What’s up N- hey woah woah you’re on speaker!**  
+<img src="https://preview.redd.it/e3312fl7jw9g1.gif?width=640&crop=smart&format=png8&s=192b8ebddd52d7b95b9bfb335a718a499099beb9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
