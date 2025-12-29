@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't know**  
-<img src="https://preview.redd.it/az381ipx02ag1.png?width=1080&crop=smart&auto=webp&s=475cbc0d85863566f1d83d15d84352b150806ca6" alt="Random Meme" width="500"/>
+**I could step in…..but he’s pretty big.**  
+<img src="https://preview.redd.it/ahbzwqoec0ag1.gif?width=640&crop=smart&format=png8&s=ffcc565ec7ad7bf652afb80647cf24d4bc8b59d0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
