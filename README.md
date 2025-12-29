@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How could you mistake him as a plane**  
-<img src="https://preview.redd.it/xwjt4w1w80ag1.gif?width=640&crop=smart&format=png8&s=f2485ef1349947950f7c160d134c07cdc430877e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/n3ixuba8yx9g1.png?width=320&crop=smart&auto=webp&s=b4dcb533ec5d255f67fcde21be3198fca8ab78f8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
