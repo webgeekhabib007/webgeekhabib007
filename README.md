@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Learned the words for Lawyer and Alcohol day 1**  
-<img src="https://preview.redd.it/jrv2krukbj9g1.gif?width=640&crop=smart&format=png8&s=6f73a908cec17ad5bdfc86441391439f67710e6a" alt="Random Meme" width="500"/>
+**No comment**  
+<img src="https://preview.redd.it/xowink46ev9g1.png?width=320&crop=smart&auto=webp&s=dfc90950f2f7def40349609c439c309d186cffe1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
