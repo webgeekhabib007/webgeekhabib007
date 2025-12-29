@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Google does dirty....**  
-<img src="https://preview.redd.it/971tmaeew4ag1.png?width=1080&crop=smart&auto=webp&s=94eea958c4c30d4c5ac01914c56dfa56d5dbba40" alt="Random Meme" width="500"/>
+**A shocking title**  
+<img src="https://preview.redd.it/jyb2nhj1ww9g1.png?width=640&crop=smart&auto=webp&s=cb3a9f821cc80960fd9a93bd73f9195c430afc51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
