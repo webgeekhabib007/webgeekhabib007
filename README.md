@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I could step in…..but he’s pretty big.**  
-<img src="https://preview.redd.it/ahbzwqoec0ag1.gif?width=640&crop=smart&format=png8&s=ffcc565ec7ad7bf652afb80647cf24d4bc8b59d0" alt="Random Meme" width="500"/>
+**those chairs when they're getting old start having black dandruff**  
+<img src="https://preview.redd.it/5nuvzwpj1s9g1.png?width=1080&crop=smart&auto=webp&s=d1dde6b12128454b0fab033c1c4a18678fd3e7fd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
