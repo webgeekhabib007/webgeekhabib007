@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Samsung phones**  
-<img src="https://preview.redd.it/8ffvfxa9dv9g1.png?width=1080&crop=smart&auto=webp&s=7d463883429bc7103fa9466af8fa92d270643d6e" alt="Random Meme" width="500"/>
+**How could you mistake him as a plane**  
+<img src="https://preview.redd.it/xwjt4w1w80ag1.gif?width=640&crop=smart&format=png8&s=f2485ef1349947950f7c160d134c07cdc430877e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
