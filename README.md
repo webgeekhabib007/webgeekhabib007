@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Connect the dots - Sheeple..**  
-<img src="https://preview.redd.it/qae9sivpy3ag1.png?width=1080&crop=smart&auto=webp&s=1b9030d04800c043cee54d78dc5ecf8b347720a3" alt="Random Meme" width="500"/>
+**BiG BraiN move**  
+<img src="https://preview.redd.it/j657gyuiei9g1.gif?width=640&crop=smart&format=png8&s=a3d7fa224df8da2b89bc2c345f5a5ec925f6117c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
