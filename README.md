@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What’s up N- hey woah woah you’re on speaker!**  
-<img src="https://preview.redd.it/e3312fl7jw9g1.gif?width=640&crop=smart&format=png8&s=192b8ebddd52d7b95b9bfb335a718a499099beb9" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/d1ee0uqf63ag1.png?width=640&crop=smart&auto=webp&s=ed7e457af9fd791641e312244c5e75f170d62dbc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
