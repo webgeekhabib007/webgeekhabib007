@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A shocking title**  
-<img src="https://preview.redd.it/jyb2nhj1ww9g1.png?width=640&crop=smart&auto=webp&s=cb3a9f821cc80960fd9a93bd73f9195c430afc51" alt="Random Meme" width="500"/>
+**6 hours in and it still hurts like hell, can I take painkillers now?**  
+<img src="https://preview.redd.it/pked7urcd7ag1.gif?width=640&crop=smart&format=png8&s=ebce71d5395f7562a1930010d9adb41e3c67a319" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
