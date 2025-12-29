@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**BiG BraiN move**  
-<img src="https://preview.redd.it/j657gyuiei9g1.gif?width=640&crop=smart&format=png8&s=a3d7fa224df8da2b89bc2c345f5a5ec925f6117c" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/bnr4i3t0r4ag1.png?width=1080&crop=smart&auto=webp&s=b8269eca5b934575dbfc28ab686efe5925c90b91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
