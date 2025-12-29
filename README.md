@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/n3ixuba8yx9g1.png?width=320&crop=smart&auto=webp&s=b4dcb533ec5d255f67fcde21be3198fca8ab78f8" alt="Random Meme" width="500"/>
+**Samsung phones**  
+<img src="https://preview.redd.it/8ffvfxa9dv9g1.png?width=1080&crop=smart&auto=webp&s=7d463883429bc7103fa9466af8fa92d270643d6e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
