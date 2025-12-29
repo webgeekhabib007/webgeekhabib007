@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**6 hours in and it still hurts like hell, can I take painkillers now?**  
-<img src="https://preview.redd.it/pked7urcd7ag1.gif?width=640&crop=smart&format=png8&s=ebce71d5395f7562a1930010d9adb41e3c67a319" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ilv96bpuz3ag1.png?width=1080&crop=smart&auto=webp&s=1a88f3008ebcbc5af0cec20943a966441506677a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
