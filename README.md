@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No comment**  
-<img src="https://preview.redd.it/xowink46ev9g1.png?width=320&crop=smart&auto=webp&s=dfc90950f2f7def40349609c439c309d186cffe1" alt="Random Meme" width="500"/>
+**How to win with piracy**  
+<img src="https://preview.redd.it/xc8kvlelc4ag1.png?width=320&crop=smart&auto=webp&s=671b7e72ce3aa9ce60a117e00db0160031a94936" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
