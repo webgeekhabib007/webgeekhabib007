@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/pesn6iz5xcag1.png?width=1080&crop=smart&auto=webp&s=87fa1b54ec3963c79c03dfff58e46783979ec7ea" alt="Random Meme" width="500"/>
+**If we really want GTA6 to be released we just gotta boycott GTA5**  
+<img src="https://preview.redd.it/2aw1nhs7uaag1.png?width=640&crop=smart&auto=webp&s=b9b2602dbb5a029c8471c3523039e5b786c485c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
