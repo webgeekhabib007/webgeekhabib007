@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If we really want GTA6 to be released we just gotta boycott GTA5**  
-<img src="https://preview.redd.it/2aw1nhs7uaag1.png?width=640&crop=smart&auto=webp&s=b9b2602dbb5a029c8471c3523039e5b786c485c4" alt="Random Meme" width="500"/>
+**your average reddit experience**  
+<img src="https://preview.redd.it/qe9cr7qeccag1.png?width=960&crop=smart&auto=webp&s=8d4ed41267f0d7e9dc9f61d0b4ee106e678b5056" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
