@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They grow up so fast**  
-<img src="https://preview.redd.it/iyuzmct6l6ag1.png?width=1080&crop=smart&auto=webp&s=8d6b4f0bd46406f90303fe56067880ffedad8a2b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cgikozrvscag1.png?width=640&crop=smart&auto=webp&s=d99ca9fbeb4c192d5f62538e5d6ad787f44abf7f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
