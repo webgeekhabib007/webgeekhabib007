@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Great subs**  
-<img src="https://preview.redd.it/x9w5prgoqdag1.png?width=1080&crop=smart&auto=webp&s=46ff35ffcfa3fbf2370cbf31ebaf598d5053698b" alt="Random Meme" width="500"/>
+**Youtube Monopoly**  
+<img src="https://preview.redd.it/ol3hwvm6r7ag1.png?width=320&crop=smart&auto=webp&s=69bc28a0eaec4468313e21ec0e7bc5617b09af51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
