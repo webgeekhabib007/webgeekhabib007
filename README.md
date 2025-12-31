@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't wait for 2026**  
-<img src="https://preview.redd.it/d1xonzvx2y9g1.gif?width=320&crop=smart&format=png8&s=1757904446e23c6690a625c28155f73be7870b55" alt="Random Meme" width="500"/>
+**What better way to end the year with some overused jokes.**  
+<img src="https://preview.redd.it/t5qo0qpjghag1.png?width=960&crop=smart&auto=webp&s=a2ff832b2b8adbd9321d02bd2640d2b1403669b4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
