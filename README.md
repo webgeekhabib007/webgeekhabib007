@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/6u0rgvefheag1.gif?width=640&crop=smart&format=png8&s=ee9a770835a9c96309974d065fb6af5177ab3181" alt="Random Meme" width="500"/>
+**Youtube Monopoly**  
+<img src="https://preview.redd.it/ol3hwvm6r7ag1.png?width=320&crop=smart&auto=webp&s=69bc28a0eaec4468313e21ec0e7bc5617b09af51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
