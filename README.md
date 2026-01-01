@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ahhhhh! A PNG in a gmod map!**  
-<img src="https://preview.redd.it/tyjcfer6ilag1.gif?width=640&crop=smart&format=png8&s=bb46ce5adbdfb5452e4b392d67004edf92717b50" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/6faijg6kmmag1.png?width=640&crop=smart&auto=webp&s=508b44e416052ff84f10ce5cab9e8609b59c9931" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
