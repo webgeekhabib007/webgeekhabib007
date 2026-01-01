@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/btxm495kjcag1.png?width=1080&crop=smart&auto=webp&s=dec09b1d100be440afbf43381f017ca74d1886f0" alt="Random Meme" width="500"/>
+**She'll be right... I think. Happy New Year from 'Straya.**  
+<img src="https://preview.redd.it/781g47urojag1.png?width=320&crop=smart&auto=webp&s=f9380d8fee302a9c4fcc8a2fd135fdf7936f448c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
