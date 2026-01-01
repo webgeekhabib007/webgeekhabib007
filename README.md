@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**please no more brainrot**  
-<img src="https://preview.redd.it/r880wsoculag1.png?width=320&crop=smart&auto=webp&s=73ee6695a04e2ce8d3fdbae6d26285002e921e88" alt="Random Meme" width="500"/>
+**5 ..... 4 ...... 3 ...... 2 ...... 1 ...........**  
+<img src="https://preview.redd.it/7szz06mvebag1.png?width=1080&crop=smart&auto=webp&s=5b7ee6a700c6cc54e99b66d9d21c852985269cb2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
