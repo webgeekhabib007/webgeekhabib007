@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Double standards, Huh?**  
-<img src="https://preview.redd.it/pw03zpc6qaag1.png?width=960&crop=smart&auto=webp&s=a201015fa3ab6d7d7786f8586e8a0add4f4646fb" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/jqb9gh6yvmag1.png?width=1080&crop=smart&auto=webp&s=b627d9b10509736a64a9da2ee098e13ee823f4e2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
