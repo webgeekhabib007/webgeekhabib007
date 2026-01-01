@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**She'll be right... I think. Happy New Year from 'Straya.**  
-<img src="https://preview.redd.it/781g47urojag1.png?width=320&crop=smart&auto=webp&s=f9380d8fee302a9c4fcc8a2fd135fdf7936f448c" alt="Random Meme" width="500"/>
+**Ahhhhh! A PNG in a gmod map!**  
+<img src="https://preview.redd.it/tyjcfer6ilag1.gif?width=640&crop=smart&format=png8&s=bb46ce5adbdfb5452e4b392d67004edf92717b50" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
