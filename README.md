@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/jqb9gh6yvmag1.png?width=1080&crop=smart&auto=webp&s=b627d9b10509736a64a9da2ee098e13ee823f4e2" alt="Random Meme" width="500"/>
+**And destroy some monitors**  
+<img src="https://preview.redd.it/6nh90y9carag1.png?width=320&crop=smart&auto=webp&s=b842d05f2138868d631c5622e014c562d1fc0095" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
