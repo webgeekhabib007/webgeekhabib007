@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I swear they will get better, give me time**  
-<img src="https://preview.redd.it/uew3ztdtfxag1.png?width=320&crop=smart&auto=webp&s=ba63a00f06bd706db5473ffbe83434c7f2de2623" alt="Random Meme" width="500"/>
+**Brainrot has always existed**  
+<img src="https://preview.redd.it/a9bpcojezxag1.png?width=320&crop=smart&auto=webp&s=d949cfd0f75c82d345ef2c7c38377a09d99108b4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
