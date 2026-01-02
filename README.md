@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And destroy some monitors**  
-<img src="https://preview.redd.it/6nh90y9carag1.png?width=320&crop=smart&auto=webp&s=b842d05f2138868d631c5622e014c562d1fc0095" alt="Random Meme" width="500"/>
+**Please let the vintage meme revival last more than a week**  
+<img src="https://preview.redd.it/mg4xa42t5wag1.png?width=1080&crop=smart&auto=webp&s=d3dc0b47ac500a3202163aa65e6033c7eeb7e79d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
