@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Two Star Review**  
-<img src="https://preview.redd.it/ymsgmuv99vag1.png?width=640&crop=smart&auto=webp&s=4188f87bd9d9ff985ed945ca047004059b578b50" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/fnvf95kg4sag1.png?width=1080&crop=smart&auto=webp&s=d04cb35fc39df0aa5f15613c5f17951b8ab5ba63" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
