@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Brainrot has always existed**  
-<img src="https://preview.redd.it/a9bpcojezxag1.png?width=320&crop=smart&auto=webp&s=d949cfd0f75c82d345ef2c7c38377a09d99108b4" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/nuyqsybestag1.png?width=640&crop=smart&auto=webp&s=7e37e355c275393c2aedb73390031de72f1bb72d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
