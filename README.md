@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/l6a3s22bbuag1.png?width=1080&crop=smart&auto=webp&s=4332505acc38c255509100db0f61169fbaf9678e" alt="Random Meme" width="500"/>
+**Fight brainrot with the original gorilla!**  
+<img src="https://preview.redd.it/45siaxe0rrag1.png?width=960&crop=smart&auto=webp&s=dbe0884960b6f99f189cd647fd5a38a6a7a61ac9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
