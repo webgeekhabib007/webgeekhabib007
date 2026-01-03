@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Stay vigilant guys, they coming after us nerds now!**  
-<img src="https://preview.redd.it/pe3s73thnlag1.png?width=320&crop=smart&auto=webp&s=3d4aec95e993220f7d5a4c11a371307f894c5d92" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/fggrlyozbxag1.png?width=320&crop=smart&auto=webp&s=0973a3767f71be0a88e8e8b59c2f8cc919356a95" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
