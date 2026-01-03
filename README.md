@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the 'rn' as 'm' is diabolical**  
-<img src="https://preview.redd.it/0dvl1735x3bg1.png?width=960&crop=smart&auto=webp&s=be937fafe5e19c8f81bdf894390fdacc097f388e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/crn96wmfbzag1.png?width=640&crop=smart&auto=webp&s=1bbd8bb7183890c870b9c1a5412997e7f85163ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
