@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I Wonder What He Said Behind Those Glass**  
-<img src="https://preview.redd.it/e57t2e9v15bg1.png?width=960&crop=smart&auto=webp&s=586e26c9bd7a3b69cba9af844e4aa4df82c10d36" alt="Random Meme" width="500"/>
+**Venezuelans right now**  
+<img src="https://preview.redd.it/q8aadebrl6bg1.png?width=960&crop=smart&auto=webp&s=3c4f778915b281522f5215a8e1e0b87ed569b2e1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
