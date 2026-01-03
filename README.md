@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**star wars**  
-<img src="https://preview.redd.it/3tldt4uqk4bg1.png?width=1080&crop=smart&auto=webp&s=1bbf38ff57feca66bef272265aad8b7c6bfa9335" alt="Random Meme" width="500"/>
+**the 'rn' as 'm' is diabolical**  
+<img src="https://preview.redd.it/0dvl1735x3bg1.png?width=960&crop=smart&auto=webp&s=be937fafe5e19c8f81bdf894390fdacc097f388e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
