@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This year surely right?........right?**  
-<img src="https://preview.redd.it/81zp4kq9iuag1.png?width=640&crop=smart&auto=webp&s=cdfbca048805226ab3a49bb7da6c0b22a59b22b7" alt="Random Meme" width="500"/>
+**I Wonder What He Said Behind Those Glass**  
+<img src="https://preview.redd.it/e57t2e9v15bg1.png?width=960&crop=smart&auto=webp&s=586e26c9bd7a3b69cba9af844e4aa4df82c10d36" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
