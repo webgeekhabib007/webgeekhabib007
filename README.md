@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For example, we're super good at naming things**  
-<img src="https://preview.redd.it/52oog1zjl2bg1.png?width=320&crop=smart&auto=webp&s=338b4e6c0a3e1476aab8af602c371d9279df7436" alt="Random Meme" width="500"/>
+**the 'rn' as 'm' is diabolical**  
+<img src="https://preview.redd.it/0dvl1735x3bg1.png?width=960&crop=smart&auto=webp&s=be937fafe5e19c8f81bdf894390fdacc097f388e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
