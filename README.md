@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Classic Astonished Owl...**  
-<img src="https://preview.redd.it/z4juzaev11bg1.png?width=1080&crop=smart&auto=webp&s=e39b2d6afbadd51ccd9f88352ebbbcebbfe80ac7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/yegy9x5lowag1.png?width=320&crop=smart&auto=webp&s=43284a010c38647cfee8b701099326e2113eff2d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
