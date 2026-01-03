@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Venezuelans right now**  
-<img src="https://preview.redd.it/q8aadebrl6bg1.png?width=960&crop=smart&auto=webp&s=3c4f778915b281522f5215a8e1e0b87ed569b2e1" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/8i045ck4s3bg1.png?width=640&crop=smart&auto=webp&s=c554f290e275ba159d9ed0fd5f12306369c265bb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
