@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Every dislike counts**  
-<img src="https://preview.redd.it/ot3o4it2yxag1.png?width=320&crop=smart&auto=webp&s=6e53f058f0f241d6a70cf728d1cd3488c6194845" alt="Random Meme" width="500"/>
+**star wars**  
+<img src="https://preview.redd.it/3tldt4uqk4bg1.png?width=1080&crop=smart&auto=webp&s=1bbf38ff57feca66bef272265aad8b7c6bfa9335" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
