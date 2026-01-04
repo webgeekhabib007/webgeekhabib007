@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Curse removal trick**  
-<img src="https://preview.redd.it/zkr3kff4q4bg1.png?width=1080&crop=smart&auto=webp&s=7c01b743385fa79595683084f41b371ec8697ef4" alt="Random Meme" width="500"/>
+**Jeez, have some decency.**  
+<img src="https://preview.redd.it/q3kb3zvup5bg1.png?width=960&crop=smart&auto=webp&s=a4a2340a7df8efdcbb269dc4dd0cd38502005227" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
