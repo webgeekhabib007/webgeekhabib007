@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Was it really worth it?**  
-<img src="https://preview.redd.it/jofki95ahebg1.png?width=640&crop=smart&auto=webp&s=99aa66cf073f24537cd91402f717572e7277b77b" alt="Random Meme" width="500"/>
+**fixed that one meme posted on here**  
+<img src="https://preview.redd.it/lvmyp5rgv7bg1.png?width=640&crop=smart&auto=webp&s=6ed77e50ae7199cf62fe428f32742c83a3934fbb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
