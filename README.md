@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Que es esta carne?**  
-<img src="https://preview.redd.it/zekhkpkq97bg1.png?width=640&crop=smart&auto=webp&s=59cd0a12138ed2b10ba26e4983e65b14b81baa1a" alt="Random Meme" width="500"/>
+**All of my old memes will seem new again.**  
+<img src="https://preview.redd.it/hi61cs94j8bg1.png?width=320&crop=smart&auto=webp&s=52cd25415032cd1230b91e527c3543d521fe23bb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
