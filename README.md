@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A classic.**  
-<img src="https://preview.redd.it/u3yontg8cbbg1.png?width=1080&crop=smart&auto=webp&s=6fcf5a6f8d1bd244ea68d59000a20935ae88a860" alt="Random Meme" width="500"/>
+**Damn, those kind of goggles are getting thinner every day**  
+<img src="https://preview.redd.it/2rnm12so06bg1.png?width=1080&crop=smart&auto=webp&s=eea770a0548eead14b2e3862a019b616fa8ed6c3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
