@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**200 Million Years of evolution...**  
-<img src="https://preview.redd.it/947k5lwj7fbg1.png?width=640&crop=smart&auto=webp&s=15090f9ae8d9348cf38b6f37d11bd8c96c88505b" alt="Random Meme" width="500"/>
+**me big dumb**  
+<img src="https://preview.redd.it/ps5wrtg3ncbg1.png?width=320&crop=smart&auto=webp&s=cab986882976716209502398bd9a3ee33c6bd6dd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
