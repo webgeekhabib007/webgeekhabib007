@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me big dumb**  
-<img src="https://preview.redd.it/ps5wrtg3ncbg1.png?width=320&crop=smart&auto=webp&s=cab986882976716209502398bd9a3ee33c6bd6dd" alt="Random Meme" width="500"/>
+**You know what, I'll microslop even harder...**  
+<img src="https://preview.redd.it/ezl1uapc3kbg1.png?width=320&crop=smart&auto=webp&s=448d1cb600df7beabba563c4c2c47d43a0652b66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
