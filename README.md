@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Knock knock**  
-<img src="https://preview.redd.it/kdyh3tbc87bg1.png?width=640&crop=smart&auto=webp&s=5a9d9707b922d9079cf3df7021c153aa271dfc94" alt="Random Meme" width="500"/>
+**Old meme template, but not about great reset**  
+<img src="https://preview.redd.it/ts7kcilc6hbg1.png?width=640&crop=smart&auto=webp&s=3e0c6866b69f756871a38c171f0aa1bac74745bc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
