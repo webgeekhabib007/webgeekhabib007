@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**fixed that one meme posted on here**  
-<img src="https://preview.redd.it/lvmyp5rgv7bg1.png?width=640&crop=smart&auto=webp&s=6ed77e50ae7199cf62fe428f32742c83a3934fbb" alt="Random Meme" width="500"/>
+**We gonna sue boneless wings next?**  
+<img src="https://preview.redd.it/2z6nqp90ifbg1.png?width=1080&crop=smart&auto=webp&s=2d88ceb46314d5a539e08f2d3b53f41616a0b413" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
