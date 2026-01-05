@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Someone said you were bringing back old memes; I'm still using Internet Explorer so sorry I'm late.**  
-<img src="https://preview.redd.it/p14k39faphbg1.png?width=320&crop=smart&auto=webp&s=4480749591f4a759bbe76af779d3227d0e1117c7" alt="Random Meme" width="500"/>
+**Knock knock**  
+<img src="https://preview.redd.it/kdyh3tbc87bg1.png?width=640&crop=smart&auto=webp&s=5a9d9707b922d9079cf3df7021c153aa271dfc94" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
