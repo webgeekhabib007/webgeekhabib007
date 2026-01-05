@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You know what, I'll microslop even harder...**  
-<img src="https://preview.redd.it/ezl1uapc3kbg1.png?width=320&crop=smart&auto=webp&s=448d1cb600df7beabba563c4c2c47d43a0652b66" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ouk25ocmdbbg1.png?width=1080&crop=smart&auto=webp&s=238fa5982eb8012b186f1201cd88ef42c6d076d3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
