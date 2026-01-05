@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Next CoD hopefully will be better that the last, 5 games**  
-<img src="https://preview.redd.it/c4folg33l5bg1.png?width=320&crop=smart&auto=webp&s=859de4feefb60748f99265019d035c651c1977f6" alt="Random Meme" width="500"/>
+**I'm sorry, what?**  
+<img src="https://preview.redd.it/s69972eab5bg1.png?width=640&crop=smart&auto=webp&s=2601906edfce494f4ba7c29a8b6f8216ababeb88" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
