@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Old meme template, but not about great reset**  
-<img src="https://preview.redd.it/ts7kcilc6hbg1.png?width=640&crop=smart&auto=webp&s=3e0c6866b69f756871a38c171f0aa1bac74745bc" alt="Random Meme" width="500"/>
+**200 Million Years of evolution...**  
+<img src="https://preview.redd.it/947k5lwj7fbg1.png?width=640&crop=smart&auto=webp&s=15090f9ae8d9348cf38b6f37d11bd8c96c88505b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
