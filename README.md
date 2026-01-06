@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Guys, slow down - what's going on**  
-<img src="https://preview.redd.it/j4u3l887hlbg1.png?width=320&crop=smart&auto=webp&s=8331e12e43fa24b15e13dd8e8f27250b5c232989" alt="Random Meme" width="500"/>
+**Ngl, SSB Wii U Brawl is great**  
+<img src="https://preview.redd.it/5pplvrqoxcbg1.png?width=960&crop=smart&auto=webp&s=f3e349f323f7275e6f931dab30b0b010b8109b85" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
