@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ngl, SSB Wii U Brawl is great**  
-<img src="https://preview.redd.it/5pplvrqoxcbg1.png?width=960&crop=smart&auto=webp&s=f3e349f323f7275e6f931dab30b0b010b8109b85" alt="Random Meme" width="500"/>
+**Lecture Gorilla lectures**  
+<img src="https://preview.redd.it/3u8fx8ybmmbg1.png?width=320&crop=smart&auto=webp&s=3482c29b57a6a55dc912e5a7803eb54e4c380640" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
