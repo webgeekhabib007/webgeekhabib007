@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mods can we get some bans going please, I'm not here to learn about current events.**  
-<img src="https://preview.redd.it/pclic8r8ygbg1.png?width=320&crop=smart&auto=webp&s=f3f891731a36c6f7bc469881becbb3d406922d41" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/250qwuvc3bbg1.png?width=1080&crop=smart&auto=webp&s=eb717d09a372ce4adedbf9840774c7a59245f2a7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
