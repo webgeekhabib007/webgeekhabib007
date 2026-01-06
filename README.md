@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Probably only producers will get this...**  
-<img src="https://preview.redd.it/wfev7a9szobg1.png?width=640&crop=smart&auto=webp&s=747e6b37b085c79e8ca6e14f35c98d6902aeeb84" alt="Random Meme" width="500"/>
+**Things will be sure benefical for everyone like at least 41 previous examples of South American governments getting intervened**  
+<img src="https://preview.redd.it/qes2sbz7acbg1.gif?width=320&crop=smart&format=png8&s=3fc30111831b0d18562028285172ac51fa4eec63" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
