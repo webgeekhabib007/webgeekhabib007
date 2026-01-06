@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/250qwuvc3bbg1.png?width=1080&crop=smart&auto=webp&s=eb717d09a372ce4adedbf9840774c7a59245f2a7" alt="Random Meme" width="500"/>
+**What the joke about this personality Quiz…….oh wait it’s an actual personality quiz**  
+<img src="https://preview.redd.it/xluv2j9jelbg1.gif?width=320&crop=smart&format=png8&s=4f5d9ab2a0d4751a72927790a57df8ce33c420b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
