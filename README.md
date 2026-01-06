@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**just got used to the feeling**  
-<img src="https://preview.redd.it/dby1bf067ibg1.png?width=960&crop=smart&auto=webp&s=9b9f5ed95d1e11ec257cff4da9ae140ca6b396d9" alt="Random Meme" width="500"/>
+**Guys, slow down - what's going on**  
+<img src="https://preview.redd.it/j4u3l887hlbg1.png?width=320&crop=smart&auto=webp&s=8331e12e43fa24b15e13dd8e8f27250b5c232989" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
