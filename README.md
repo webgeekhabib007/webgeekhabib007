@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Things will be sure benefical for everyone like at least 41 previous examples of South American governments getting intervened**  
-<img src="https://preview.redd.it/qes2sbz7acbg1.gif?width=320&crop=smart&format=png8&s=3fc30111831b0d18562028285172ac51fa4eec63" alt="Random Meme" width="500"/>
+**And it was great**  
+<img src="https://preview.redd.it/368ii6nlgmbg1.png?width=320&crop=smart&auto=webp&s=c8b25bf29a9dedd33025fbd9b8883538ca7d2328" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
