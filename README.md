@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And it was great**  
-<img src="https://preview.redd.it/368ii6nlgmbg1.png?width=320&crop=smart&auto=webp&s=c8b25bf29a9dedd33025fbd9b8883538ca7d2328" alt="Random Meme" width="500"/>
+**Mods can we get some bans going please, I'm not here to learn about current events.**  
+<img src="https://preview.redd.it/pclic8r8ygbg1.png?width=320&crop=smart&auto=webp&s=f3f891731a36c6f7bc469881becbb3d406922d41" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
