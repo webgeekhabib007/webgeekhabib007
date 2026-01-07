@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Relatable or no?**  
-<img src="https://preview.redd.it/x8r92r3jskbg1.png?width=1080&crop=smart&auto=webp&s=4f9c36f79016a21115b34930aff23231e67b5db4" alt="Random Meme" width="500"/>
+**We need that reset guys**  
+<img src="https://preview.redd.it/pxsw6qh1xnbg1.png?width=1080&crop=smart&auto=webp&s=c48142be2889db03bd8d78f348928add3b2eca82" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
