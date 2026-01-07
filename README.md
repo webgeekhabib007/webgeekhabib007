@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/lvvguw4kvpbg1.png?width=1080&crop=smart&auto=webp&s=d1540f95738a92dc378926d4b107a49f334a2308" alt="Random Meme" width="500"/>
+**🇺🇸 : Did someone say oil?**  
+<img src="https://preview.redd.it/w2ooolc5oybg1.png?width=1080&crop=smart&auto=webp&s=4f7e16f36155161e3d1af388698a49a5bc11762d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
