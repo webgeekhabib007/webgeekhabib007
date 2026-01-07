@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sarah Connor was right**  
-<img src="https://preview.redd.it/tc57bmq9iqbg1.png?width=1080&crop=smart&auto=webp&s=b08c0cca5a7761f932f18bc688012c81b45b18e0" alt="Random Meme" width="500"/>
+**Feel the air flows**  
+<img src="https://preview.redd.it/k0xrdppbatbg1.png?width=320&crop=smart&auto=webp&s=25d37371f02e77cce1bd27cc47cb6dbae817b2d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
