@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/p437stae9tbg1.png?width=1080&crop=smart&auto=webp&s=77219f3b68f6c96654b6e42d1820bedb4006a7e7" alt="Random Meme" width="500"/>
+**They can’t stop creating AI slop**  
+<img src="https://preview.redd.it/ck4jt1b7frbg1.gif?width=320&crop=smart&format=png8&s=5467776389194327aa8956887534bcaf675856eb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
