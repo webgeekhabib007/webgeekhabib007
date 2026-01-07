@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Man this is just not my year**  
-<img src="https://preview.redd.it/esczzlzlwsbg1.png?width=640&crop=smart&auto=webp&s=45086855977bd05a23fe90a858bcd1792b6ebcd9" alt="Random Meme" width="500"/>
+**Sarah Connor was right**  
+<img src="https://preview.redd.it/tc57bmq9iqbg1.png?width=1080&crop=smart&auto=webp&s=b08c0cca5a7761f932f18bc688012c81b45b18e0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
