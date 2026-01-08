@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**when queso calls, you answer**  
-<img src="https://preview.redd.it/jm2epdait4cg1.png?width=1080&crop=smart&auto=webp&s=700584684b1bb88d7d0e275f8f5928cf7d760a0a" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/zisvdjwlpsbg1.png?width=1080&crop=smart&auto=webp&s=8ee2e525366a3dd83965d41fc9235971c1150fe5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
