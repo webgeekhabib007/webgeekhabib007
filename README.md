@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Great way to start the year**  
-<img src="https://preview.redd.it/svk6kw7k1gbg1.gif?width=216&crop=smart&format=png8&s=d00a5f00fb45899c2a8f0430c7b9a841acff5f06" alt="Random Meme" width="500"/>
+**Yeeeessss... Feed the algorithm 😈**  
+<img src="https://preview.redd.it/roxwelc5fubg1.png?width=640&crop=smart&auto=webp&s=094f39b77be8c6734296c2257279d46ac0696da3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
