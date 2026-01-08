@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/oaa7942trzbg1.png?width=640&crop=smart&auto=webp&s=41128ad497f55aad205287421810f745dd06bc3b" alt="Random Meme" width="500"/>
+**You picked a bad time to get lost**  
+<img src="https://preview.redd.it/7vpihdfv30cg1.png?width=320&crop=smart&auto=webp&s=ddaf691543aaa1cf9658526177da3d7f323a93a2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
