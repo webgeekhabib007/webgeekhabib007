@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**New movie coming out 🍿**  
-<img src="https://preview.redd.it/1ul7931nv0cg1.png?width=960&crop=smart&auto=webp&s=1cdae58147ae798495f0e18de73a0d9df8b248ce" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/lvvguw4kvpbg1.png?width=1080&crop=smart&auto=webp&s=d1540f95738a92dc378926d4b107a49f334a2308" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
