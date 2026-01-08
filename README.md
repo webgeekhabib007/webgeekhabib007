@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The main character in the original mummy movie is more creepy than the actual mummy.**  
-<img src="https://preview.redd.it/k7cw5lcyhnbg1.gif?width=640&crop=smart&format=png8&s=86c80c7469fe9e3c719ccaaa778aa1c843727baa" alt="Random Meme" width="500"/>
+**New movie coming out 🍿**  
+<img src="https://preview.redd.it/1ul7931nv0cg1.png?width=960&crop=smart&auto=webp&s=1cdae58147ae798495f0e18de73a0d9df8b248ce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
