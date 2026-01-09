@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Red Hot Like Red Hot Chili Peppers**  
-<img src="https://preview.redd.it/ch6mggv5b0cg1.gif?width=216&crop=smart&format=png8&s=33f4ca8a1d447279b766dd2e85bea714103d1b31" alt="Random Meme" width="500"/>
+**El Presidente is Now Officially One of the Boys**  
+<img src="https://preview.redd.it/c8lmdu57pibg1.png?width=960&crop=smart&auto=webp&s=fa90818b7a35267e501c1548b2c7126b2180228e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
