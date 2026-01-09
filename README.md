@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dogs or aliens you decide**  
-<img src="https://preview.redd.it/kfp951k485cg1.png?width=1080&crop=smart&auto=webp&s=978db9c356a75a541a65aca8bee363b28494f0e7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/60ub6opvjccg1.png?width=640&crop=smart&auto=webp&s=e961a66deda8eee56d7059b23312d130a1ce0bd3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
