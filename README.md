@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Preschooler's First Reality Warper**  
-<img src="https://preview.redd.it/d4ged5q8g8cg1.gif?width=320&crop=smart&format=png8&s=5c246e35015e7ed828382bbff2f188ecbc9a9b36" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/54zp1v5ty4cg1.png?width=640&crop=smart&auto=webp&s=e39f3a1f9b8da815e77b1e561199a78cec7244d0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
