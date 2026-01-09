@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/d0td8c5t78cg1.png?width=1080&crop=smart&auto=webp&s=fac486756b320e01a2357e980e40b1483db7f7cd" alt="Random Meme" width="500"/>
+**Red Hot Like Red Hot Chili Peppers**  
+<img src="https://preview.redd.it/ch6mggv5b0cg1.gif?width=216&crop=smart&format=png8&s=33f4ca8a1d447279b766dd2e85bea714103d1b31" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
