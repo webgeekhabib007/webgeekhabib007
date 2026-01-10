@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fuuuuuuck I gotta write all that**  
-<img src="https://preview.redd.it/t1ydz7q7wobg1.gif?width=640&crop=smart&format=png8&s=3c06c5bd48ac9ab05bd79396cf61017aa7e053bb" alt="Random Meme" width="500"/>
+**They both have a serious jaw condition so it should be a fair fight**  
+<img src="https://preview.redd.it/wd3b1unn2ybg1.png?width=1080&crop=smart&auto=webp&s=21ee72097a442fa8206cd19b353fcf8f16c37a8c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
