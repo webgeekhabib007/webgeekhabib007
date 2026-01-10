@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They must be illiterate or something...**  
-<img src="https://preview.redd.it/ucv5cocxczbg1.gif?width=320&crop=smart&format=png8&s=c4cd7808eea29c38fad34ea12eee896df0f99534" alt="Random Meme" width="500"/>
+**The great meme reset**  
+<img src="https://preview.redd.it/um90xkenq8cg1.png?width=960&crop=smart&auto=webp&s=1d6917e5e0ac27044b935aa45cbdc08321ed1b72" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
