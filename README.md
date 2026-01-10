@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They both have a serious jaw condition so it should be a fair fight**  
-<img src="https://preview.redd.it/wd3b1unn2ybg1.png?width=1080&crop=smart&auto=webp&s=21ee72097a442fa8206cd19b353fcf8f16c37a8c" alt="Random Meme" width="500"/>
+**My cousin loves Overwatch and has told me it’s his favorite video game ever and how excited he was for the sequel. I like it for different reasons but I feel bad for him**  
+<img src="https://preview.redd.it/b53b4ny2yvbg1.gif?width=640&crop=smart&format=png8&s=989dc70b2c8afd088be3819111f08b839a6fb967" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
