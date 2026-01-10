@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That feeling...**  
-<img src="https://preview.redd.it/zwnwauuk9ccg1.png?width=640&crop=smart&auto=webp&s=e37285ffe379ded301745c1a16d7620047b02ae2" alt="Random Meme" width="500"/>
+**It's not 2020, guys**  
+<img src="https://preview.redd.it/ki1dhm9lfkcg1.png?width=640&crop=smart&auto=webp&s=4774c4760aa2d919eb32bac78430efe5b749a55c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
