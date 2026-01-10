@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's not 2020, guys**  
-<img src="https://preview.redd.it/ki1dhm9lfkcg1.png?width=640&crop=smart&auto=webp&s=4774c4760aa2d919eb32bac78430efe5b749a55c" alt="Random Meme" width="500"/>
+**This meme is brought to you by a lack of sleep**  
+<img src="https://preview.redd.it/d21uvryd9kcg1.png?width=1080&crop=smart&auto=webp&s=a19800b41907070053c9c47a2cac8bd7f31ae56a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
