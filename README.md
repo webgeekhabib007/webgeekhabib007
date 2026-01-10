@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This meme is brought to you by a lack of sleep**  
-<img src="https://preview.redd.it/d21uvryd9kcg1.png?width=1080&crop=smart&auto=webp&s=a19800b41907070053c9c47a2cac8bd7f31ae56a" alt="Random Meme" width="500"/>
+**Henry George rolling in his grave rn**  
+<img src="https://preview.redd.it/e1ogype7ebcg1.png?width=1080&crop=smart&auto=webp&s=eb77913cf256218a0157f11ecf528f0f717bf646" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
