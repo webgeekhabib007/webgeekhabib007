@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm recreating 1939**  
-<img src="https://preview.redd.it/kjek7o2f77cg1.png?width=1080&crop=smart&auto=webp&s=530bf62075ca00a3793f38b88ca532c3f48c3087" alt="Random Meme" width="500"/>
+**Fuuuuuuck I gotta write all that**  
+<img src="https://preview.redd.it/t1ydz7q7wobg1.gif?width=640&crop=smart&format=png8&s=3c06c5bd48ac9ab05bd79396cf61017aa7e053bb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
