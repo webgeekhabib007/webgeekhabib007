@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It’s been 3 years since I last saw morning**  
-<img src="https://preview.redd.it/0avkuzvdv2cg1.gif?width=640&crop=smart&format=png8&s=8a700d25823ce7e68c6379ec66c69f4640144d98" alt="Random Meme" width="500"/>
+**See y'all then**  
+<img src="https://preview.redd.it/20ef53pc26cg1.png?width=640&crop=smart&auto=webp&s=f06353ba7ce0102616bf48f46e9a4fc7d4d19b92" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
