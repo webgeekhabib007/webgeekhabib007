@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pepe in the cupboard**  
-<img src="https://preview.redd.it/kzde84p845cg1.png?width=1080&crop=smart&auto=webp&s=c5280cd3c9403028ab48617a525e8db62b51b457" alt="Random Meme" width="500"/>
+**Gaming industry? Was Nvidia a gaming industry company in the past?**  
+<img src="https://preview.redd.it/hpadhay42jcg1.png?width=320&crop=smart&auto=webp&s=1c55dfc722a079fc718aa591f54bad91a0d84ed7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
