@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's the eye of the tiger, it's the thrill of the fight**  
-<img src="https://preview.redd.it/pa2frpndmfcg1.png?width=640&crop=smart&auto=webp&s=d1b1fa38da6d9b736b63aa41b147e59becb2f4ff" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/hxu0vzv2b8cg1.png?width=640&crop=smart&auto=webp&s=870065f247f359fefd867b8e6ae1249ad0da3460" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
