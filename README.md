@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My cousin loves Overwatch and has told me it’s his favorite video game ever and how excited he was for the sequel. I like it for different reasons but I feel bad for him**  
-<img src="https://preview.redd.it/b53b4ny2yvbg1.gif?width=640&crop=smart&format=png8&s=989dc70b2c8afd088be3819111f08b839a6fb967" alt="Random Meme" width="500"/>
+**It's the eye of the tiger, it's the thrill of the fight**  
+<img src="https://preview.redd.it/pa2frpndmfcg1.png?width=640&crop=smart&auto=webp&s=d1b1fa38da6d9b736b63aa41b147e59becb2f4ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
