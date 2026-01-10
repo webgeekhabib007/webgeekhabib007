@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gaming industry? Was Nvidia a gaming industry company in the past?**  
-<img src="https://preview.redd.it/hpadhay42jcg1.png?width=320&crop=smart&auto=webp&s=1c55dfc722a079fc718aa591f54bad91a0d84ed7" alt="Random Meme" width="500"/>
+**They must be illiterate or something...**  
+<img src="https://preview.redd.it/ucv5cocxczbg1.gif?width=320&crop=smart&format=png8&s=c4cd7808eea29c38fad34ea12eee896df0f99534" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
