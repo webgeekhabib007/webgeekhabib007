@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/2279sr5bidcg1.png?width=640&crop=smart&auto=webp&s=8e89f1272f6a7646b9556b30e2c93b6c28e744d4" alt="Random Meme" width="500"/>
+**Pepe in the cupboard**  
+<img src="https://preview.redd.it/kzde84p845cg1.png?width=1080&crop=smart&auto=webp&s=c5280cd3c9403028ab48617a525e8db62b51b457" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
