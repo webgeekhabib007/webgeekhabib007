@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the collection of colorful pens**  
-<img src="https://preview.redd.it/16wmrs1p0pcg1.png?width=960&crop=smart&auto=webp&s=5ef51c9cd46728b59a1f3979e46f1bfc45f55882" alt="Random Meme" width="500"/>
+**I believed in karma too**  
+<img src="https://preview.redd.it/4glvdxxbfmcg1.png?width=320&crop=smart&auto=webp&s=fda1371b0aee805d573f85a4ad30572eeccd508d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
