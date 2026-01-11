@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You will not see these end of this day!**  
-<img src="https://preview.redd.it/qhrqw51qfccg1.png?width=1080&crop=smart&auto=webp&s=77cc410669f10e62e3179f0fecb4783b9a20faa8" alt="Random Meme" width="500"/>
+**Kelpie... not again! Witcher 4**  
+<img src="https://preview.redd.it/wb1d8t3o6kcg1.png?width=1080&crop=smart&auto=webp&s=354ebc9ff91da797b3fcea43e9fc7f09e185e8de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
