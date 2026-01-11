@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The adjective for metal is metallic, but not so for iron**  
-<img src="https://preview.redd.it/tt7n893lakcg1.png?width=320&crop=smart&auto=webp&s=745b933beceb8fcc6fce2e57749762c88793c2cf" alt="Random Meme" width="500"/>
+**very shocking**  
+<img src="https://preview.redd.it/kyxgty68pmcg1.gif?width=640&crop=smart&format=png8&s=7282f587da37b5ff541ba53591b57ef6b34d747c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
