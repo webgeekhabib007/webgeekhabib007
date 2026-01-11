@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/cwegn2j39ncg1.png?width=320&crop=smart&auto=webp&s=08d7e8d04d0011a8d8c661f7b0cf014e1df6c5f7" alt="Random Meme" width="500"/>
+**the collection of colorful pens**  
+<img src="https://preview.redd.it/16wmrs1p0pcg1.png?width=960&crop=smart&auto=webp&s=5ef51c9cd46728b59a1f3979e46f1bfc45f55882" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
