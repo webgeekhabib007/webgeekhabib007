@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I believed in karma too**  
-<img src="https://preview.redd.it/4glvdxxbfmcg1.png?width=320&crop=smart&auto=webp&s=fda1371b0aee805d573f85a4ad30572eeccd508d" alt="Random Meme" width="500"/>
+**The adjective for metal is metallic, but not so for iron**  
+<img src="https://preview.redd.it/tt7n893lakcg1.png?width=320&crop=smart&auto=webp&s=745b933beceb8fcc6fce2e57749762c88793c2cf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
