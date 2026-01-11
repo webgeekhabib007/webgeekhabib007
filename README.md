@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They both have a serious jaw condition so it should be a fair fight**  
-<img src="https://preview.redd.it/wd3b1unn2ybg1.png?width=1080&crop=smart&auto=webp&s=21ee72097a442fa8206cd19b353fcf8f16c37a8c" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/y5mih8ghehcg1.png?width=320&crop=smart&auto=webp&s=9c70ee612811bd9631df2c1fd9db92e549b03af0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
