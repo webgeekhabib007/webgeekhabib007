@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Henry George rolling in his grave rn**  
-<img src="https://preview.redd.it/e1ogype7ebcg1.png?width=1080&crop=smart&auto=webp&s=eb77913cf256218a0157f11ecf528f0f717bf646" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ye87jvmvldcg1.png?width=640&crop=smart&auto=webp&s=74a2356fa436e435ba11c10da3d34f5403156c9f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
