@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**very shocking**  
-<img src="https://preview.redd.it/kyxgty68pmcg1.gif?width=640&crop=smart&format=png8&s=7282f587da37b5ff541ba53591b57ef6b34d747c" alt="Random Meme" width="500"/>
+**A day in the life of an ambitious procrastinator**  
+<img src="https://preview.redd.it/8xvc5qpjuocg1.png?width=320&crop=smart&auto=webp&s=e0bb92ad3c0b7f4da2dbd1fd9a71ceaa2c73af14" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
