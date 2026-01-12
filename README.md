@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Morning glory milking farm intensifies**  
-<img src="https://preview.redd.it/fe0krl0ri9cg1.gif?width=640&crop=smart&format=png8&s=c404a81de7f79ec8e25d8facaed1b535bf90442e" alt="Random Meme" width="500"/>
+**Mr. Obama, forgive me**  
+<img src="https://preview.redd.it/wpx9fr9bimcg1.png?width=1080&crop=smart&auto=webp&s=8bfa44cea121e845c7b392288692ac81113e0fb9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
