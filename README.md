@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mr. Obama, forgive me**  
-<img src="https://preview.redd.it/wpx9fr9bimcg1.png?width=1080&crop=smart&auto=webp&s=8bfa44cea121e845c7b392288692ac81113e0fb9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/axfxsbh35qcg1.png?width=320&crop=smart&auto=webp&s=27f5160ace90d738d665e5e32e1553841c98ea41" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
