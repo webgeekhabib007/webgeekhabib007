@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/u6ub80qhupcg1.png?width=640&crop=smart&auto=webp&s=a55074f9dce04e79f8d5f0659be3a078fbf58b9e" alt="Random Meme" width="500"/>
+**Morning glory milking farm intensifies**  
+<img src="https://preview.redd.it/fe0krl0ri9cg1.gif?width=640&crop=smart&format=png8&s=c404a81de7f79ec8e25d8facaed1b535bf90442e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
