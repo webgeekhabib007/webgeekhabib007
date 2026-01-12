@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Title***  
-<img src="https://preview.redd.it/wwl776zm7jcg1.png?width=640&crop=smart&auto=webp&s=061183453a25f87219d3be989cffbf0c100f77c9" alt="Random Meme" width="500"/>
+**Why am I scared? Probably because one time my grandma got pulled over when I was a kid and she told the cop that her bad driving was because of me and he came to my window. I didn’t do anything it was her fault!**  
+<img src="https://preview.redd.it/ynvxwl5el8cg1.gif?width=640&crop=smart&format=png8&s=5c1077fb9e5463757912b97f3300748f3ac23279" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
