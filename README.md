@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"I Can't Eat This!" ~Pig**  
-<img src="https://preview.redd.it/k48fvtg5odcg1.png?width=320&crop=smart&auto=webp&s=d573bdea38178ba26d99d5f695d0565c5157b3c8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/axfxsbh35qcg1.png?width=320&crop=smart&auto=webp&s=27f5160ace90d738d665e5e32e1553841c98ea41" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
