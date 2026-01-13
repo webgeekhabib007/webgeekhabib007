@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jiggle physics**  
-<img src="https://preview.redd.it/jx4ect5ztocg1.gif?width=640&crop=smart&format=png8&s=8c4dc83e81c09d0211327e117e22c49cbc81e795" alt="Random Meme" width="500"/>
+**Yeah, I had this experience once**  
+<img src="https://preview.redd.it/yxmbzbzgf3dg1.png?width=960&crop=smart&auto=webp&s=7870a191e3bd36770c1790dd47882cda20f8f34e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
