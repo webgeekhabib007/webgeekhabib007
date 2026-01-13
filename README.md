@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Title***  
-<img src="https://preview.redd.it/wwl776zm7jcg1.png?width=640&crop=smart&auto=webp&s=061183453a25f87219d3be989cffbf0c100f77c9" alt="Random Meme" width="500"/>
+**Average School Experience**  
+<img src="https://preview.redd.it/4hx4ilprm1dg1.png?width=640&crop=smart&auto=webp&s=18a6c0adaa7918b4e2865ce41076fb50ef942c53" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
