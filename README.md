@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/6fzth3gwlpcg1.png?width=640&crop=smart&auto=webp&s=9c52f006208a735ba1230a1d0ae6f075fc53a32d" alt="Random Meme" width="500"/>
+**Is this the real life? Is this just Fanta sea?**  
+<img src="https://preview.redd.it/hkw8ykyk4ycg1.png?width=1080&crop=smart&auto=webp&s=464b89a36956d5e4a22742f9fdde54f46337450c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
