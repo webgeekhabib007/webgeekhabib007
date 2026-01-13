@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I’m not a cheater just an embarrassed idiot. Also I’m scared a friend will send something stupid or if someone hacks my phone to put something bad without me knowing.**  
-<img src="https://preview.redd.it/5leyn0rpr8cg1.gif?width=640&crop=smart&format=png8&s=e0cb1772ab0ce070e2a71fe74bef1d40091bfc5d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/u1iyvj8f3vcg1.gif?width=320&crop=smart&format=png8&s=5c3100aad8b21c4b8c25f89f58a0410c49a53c96" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
