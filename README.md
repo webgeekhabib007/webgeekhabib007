@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Golden Globes**  
-<img src="https://preview.redd.it/pzs41az6z4dg1.png?width=640&crop=smart&auto=webp&s=8ce6e36d2e5539cf92908b957108af21690848c8" alt="Random Meme" width="500"/>
+**300 feet ahead. hmmmmm**  
+<img src="https://preview.redd.it/pzoqjg77v3dg1.png?width=640&crop=smart&auto=webp&s=4ae65195ee5e46f63675400f51bab412ef3abd48" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
