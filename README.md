@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**literally 1984**  
-<img src="https://preview.redd.it/tcsyxh2llecg1.png?width=640&crop=smart&auto=webp&s=0908327c72d46251694581c287b5807d58206a4f" alt="Random Meme" width="500"/>
+**Lonely at the bottom**  
+<img src="https://preview.redd.it/lw5s1hx6gvcg1.png?width=1080&crop=smart&auto=webp&s=cbd88ad6385f2acea7894e2fe18c11dbb7105945" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
