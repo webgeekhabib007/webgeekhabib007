@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/u77il2xhn4dg1.png?width=960&crop=smart&auto=webp&s=db30d4176a6f4608cfe5ad1a42a94b2c358a82ed" alt="Random Meme" width="500"/>
+**Golden Globes**  
+<img src="https://preview.redd.it/pzs41az6z4dg1.png?width=640&crop=smart&auto=webp&s=8ce6e36d2e5539cf92908b957108af21690848c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
