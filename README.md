@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Lonely at the bottom**  
-<img src="https://preview.redd.it/lw5s1hx6gvcg1.png?width=1080&crop=smart&auto=webp&s=cbd88ad6385f2acea7894e2fe18c11dbb7105945" alt="Random Meme" width="500"/>
+**Those Actors Were Hella Exhausted**  
+<img src="https://preview.redd.it/259xvsgcxscg1.png?width=320&crop=smart&auto=webp&s=3d4c96d1811db167502cc260e04d690fc6b1ca4a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
