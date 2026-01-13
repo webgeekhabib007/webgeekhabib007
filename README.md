@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**300 feet ahead. hmmmmm**  
-<img src="https://preview.redd.it/pzoqjg77v3dg1.png?width=640&crop=smart&auto=webp&s=4ae65195ee5e46f63675400f51bab412ef3abd48" alt="Random Meme" width="500"/>
+**I’m not a cheater just an embarrassed idiot. Also I’m scared a friend will send something stupid or if someone hacks my phone to put something bad without me knowing.**  
+<img src="https://preview.redd.it/5leyn0rpr8cg1.gif?width=640&crop=smart&format=png8&s=e0cb1772ab0ce070e2a71fe74bef1d40091bfc5d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
