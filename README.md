@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Those Actors Were Hella Exhausted**  
-<img src="https://preview.redd.it/259xvsgcxscg1.png?width=320&crop=smart&auto=webp&s=3d4c96d1811db167502cc260e04d690fc6b1ca4a" alt="Random Meme" width="500"/>
+**Title***  
+<img src="https://preview.redd.it/wwl776zm7jcg1.png?width=640&crop=smart&auto=webp&s=061183453a25f87219d3be989cffbf0c100f77c9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
