@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I hate this life**  
-<img src="https://preview.redd.it/og15uxfb62dg1.gif?width=640&crop=smart&format=png8&s=e380112f59047f906820da11bd0848b7a158b2e0" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/6fzth3gwlpcg1.png?width=640&crop=smart&auto=webp&s=9c52f006208a735ba1230a1d0ae6f075fc53a32d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
