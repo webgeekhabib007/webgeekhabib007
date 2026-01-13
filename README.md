@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Average School Experience**  
-<img src="https://preview.redd.it/4hx4ilprm1dg1.png?width=640&crop=smart&auto=webp&s=18a6c0adaa7918b4e2865ce41076fb50ef942c53" alt="Random Meme" width="500"/>
+**I hate this life**  
+<img src="https://preview.redd.it/og15uxfb62dg1.gif?width=640&crop=smart&format=png8&s=e380112f59047f906820da11bd0848b7a158b2e0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
