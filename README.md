@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/38krekeo44dg1.png?width=1080&crop=smart&auto=webp&s=6bba5482313be5a433c3b96ef28131f7c9ae2363" alt="Random Meme" width="500"/>
+**He belongs to her now.**  
+<img src="https://preview.redd.it/0bxm0gw0t9cg1.png?width=640&crop=smart&auto=webp&s=4057f625dbb91df4082ef6eb75eefda229e2920d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
