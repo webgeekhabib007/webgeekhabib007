@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That scene where Carl teaches Marcus to paint has aged very well. Especially with how at first how Marcus can only paint something that already exists and then Marcus has to actually think of something.**  
-<img src="https://preview.redd.it/z8f8gdk5vvcg1.gif?width=640&crop=smart&format=png8&s=7db42fdc190f136f58205c66efa650bdd35e2405" alt="Random Meme" width="500"/>
+**The adjective for metal is metallic, but not so for iron**  
+<img src="https://preview.redd.it/tt7n893lakcg1.png?width=320&crop=smart&auto=webp&s=745b933beceb8fcc6fce2e57749762c88793c2cf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
