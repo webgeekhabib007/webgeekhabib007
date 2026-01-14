@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bye bye, Steam jester award**  
-<img src="https://preview.redd.it/6kkz00u0u8dg1.png?width=960&crop=smart&auto=webp&s=46919eb0a930c1cde104a271151c66b0fe51366d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cjrlu3pfabdg1.png?width=1080&crop=smart&auto=webp&s=95af49d1aab93aa6f91b6ab82a25a772499e6094" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
