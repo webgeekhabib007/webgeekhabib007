@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just fuck my shit up fam**  
-<img src="https://preview.redd.it/r22quq878cdg1.png?width=640&crop=smart&auto=webp&s=1b4803ef6c20d168182902a454c7a472acdf767d" alt="Random Meme" width="500"/>
+**Meanwhile in biology class:**  
+<img src="https://preview.redd.it/bmnxw0q22adg1.png?width=1080&crop=smart&auto=webp&s=5ccdd303db90f9dcde2827110212e469afaee4fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
