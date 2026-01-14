@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I prefer the machine that goes BEEEP**  
-<img src="https://preview.redd.it/dm41f4253adg1.gif?width=320&crop=smart&format=png8&s=5b1b0d5d24b6613114d304cf840630061e6413a7" alt="Random Meme" width="500"/>
+**Just fuck my shit up fam**  
+<img src="https://preview.redd.it/r22quq878cdg1.png?width=640&crop=smart&auto=webp&s=1b4803ef6c20d168182902a454c7a472acdf767d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
