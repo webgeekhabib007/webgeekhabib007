@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/cjrlu3pfabdg1.png?width=1080&crop=smart&auto=webp&s=95af49d1aab93aa6f91b6ab82a25a772499e6094" alt="Random Meme" width="500"/>
+**That scene where Carl teaches Marcus to paint has aged very well. Especially with how at first how Marcus can only paint something that already exists and then Marcus has to actually think of something.**  
+<img src="https://preview.redd.it/z8f8gdk5vvcg1.gif?width=640&crop=smart&format=png8&s=7db42fdc190f136f58205c66efa650bdd35e2405" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
