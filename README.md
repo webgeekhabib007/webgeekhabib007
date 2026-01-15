@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Meanwhile in biology class:**  
-<img src="https://preview.redd.it/bmnxw0q22adg1.png?width=1080&crop=smart&auto=webp&s=5ccdd303db90f9dcde2827110212e469afaee4fc" alt="Random Meme" width="500"/>
+**Ah geez!**  
+<img src="https://preview.redd.it/nhffeqqzp9dg1.gif?width=640&crop=smart&format=png8&s=64a02bcde55bb7a56b1fc8a19bdb1d2a5d9b7d3d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
