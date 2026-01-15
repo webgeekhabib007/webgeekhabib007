@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jiggle physics**  
-<img src="https://preview.redd.it/jx4ect5ztocg1.gif?width=640&crop=smart&format=png8&s=8c4dc83e81c09d0211327e117e22c49cbc81e795" alt="Random Meme" width="500"/>
+**Bye bye, Steam jester award**  
+<img src="https://preview.redd.it/6kkz00u0u8dg1.png?width=960&crop=smart&auto=webp&s=46919eb0a930c1cde104a271151c66b0fe51366d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
