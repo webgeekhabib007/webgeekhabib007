@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"No son of mine is dating a clanker!"**  
-<img src="https://preview.redd.it/cyx0m3fbqucg1.png?width=640&crop=smart&auto=webp&s=73eba9d8acbee2f14a7d6013f784d8ef4e4cb0ab" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/38krekeo44dg1.png?width=1080&crop=smart&auto=webp&s=6bba5482313be5a433c3b96ef28131f7c9ae2363" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
