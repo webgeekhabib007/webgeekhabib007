@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We can dream, can’t we?**  
-<img src="https://preview.redd.it/r1hmtx6h5cdg1.png?width=1080&crop=smart&auto=webp&s=fd8dfe1db575080643785e2664a83ca24b995078" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ia583jrkjedg1.png?width=640&crop=smart&auto=webp&s=31575143458b68cb7b720f83c895048a7ca8d346" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
