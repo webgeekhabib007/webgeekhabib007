@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Their hands were rough but their hearts soft**  
-<img src="https://preview.redd.it/jf887cu5aqdg1.gif?width=320&crop=smart&format=png8&s=59e32799e048375ab1f6586fd634163be337c8f9" alt="Random Meme" width="500"/>
+**the golden hours of rest**  
+<img src="https://preview.redd.it/99epurw7podg1.png?width=640&crop=smart&auto=webp&s=0e42000a2c09d1ccfbc3f21c35b3534716e14ac0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
