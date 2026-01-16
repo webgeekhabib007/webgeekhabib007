@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/evk5ywp5akdg1.png?width=960&crop=smart&auto=webp&s=f1267e87a44d15e90f945a187d79786212008215" alt="Random Meme" width="500"/>
+**''Before I tried this exercise, my back felt like a rock. Now, I don't feel my back at all!''**  
+<img src="https://preview.redd.it/3nizzgh1zkdg1.png?width=320&crop=smart&auto=webp&s=da2c560e96203a3536621070fec0c72b01761a98" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
