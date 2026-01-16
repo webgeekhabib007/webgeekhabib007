@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What sound?**  
-<img src="https://preview.redd.it/gd8wdda0qgdg1.gif?width=320&crop=smart&format=png8&s=36e605796cdaaf3080a116dfd2129e7d9b2d8ffe" alt="Random Meme" width="500"/>
+**Their hands were rough but their hearts soft**  
+<img src="https://preview.redd.it/jf887cu5aqdg1.gif?width=320&crop=smart&format=png8&s=59e32799e048375ab1f6586fd634163be337c8f9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
