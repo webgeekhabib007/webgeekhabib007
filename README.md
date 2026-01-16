@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bro Code 4 Lyfe Yo**  
-<img src="https://preview.redd.it/4atkv5981pdg1.png?width=640&crop=smart&auto=webp&s=82d9c0575e6f41717eb2219e29522addb5e51bf2" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/165mrxkz1edg1.png?width=1080&crop=smart&auto=webp&s=bcae29a08829906a2f98f945e64d1698f7ae723e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
