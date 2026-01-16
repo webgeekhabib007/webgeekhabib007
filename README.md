@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/rnkn3krlypdg1.png?width=640&crop=smart&auto=webp&s=898d0f5040c2b3515ae8e52325761e3d9d61d8b9" alt="Random Meme" width="500"/>
+**pre , post cyberpunk**  
+<img src="https://preview.redd.it/9cxdhbz0gmdg1.png?width=1080&crop=smart&auto=webp&s=995f678712c88643e18cc8fba248c449237bc6a3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
