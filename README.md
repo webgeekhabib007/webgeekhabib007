@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**god damn oneplus**  
-<img src="https://preview.redd.it/3f3v7tzps4dg1.png?width=1080&crop=smart&auto=webp&s=6fb7bb6df0468cf3afdc3fefdf31bd8cadd558b6" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cjrlu3pfabdg1.png?width=1080&crop=smart&auto=webp&s=95af49d1aab93aa6f91b6ab82a25a772499e6094" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
