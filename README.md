@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**300 feet ahead. hmmmmm**  
-<img src="https://preview.redd.it/pzoqjg77v3dg1.png?width=640&crop=smart&auto=webp&s=4ae65195ee5e46f63675400f51bab412ef3abd48" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cjrlu3pfabdg1.png?width=1080&crop=smart&auto=webp&s=95af49d1aab93aa6f91b6ab82a25a772499e6094" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
