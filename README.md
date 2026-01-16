@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The plan didnt really work out**  
-<img src="https://preview.redd.it/nkwgkg5wdcdg1.png?width=640&crop=smart&auto=webp&s=cf69c79cfa577a4acf6e3540412f8d7ca3e1408b" alt="Random Meme" width="500"/>
+**Bro Code 4 Lyfe Yo**  
+<img src="https://preview.redd.it/4atkv5981pdg1.png?width=640&crop=smart&auto=webp&s=82d9c0575e6f41717eb2219e29522addb5e51bf2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
