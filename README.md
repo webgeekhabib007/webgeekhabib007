@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This Is A Real Feature.**  
-<img src="https://preview.redd.it/1yltllz0nudg1.png?width=320&crop=smart&auto=webp&s=960e881fa8c5764b28e07d5e0c49e4c39a059aeb" alt="Random Meme" width="500"/>
+**nothing is forever**  
+<img src="https://preview.redd.it/gnn95vejkkdg1.png?width=640&crop=smart&auto=webp&s=c9a3d8c8471db23aa47a76c0ffd3e96c7b980072" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
