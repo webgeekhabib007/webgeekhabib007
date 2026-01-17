@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**nothing is forever**  
-<img src="https://preview.redd.it/gnn95vejkkdg1.png?width=640&crop=smart&auto=webp&s=c9a3d8c8471db23aa47a76c0ffd3e96c7b980072" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/mohynrkcjrdg1.png?width=640&crop=smart&auto=webp&s=ddce90387696a746b8ad19c7404bbd021325e56c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
