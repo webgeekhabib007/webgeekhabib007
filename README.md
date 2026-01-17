@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I found out that AIs know when they’re being tested and I haven’t slept since**  
-<img src="https://preview.redd.it/roi2lrf2fqdg1.png?width=1080&crop=smart&auto=webp&s=812cace98439789f8e32a5c435418c9c08f909a2" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/rnkn3krlypdg1.png?width=640&crop=smart&auto=webp&s=898d0f5040c2b3515ae8e52325761e3d9d61d8b9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
