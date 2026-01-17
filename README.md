@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**double standerts**  
-<img src="https://preview.redd.it/cex3zghohvdg1.png?width=320&crop=smart&auto=webp&s=3cb74573891d211cef3a76d17eedad657ccb6bf0" alt="Random Meme" width="500"/>
+**It is the WORST feeling**  
+<img src="https://preview.redd.it/fi7t5tkefsdg1.png?width=1080&crop=smart&auto=webp&s=903b14e843e26933c9f1c5fc996aabe5bcb293d3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
