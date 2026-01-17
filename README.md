@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They capture him**  
-<img src="https://preview.redd.it/o3yl7fta0xdg1.png?width=1080&crop=smart&auto=webp&s=2c6091a6d9345f368147f00ff93a84132b1777e5" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/2t32vz0nbodg1.png?width=640&crop=smart&auto=webp&s=3529acb999636020bc21acbbac7c86fbcb5a36dd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
