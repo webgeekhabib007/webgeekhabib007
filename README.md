@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Original Creation Meme (Radioactive Shrimp)**  
-<img src="https://preview.redd.it/x8ci45jx3sdg1.png?width=1080&crop=smart&auto=webp&s=a81f6ff37ca2b3307990c3e4296a0d6c62b0c581" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/90dp88x64qdg1.png?width=640&crop=smart&auto=webp&s=faba79c49c2cafcc85bfbb2dac3c9d4d9bb3f6ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
