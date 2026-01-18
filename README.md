@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gary Sinise is a national treasure**  
-<img src="https://preview.redd.it/w3ixbxuxp2eg1.png?width=1080&crop=smart&auto=webp&s=1c65c6de1b2ffb8e4401ea4be67a4c80d9a06564" alt="Random Meme" width="500"/>
+**Freedom meme is here**  
+<img src="https://preview.redd.it/g7hy3mzichdg1.png?width=320&crop=smart&auto=webp&s=552aaa4396e6969c67777eadd51f98cc8ec3c811" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
