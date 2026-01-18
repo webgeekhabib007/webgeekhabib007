@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/90dp88x64qdg1.png?width=640&crop=smart&auto=webp&s=faba79c49c2cafcc85bfbb2dac3c9d4d9bb3f6ad" alt="Random Meme" width="500"/>
+**Gary Sinise is a national treasure**  
+<img src="https://preview.redd.it/w3ixbxuxp2eg1.png?width=1080&crop=smart&auto=webp&s=1c65c6de1b2ffb8e4401ea4be67a4c80d9a06564" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
