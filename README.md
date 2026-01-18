@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/cbuuapc4s0eg1.png?width=640&crop=smart&auto=webp&s=ceb921fb3e4ae1fb94e3c8543ab36e63df900b10" alt="Random Meme" width="500"/>
+**Freedom meme is here**  
+<img src="https://preview.redd.it/g7hy3mzichdg1.png?width=320&crop=smart&auto=webp&s=552aaa4396e6969c67777eadd51f98cc8ec3c811" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
