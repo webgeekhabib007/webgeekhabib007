@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Metabolism is doing more than we think!**  
-<img src="https://preview.redd.it/f8fa7r12xaeg1.png?width=320&crop=smart&auto=webp&s=04b8be642b10b87b92c13b787e400b44105795d3" alt="Random Meme" width="500"/>
+**Bro not breathing for 17 minutes**  
+<img src="https://preview.redd.it/88qtcyc8vwdg1.png?width=320&crop=smart&auto=webp&s=7bdf02ecd1a8791c2df8d394dc65ef54ee1491a6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
