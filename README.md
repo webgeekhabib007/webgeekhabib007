@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**RIP the coolest sub now filled with political brainrot**  
-<img src="https://preview.redd.it/bueko7ybfldg1.png?width=1080&crop=smart&auto=webp&s=fe420504134f58f216c420c2a236d8723a3fbc97" alt="Random Meme" width="500"/>
+**I started giving soft candies instead.**  
+<img src="https://preview.redd.it/0zfxda3o4aeg1.png?width=960&crop=smart&auto=webp&s=2d37fc39487af86b7ded43dc7e3028331b200733" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
