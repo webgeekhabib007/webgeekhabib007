@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I started giving soft candies instead.**  
-<img src="https://preview.redd.it/0zfxda3o4aeg1.png?width=960&crop=smart&auto=webp&s=2d37fc39487af86b7ded43dc7e3028331b200733" alt="Random Meme" width="500"/>
+**Metabolism is doing more than we think!**  
+<img src="https://preview.redd.it/f8fa7r12xaeg1.png?width=320&crop=smart&auto=webp&s=04b8be642b10b87b92c13b787e400b44105795d3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
