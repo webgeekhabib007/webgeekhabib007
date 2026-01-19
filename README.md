@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/8r8jr0gq31eg1.png?width=1080&crop=smart&auto=webp&s=4d7e2b0f57f22a768b3ad8e54785939ce932a183" alt="Random Meme" width="500"/>
+**Truly a sign of superiority. Got accused of being a Smurf in marvel rivals yesterday.**  
+<img src="https://preview.redd.it/pmfl8zwn4mdg1.gif?width=640&crop=smart&format=png8&s=2c41def1dc7ca45b4afd200baae878de9752cfa2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
