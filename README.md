@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In a parallel universe**  
-<img src="https://preview.redd.it/j9if5unhy6eg1.png?width=1080&crop=smart&auto=webp&s=b659bfaa607e06d6180a5d64ed3b0b5fa42cf85b" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/dppndkqgc2eg1.png?width=1080&crop=smart&auto=webp&s=9c038828bc2a3527b63a0fe8ddd1e1540cdfbcf1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
