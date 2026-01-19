@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yessir it is what it is**  
-<img src="https://preview.redd.it/f8y6750uuceg1.png?width=1080&crop=smart&auto=webp&s=4c1470a60293b279f1fe498efc1e06d432f24d39" alt="Random Meme" width="500"/>
+**It's Pota-toes**  
+<img src="https://preview.redd.it/lcm8pmckaceg1.png?width=1080&crop=smart&auto=webp&s=14ae832f38930b7b695b409f69180d37569c5882" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
