@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ujumf***  
-<img src="https://preview.redd.it/oprt2v8nk7eg1.png?width=640&crop=smart&auto=webp&s=9d985ffa15230de0cd220a1b730d8d27b784ee2d" alt="Random Meme" width="500"/>
+**I'm basically a financial guru**  
+<img src="https://preview.redd.it/3hgj0fm8kceg1.gif?width=640&crop=smart&format=png8&s=c19a44109a16634c29d996a6c09f022013c5e2f7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
