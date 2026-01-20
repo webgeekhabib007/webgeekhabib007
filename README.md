@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**you are done**  
-<img src="https://preview.redd.it/j8rh6a8wsydg1.png?width=960&crop=smart&auto=webp&s=27827b9ace62d3a0344f8c4456f24bf0b66acc8e" alt="Random Meme" width="500"/>
+**How’s it been this long with absolutely nothing happening**  
+<img src="https://preview.redd.it/qru485lqdydg1.gif?width=320&crop=smart&format=png8&s=7fb78ac1a04c80433a6c154fcb0796724ddb3459" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
