@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How’s it been this long with absolutely nothing happening**  
-<img src="https://preview.redd.it/qru485lqdydg1.gif?width=320&crop=smart&format=png8&s=7fb78ac1a04c80433a6c154fcb0796724ddb3459" alt="Random Meme" width="500"/>
+**Ujumf***  
+<img src="https://preview.redd.it/oprt2v8nk7eg1.png?width=640&crop=smart&auto=webp&s=9d985ffa15230de0cd220a1b730d8d27b784ee2d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
