@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm basically a financial guru**  
-<img src="https://preview.redd.it/3hgj0fm8kceg1.gif?width=640&crop=smart&format=png8&s=c19a44109a16634c29d996a6c09f022013c5e2f7" alt="Random Meme" width="500"/>
+**Always feels like I'm being an inconvenience.**  
+<img src="https://preview.redd.it/3kd3cu5jjfeg1.png?width=640&crop=smart&auto=webp&s=27f3baab6df00a7a4b53a9d9efff74081a9abd72" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
