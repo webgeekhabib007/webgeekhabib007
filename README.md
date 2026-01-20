@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**RIP the coolest sub now filled with political brainrot**  
-<img src="https://preview.redd.it/bueko7ybfldg1.png?width=1080&crop=smart&auto=webp&s=fe420504134f58f216c420c2a236d8723a3fbc97" alt="Random Meme" width="500"/>
+**"Haha, I'm in danger."**  
+<img src="https://preview.redd.it/n38e101mgbeg1.png?width=640&crop=smart&auto=webp&s=213b7913b6cce7b7ef207097f3ab1bcd114adbae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
