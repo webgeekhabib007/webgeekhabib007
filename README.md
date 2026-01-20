@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Always feels like I'm being an inconvenience.**  
-<img src="https://preview.redd.it/3kd3cu5jjfeg1.png?width=640&crop=smart&auto=webp&s=27f3baab6df00a7a4b53a9d9efff74081a9abd72" alt="Random Meme" width="500"/>
+**Genie last wish...**  
+<img src="https://preview.redd.it/1fy2utnuaieg1.png?width=1080&crop=smart&auto=webp&s=67666dc021b68dde1c9899af20a24179c040e9e7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
