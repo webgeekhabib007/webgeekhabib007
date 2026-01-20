@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Genie last wish...**  
-<img src="https://preview.redd.it/1fy2utnuaieg1.png?width=1080&crop=smart&auto=webp&s=67666dc021b68dde1c9899af20a24179c040e9e7" alt="Random Meme" width="500"/>
+**Might give it a sniff too**  
+<img src="https://preview.redd.it/7w9suoetoceg1.png?width=320&crop=smart&auto=webp&s=a230d7f3897a6fe113928740e23c72349f8b3c28" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
