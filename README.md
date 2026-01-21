@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**For the purposes of this meme, the part of Uncle Monty will be played by the United States**  
-<img src="https://preview.redd.it/z6kmlsyfbqeg1.png?width=1080&crop=smart&auto=webp&s=3b84d319c5659b0b2284a8f10fdaab5b07896994" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/6d4uqfhyeheg1.png?width=1080&crop=smart&auto=webp&s=ae7ee4a17c73e9f6d8de520bde6809c1b218ca47" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
