@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Money it's all about money**  
-<img src="https://preview.redd.it/ot4ksg0vvieg1.png?width=960&crop=smart&auto=webp&s=e0197f68f5e9604e81581dfd521bfeea45970616" alt="Random Meme" width="500"/>
+**For the purposes of this meme, the part of Uncle Monty will be played by the United States**  
+<img src="https://preview.redd.it/z6kmlsyfbqeg1.png?width=1080&crop=smart&auto=webp&s=3b84d319c5659b0b2284a8f10fdaab5b07896994" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
