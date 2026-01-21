@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/6d4uqfhyeheg1.png?width=1080&crop=smart&auto=webp&s=ae7ee4a17c73e9f6d8de520bde6809c1b218ca47" alt="Random Meme" width="500"/>
+**"I love Emelia" moment**  
+<img src="https://preview.redd.it/aplbtrbmbfeg1.png?width=1080&crop=smart&auto=webp&s=b87b146b7e7eae7c9ff2b11973eda2bbdd0c42cf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
