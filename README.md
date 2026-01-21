@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What a ride**  
-<img src="https://preview.redd.it/8korqujqjmeg1.gif?width=640&crop=smart&format=png8&s=1345e4f1af656fa5b3ebe6c3d9725300a09fd43d" alt="Random Meme" width="500"/>
+**I've counted them**  
+<img src="https://preview.redd.it/3t8sh9qrikeg1.png?width=320&crop=smart&auto=webp&s=06146fab3a5d219efefb4cd15876fd1303190cee" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
