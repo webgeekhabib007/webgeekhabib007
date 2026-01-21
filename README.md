@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Ujumf***  
-<img src="https://preview.redd.it/oprt2v8nk7eg1.png?width=640&crop=smart&auto=webp&s=9d985ffa15230de0cd220a1b730d8d27b784ee2d" alt="Random Meme" width="500"/>
+**flaccid...**  
+<img src="https://preview.redd.it/yqewamc5gsdg1.gif?width=320&crop=smart&format=png8&s=8dfd16903bd50906449d22e8ce01eceebe47e7c6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
