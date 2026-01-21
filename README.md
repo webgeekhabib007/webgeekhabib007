@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**flaccid...**  
-<img src="https://preview.redd.it/yqewamc5gsdg1.gif?width=320&crop=smart&format=png8&s=8dfd16903bd50906449d22e8ce01eceebe47e7c6" alt="Random Meme" width="500"/>
+**Money it's all about money**  
+<img src="https://preview.redd.it/ot4ksg0vvieg1.png?width=960&crop=smart&auto=webp&s=e0197f68f5e9604e81581dfd521bfeea45970616" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
