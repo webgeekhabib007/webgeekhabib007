@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I've counted them**  
-<img src="https://preview.redd.it/3t8sh9qrikeg1.png?width=320&crop=smart&auto=webp&s=06146fab3a5d219efefb4cd15876fd1303190cee" alt="Random Meme" width="500"/>
+**It is hard to resist**  
+<img src="https://preview.redd.it/20hrrk038leg1.png?width=1080&crop=smart&auto=webp&s=9b7622c0d4bf3a71997172cb499739c0932e6cf4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
