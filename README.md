@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm alone.......**  
-<img src="https://preview.redd.it/etfvh8shsjeg1.png?width=960&crop=smart&auto=webp&s=7c7036330dbb8e77eb2dc10bcea10e1591bdfee7" alt="Random Meme" width="500"/>
+**What a ride**  
+<img src="https://preview.redd.it/8korqujqjmeg1.gif?width=640&crop=smart&format=png8&s=1345e4f1af656fa5b3ebe6c3d9725300a09fd43d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
