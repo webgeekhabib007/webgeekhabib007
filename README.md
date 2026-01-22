@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I miss my sense of humor and outward optimism**  
-<img src="https://preview.redd.it/gwu8y9iw7reg1.gif?width=640&crop=smart&format=png8&s=d431c012c5205d5b267f87728b1f70713774de5c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/8lpgoek81qeg1.png?width=640&crop=smart&auto=webp&s=9b31cb06f68ffad51d60384aa014b729638814e6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
