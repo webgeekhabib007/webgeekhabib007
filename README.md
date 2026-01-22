@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Doing research project and ohh god**  
-<img src="https://preview.redd.it/ggg2hp66ureg1.png?width=320&crop=smart&auto=webp&s=30144e360ef336d5ea6e7b86c38473cb24b9d0ab" alt="Random Meme" width="500"/>
+**Anime? Hentai? Ecchi? I don't know wtf it is.**  
+<img src="https://preview.redd.it/lyn0j0313keg1.png?width=320&crop=smart&auto=webp&s=f8f68507f5622cb082a60a8c1b34aeb40cb5e8d7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
