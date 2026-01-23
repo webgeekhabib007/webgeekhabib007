@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**looking back as i continued walking forward**  
-<img src="https://preview.redd.it/uvakg17qiveg1.png?width=960&crop=smart&auto=webp&s=c32ba5d1e7d7cad34768a8bf71618d992bd9bb82" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/sm5vttonbzeg1.png?width=1080&crop=smart&auto=webp&s=3f3191c4cb5a2021b4fce2dd6930d4587e3962a5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
