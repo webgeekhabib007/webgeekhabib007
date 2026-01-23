@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/49cus6n1sveg1.png?width=1080&crop=smart&auto=webp&s=235732f1aee0eaadcac704ad0fcb9abc505b9a5c" alt="Random Meme" width="500"/>
+**Master Bruce tripped and broke his ass**  
+<img src="https://preview.redd.it/d44zwpxp72fg1.png?width=1080&crop=smart&auto=webp&s=3a3751b075837a3acb88de8a9c7117547d3a842e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
