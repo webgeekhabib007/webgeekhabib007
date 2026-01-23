@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The read that and call it peak fiction**  
-<img src="https://preview.redd.it/0aw6rik15xeg1.png?width=320&crop=smart&auto=webp&s=52e0989fdc3c0979f3d83cba017e6ccb8238b4ec" alt="Random Meme" width="500"/>
+**Why do they allow it**  
+<img src="https://preview.redd.it/lejr210slteg1.png?width=320&crop=smart&auto=webp&s=a7bca0ea1063511b7c7670e5410f4cfc50b485b7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
