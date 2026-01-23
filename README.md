@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Probably more in this economy**  
-<img src="https://preview.redd.it/y7adkm2wk4fg1.png?width=1080&crop=smart&auto=webp&s=949b83d10bf928eaba24bbbbc39ae274af655309" alt="Random Meme" width="500"/>
+**AI will help you with your homework, steal your job, then maybe cause human extinction**  
+<img src="https://preview.redd.it/9ik130rkxweg1.png?width=1080&crop=smart&auto=webp&s=69ffac9e47939baffb366d065b74fb1254cee7f6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
