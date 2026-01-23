@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm just a little pale**  
-<img src="https://preview.redd.it/p5ivf6amfxeg1.png?width=1080&crop=smart&auto=webp&s=b833349a81617cc0ca2030749519695c6d4f6402" alt="Random Meme" width="500"/>
+**Damn dawg, be quiet**  
+<img src="https://preview.redd.it/xo33jmdjv4fg1.png?width=1080&crop=smart&auto=webp&s=58c7d50dc014ddecf49e51027092ffd94b238668" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
