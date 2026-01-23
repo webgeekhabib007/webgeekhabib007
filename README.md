@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn dawg, be quiet**  
-<img src="https://preview.redd.it/xo33jmdjv4fg1.png?width=1080&crop=smart&auto=webp&s=58c7d50dc014ddecf49e51027092ffd94b238668" alt="Random Meme" width="500"/>
+**I’m thinking 10 steps ahead. Generational security is my passion.**  
+<img src="https://preview.redd.it/mgtkx033freg1.gif?width=640&crop=smart&format=png8&s=a3bf1eb7ec0f3ccf5468633dc4a289792379badc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
