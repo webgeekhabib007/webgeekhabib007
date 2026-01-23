@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/pkviz6ub4geg1.png?width=640&crop=smart&auto=webp&s=023f3ae883a1ab18e1dc1f2796fbd7f89cb9dbf5" alt="Random Meme" width="500"/>
+**The read that and call it peak fiction**  
+<img src="https://preview.redd.it/0aw6rik15xeg1.png?width=320&crop=smart&auto=webp&s=52e0989fdc3c0979f3d83cba017e6ccb8238b4ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
