@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why do they allow it**  
-<img src="https://preview.redd.it/lejr210slteg1.png?width=320&crop=smart&auto=webp&s=a7bca0ea1063511b7c7670e5410f4cfc50b485b7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/49cus6n1sveg1.png?width=1080&crop=smart&auto=webp&s=235732f1aee0eaadcac704ad0fcb9abc505b9a5c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
