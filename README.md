@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I’m thinking 10 steps ahead. Generational security is my passion.**  
-<img src="https://preview.redd.it/mgtkx033freg1.gif?width=640&crop=smart&format=png8&s=a3bf1eb7ec0f3ccf5468633dc4a289792379badc" alt="Random Meme" width="500"/>
+**Probably more in this economy**  
+<img src="https://preview.redd.it/y7adkm2wk4fg1.png?width=1080&crop=smart&auto=webp&s=949b83d10bf928eaba24bbbbc39ae274af655309" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
