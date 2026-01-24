@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Social media triggered**  
-<img src="https://preview.redd.it/knhvrnns66fg1.png?width=640&crop=smart&auto=webp&s=7323c68842d9245cefc102abfdff0d937f31a399" alt="Random Meme" width="500"/>
+**The old folks had it right all along...**  
+<img src="https://preview.redd.it/v26j3f55dzeg1.png?width=640&crop=smart&auto=webp&s=2dc50bee737b1bc43043cb0c51d5d965f80ad532" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
