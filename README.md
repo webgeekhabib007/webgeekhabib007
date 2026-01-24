@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn dawg, be quiet**  
-<img src="https://preview.redd.it/xo33jmdjv4fg1.png?width=1080&crop=smart&auto=webp&s=58c7d50dc014ddecf49e51027092ffd94b238668" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/l2w4iq7gdxeg1.png?width=1080&crop=smart&auto=webp&s=fdb5aca13388093ad3ce942c17a541c2ed9c519c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
