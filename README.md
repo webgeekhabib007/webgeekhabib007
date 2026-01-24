@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/675e2t4h72fg1.png?width=1080&crop=smart&auto=webp&s=793bab0aa9d0e0ff5ce29437d3dfbd662bc3463f" alt="Random Meme" width="500"/>
+**Those sales dinners are no joke**  
+<img src="https://preview.redd.it/ee5pvj7wa6fg1.png?width=960&crop=smart&auto=webp&s=4524e46549c1078cb952af1740435542360255ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
