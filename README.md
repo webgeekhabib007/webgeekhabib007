@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**AI will help you with your homework, steal your job, then maybe cause human extinction**  
-<img src="https://preview.redd.it/9ik130rkxweg1.png?width=1080&crop=smart&auto=webp&s=69ffac9e47939baffb366d065b74fb1254cee7f6" alt="Random Meme" width="500"/>
+**Damn dawg, be quiet**  
+<img src="https://preview.redd.it/xo33jmdjv4fg1.png?width=1080&crop=smart&auto=webp&s=58c7d50dc014ddecf49e51027092ffd94b238668" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
