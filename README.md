@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The old folks had it right all along...**  
-<img src="https://preview.redd.it/v26j3f55dzeg1.png?width=640&crop=smart&auto=webp&s=2dc50bee737b1bc43043cb0c51d5d965f80ad532" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/sm5vttonbzeg1.png?width=1080&crop=smart&auto=webp&s=3f3191c4cb5a2021b4fce2dd6930d4587e3962a5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
