@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**demogrify ur aurals**  
-<img src="https://preview.redd.it/qnqu8os265fg1.png?width=960&crop=smart&auto=webp&s=0daa10b0ae0ceb41993be30aa7c9d47e55288bf7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2gs6ctewfxeg1.png?width=1080&crop=smart&auto=webp&s=49c301ccdec4a58133318431fece6cfcdc65e4fd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
