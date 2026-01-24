@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Feeling au tistic today.**  
-<img src="https://preview.redd.it/nnek41ve6zeg1.png?width=1080&crop=smart&auto=webp&s=c54cd065dfb0a09a2ab93689c2d6d8f78b733c21" alt="Random Meme" width="500"/>
+**demogrify ur aurals**  
+<img src="https://preview.redd.it/qnqu8os265fg1.png?width=960&crop=smart&auto=webp&s=0daa10b0ae0ceb41993be30aa7c9d47e55288bf7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
