@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just say no to the snowpocalypse.**  
-<img src="https://preview.redd.it/jdrl8ya8rjfg1.png?width=640&crop=smart&auto=webp&s=70b7ef53d0a2e3108c5426eb043a8bf5c67dbf3a" alt="Random Meme" width="500"/>
+**Hate when that happens**  
+<img src="https://preview.redd.it/cjqyutushefg1.png?width=1080&crop=smart&auto=webp&s=6a83520f72c32c89088376aeb10e198049530229" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
