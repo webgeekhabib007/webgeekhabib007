@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"What kind of music do you listen to?"**  
-<img src="https://preview.redd.it/ekpn11fdzdfg1.png?width=1080&crop=smart&auto=webp&s=d0266f2da189a46179dbeb69935abc38326a8ab2" alt="Random Meme" width="500"/>
+**Just say no to the snowpocalypse.**  
+<img src="https://preview.redd.it/jdrl8ya8rjfg1.png?width=640&crop=smart&auto=webp&s=70b7ef53d0a2e3108c5426eb043a8bf5c67dbf3a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
