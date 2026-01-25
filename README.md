@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Haha, I'm in Danger!"**  
-<img src="https://preview.redd.it/8s7z0zyceleg1.png?width=640&crop=smart&auto=webp&s=3d101750d4aa9af68dd61aa1fef0d96ce8964c8a" alt="Random Meme" width="500"/>
+**Please MS, may I have some more slop?**  
+<img src="https://preview.redd.it/93ttpzyfxyeg1.png?width=320&crop=smart&auto=webp&s=ae7e0edc17bc19aaab5643e3003034378b71d70f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
