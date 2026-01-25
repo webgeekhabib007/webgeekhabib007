@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**it lasted 2 weeks....**  
-<img src="https://preview.redd.it/9y2knidazxeg1.png?width=960&crop=smart&auto=webp&s=cfd2907bb0c3d447da14af29e9bd97607a684dc8" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/l2w4iq7gdxeg1.png?width=1080&crop=smart&auto=webp&s=fdb5aca13388093ad3ce942c17a541c2ed9c519c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
