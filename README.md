@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hate when that happens**  
-<img src="https://preview.redd.it/cjqyutushefg1.png?width=1080&crop=smart&auto=webp&s=6a83520f72c32c89088376aeb10e198049530229" alt="Random Meme" width="500"/>
+**Fluent in Yappanese**  
+<img src="https://preview.redd.it/klnwy74hmbfg1.png?width=1080&crop=smart&auto=webp&s=9cf858c250570af715dc77ca0443522af3fc06ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
