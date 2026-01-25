@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sex 2 Electric Boogaloo**  
-<img src="https://preview.redd.it/nkrqujlsuffg1.png?width=320&crop=smart&auto=webp&s=419511fcf3aba38d221348330c8ad114139cfb99" alt="Random Meme" width="500"/>
+**demogrify ur aurals**  
+<img src="https://preview.redd.it/qnqu8os265fg1.png?width=960&crop=smart&auto=webp&s=0daa10b0ae0ceb41993be30aa7c9d47e55288bf7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
