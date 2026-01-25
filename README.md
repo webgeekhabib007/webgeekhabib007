@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**demogrify ur aurals**  
-<img src="https://preview.redd.it/qnqu8os265fg1.png?width=960&crop=smart&auto=webp&s=0daa10b0ae0ceb41993be30aa7c9d47e55288bf7" alt="Random Meme" width="500"/>
+**A debtor's prison title**  
+<img src="https://preview.redd.it/9gkvnbkgz7fg1.png?width=640&crop=smart&auto=webp&s=61ee575c220c322bd650373800c0d87ca4f55a36" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
