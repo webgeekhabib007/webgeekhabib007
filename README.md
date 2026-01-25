@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**+30% sales growth**  
-<img src="https://preview.redd.it/lzg6257qi4fg1.gif?width=320&crop=smart&format=png8&s=8d408a944bfe185e29c55a4164f6043546113ca9" alt="Random Meme" width="500"/>
+**Meme reset, anyone?**  
+<img src="https://preview.redd.it/zxi58hn6vffg1.png?width=1080&crop=smart&auto=webp&s=b973943aa4516ffb69e3cb1feab2769edf0c8a07" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
