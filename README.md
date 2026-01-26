@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't try and keep up with Superman at the bar... 3!**  
-<img src="https://preview.redd.it/vfusdj6naofg1.png?width=640&crop=smart&auto=webp&s=fd963d0ec0f6c8e3f146d39daf8a389c36a95cb7" alt="Random Meme" width="500"/>
+**Fuuuuuuck that would have gotten them off my dick**  
+<img src="https://preview.redd.it/6lrjzilk9rfg1.gif?width=640&crop=smart&format=png8&s=83ffa87d02570900d2f300c842ddc441cc04fd1b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
