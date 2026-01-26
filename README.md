@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is this where the title goes?**  
-<img src="https://preview.redd.it/7u4kezrgdlfg1.png?width=640&crop=smart&auto=webp&s=f74f4b9c24baeb111877026f4ed17c86b76d8511" alt="Random Meme" width="500"/>
+**My dad has a lesbian friend who everyone mistakes as his teenage Son. She’s like 30**  
+<img src="https://preview.redd.it/5ydphb6oqjfg1.gif?width=320&crop=smart&format=png8&s=b90a3f5cba4797ed89048f8783090412bd223ea7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
