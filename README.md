@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Read a thesaurus, you dumb kids!**  
-<img src="https://preview.redd.it/bf7hdomkccfg1.png?width=320&crop=smart&auto=webp&s=85f1c43d13eb0eee94dee9d05662c0935854e1b3" alt="Random Meme" width="500"/>
+**hearing the crunch is so painful**  
+<img src="https://preview.redd.it/pq6fhzi7xgfg1.png?width=960&crop=smart&auto=webp&s=f941c40326cebc2b7071d507529b58486e13c04e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
