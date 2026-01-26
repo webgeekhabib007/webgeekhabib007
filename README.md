@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The dumbest person you know is being told "You're absolutely right!" by ChatGPT**  
-<img src="https://preview.redd.it/ny0dxffkbbfg1.png?width=1080&crop=smart&auto=webp&s=c1cc26e657a94f38f19382b408b1a0d63c4263b7" alt="Random Meme" width="500"/>
+**Read a thesaurus, you dumb kids!**  
+<img src="https://preview.redd.it/bf7hdomkccfg1.png?width=320&crop=smart&auto=webp&s=85f1c43d13eb0eee94dee9d05662c0935854e1b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
