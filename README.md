@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**“Give me liberty or give me death” our founding fathers said. The people saying “fuck around and find out” are as patriotic as Benedict Arnold was. Remind me what happened in 1770 in Boston.**  
-<img src="https://preview.redd.it/qxnwe7jtulfg1.gif?width=640&crop=smart&format=png8&s=5306fc0fa864384c4b5e56f52f5cc2d7ba924586" alt="Random Meme" width="500"/>
+**Always the same story...**  
+<img src="https://preview.redd.it/ibmw85ljpgfg1.png?width=320&crop=smart&auto=webp&s=4fa26bec5994cc49d59b422018a48c6efbcd8483" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
