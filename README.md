@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fluent in Yappanese**  
-<img src="https://preview.redd.it/klnwy74hmbfg1.png?width=1080&crop=smart&auto=webp&s=9cf858c250570af715dc77ca0443522af3fc06ac" alt="Random Meme" width="500"/>
+**"What kind of music do you listen to?"**  
+<img src="https://preview.redd.it/ekpn11fdzdfg1.png?width=1080&crop=smart&auto=webp&s=d0266f2da189a46179dbeb69935abc38326a8ab2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
