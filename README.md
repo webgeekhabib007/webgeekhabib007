@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"What kind of music do you listen to?"**  
-<img src="https://preview.redd.it/ekpn11fdzdfg1.png?width=1080&crop=smart&auto=webp&s=d0266f2da189a46179dbeb69935abc38326a8ab2" alt="Random Meme" width="500"/>
+**“Give me liberty or give me death” our founding fathers said. The people saying “fuck around and find out” are as patriotic as Benedict Arnold was. Remind me what happened in 1770 in Boston.**  
+<img src="https://preview.redd.it/qxnwe7jtulfg1.gif?width=640&crop=smart&format=png8&s=5306fc0fa864384c4b5e56f52f5cc2d7ba924586" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
