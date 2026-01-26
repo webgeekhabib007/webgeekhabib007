@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**hearing the crunch is so painful**  
-<img src="https://preview.redd.it/pq6fhzi7xgfg1.png?width=960&crop=smart&auto=webp&s=f941c40326cebc2b7071d507529b58486e13c04e" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/25nbv1qocffg1.png?width=640&crop=smart&auto=webp&s=2de7ca112531bb61c78821d9ae651899a7458d53" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
