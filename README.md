@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/zgeja31mcifg1.png?width=1080&crop=smart&auto=webp&s=179d03ad3e23fccb8df476f01a97dabfcf0ad944" alt="Random Meme" width="500"/>
+**Don't try and keep up with Superman at the bar... 3!**  
+<img src="https://preview.redd.it/vfusdj6naofg1.png?width=640&crop=smart&auto=webp&s=fd963d0ec0f6c8e3f146d39daf8a389c36a95cb7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
