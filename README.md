@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Fuuuuuuck that would have gotten them off my dick**  
-<img src="https://preview.redd.it/6lrjzilk9rfg1.gif?width=640&crop=smart&format=png8&s=83ffa87d02570900d2f300c842ddc441cc04fd1b" alt="Random Meme" width="500"/>
+**"Asking for a friend, of course."**  
+<img src="https://preview.redd.it/fdiwto233qfg1.png?width=640&crop=smart&auto=webp&s=3b2cb54579a7caac9ba61dc500f360b87c8cbe8d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
