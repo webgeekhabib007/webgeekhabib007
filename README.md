@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mhmmm Cheesy**  
-<img src="https://preview.redd.it/4mudqo1oqsfg1.png?width=1080&crop=smart&auto=webp&s=ec9f7d398c416db817efee7fd31d6fcc66b46775" alt="Random Meme" width="500"/>
+**Just saw the movie**  
+<img src="https://preview.redd.it/wgq4ke84lrfg1.png?width=1080&crop=smart&auto=webp&s=318a3ec5d80c6f2475ebe2edfee8a66ca1df88c0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
