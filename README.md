@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Asking for a friend, of course."**  
-<img src="https://preview.redd.it/fdiwto233qfg1.png?width=640&crop=smart&auto=webp&s=3b2cb54579a7caac9ba61dc500f360b87c8cbe8d" alt="Random Meme" width="500"/>
+**"I can't get out!"**  
+<img src="https://preview.redd.it/77bl7gkeisfg1.png?width=640&crop=smart&auto=webp&s=3db2acf4dbb09ea04f9e9c10e1ad0b4b8f00a7d6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
