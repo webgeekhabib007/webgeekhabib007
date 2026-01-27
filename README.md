@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/pjq0rw0g6ufg1.png?width=1080&crop=smart&auto=webp&s=2abdafcce9cc0a4c74896b918c74d1be3f3fe4db" alt="Random Meme" width="500"/>
+**He would not go to the feeding grounds nor return to the colony.**  
+<img src="https://preview.redd.it/hjrhy4l1cwfg1.png?width=1080&crop=smart&auto=webp&s=8fe1915864f493b818f1bc14519687f251fabdab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
