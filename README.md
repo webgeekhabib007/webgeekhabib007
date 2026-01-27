@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/j7omx7qykrfg1.png?width=640&crop=smart&auto=webp&s=cf70642826217f363199006b063a3bbcfd4eebc6" alt="Random Meme" width="500"/>
+**Selena Gomez Reference, Anyone?**  
+<img src="https://preview.redd.it/5p7oe19jvjfg1.png?width=320&crop=smart&auto=webp&s=e389bfb0de51f35ff2ef832d0008a93a8f050320" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
