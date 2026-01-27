@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Take me with you**  
-<img src="https://preview.redd.it/hzg152wr5xfg1.png?width=640&crop=smart&auto=webp&s=030c754da971c1f2d64f73cfc309e5c4a71406d8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/awkr07ze0yfg1.png?width=1080&crop=smart&auto=webp&s=144393edcdd09086d89d2ff6e95b78c353f4f6ab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
