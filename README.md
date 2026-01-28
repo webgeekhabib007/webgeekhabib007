@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I truly do feel like a god when I play as Thor in Rivals.**  
-<img src="https://preview.redd.it/6z8usi7i9tfg1.gif?width=640&crop=smart&format=png8&s=d95f43c816c2502b6affcc4465ce3d21427e31ea" alt="Random Meme" width="500"/>
+**The great thing about AI is there are so many reasons to hate it.**  
+<img src="https://preview.redd.it/5b3l79qp1pfg1.png?width=1080&crop=smart&auto=webp&s=cd5b323723a207d0fc24e071be06d8d2fe4567f1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
