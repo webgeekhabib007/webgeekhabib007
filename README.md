@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What scares you most?**  
-<img src="https://preview.redd.it/t77oyg6othfg1.png?width=1080&crop=smart&auto=webp&s=1392df02205acf994f6eaa046afa5a23a8e1dfaa" alt="Random Meme" width="500"/>
+**Hate the realisation**  
+<img src="https://preview.redd.it/ygiwo5gkwefg1.png?width=320&crop=smart&auto=webp&s=c300f0152e0afa68709a543efc071920395d1bb4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
