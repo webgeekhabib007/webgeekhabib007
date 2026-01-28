@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/y0sd5lh3u0gg1.png?width=320&crop=smart&auto=webp&s=45cd58b9d287b5bc1c532480ed556a1ff3675f42" alt="Random Meme" width="500"/>
+**I guess they get more protein than the straight vegans.**  
+<img src="https://preview.redd.it/onr6c96211gg1.png?width=640&crop=smart&auto=webp&s=5e7c8af2b555d707f365e850131c138059377c47" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
