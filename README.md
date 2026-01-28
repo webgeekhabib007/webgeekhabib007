@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I guess they get more protein than the straight vegans.**  
-<img src="https://preview.redd.it/onr6c96211gg1.png?width=640&crop=smart&auto=webp&s=5e7c8af2b555d707f365e850131c138059377c47" alt="Random Meme" width="500"/>
+**Bonnie Blue look like she's already passing 40+, like damn**  
+<img src="https://preview.redd.it/l95esovyo5gg1.png?width=1080&crop=smart&auto=webp&s=39093729baa2a91244c14fb8b80d230adb5efbd6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
