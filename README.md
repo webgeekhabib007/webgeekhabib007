@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Look at all those unfunny people**  
-<img src="https://preview.redd.it/p1506cybxufg1.png?width=1080&crop=smart&auto=webp&s=9882e20da5675231c90af12abd5ac6139fa8affb" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/pjq0rw0g6ufg1.png?width=1080&crop=smart&auto=webp&s=2abdafcce9cc0a4c74896b918c74d1be3f3fe4db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
