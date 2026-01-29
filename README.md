@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Apparently I’m the only one here who knows how to do this**  
-<img src="https://preview.redd.it/6558yos0pxfg1.gif?width=640&crop=smart&format=png8&s=d4360675ecbddcceffe15d5c889de04b32746b7b" alt="Random Meme" width="500"/>
+**Waymo hates this trick**  
+<img src="https://preview.redd.it/66spp10asyfg1.gif?width=640&crop=smart&format=png8&s=0ede50c02ab9bb914b426f063f0d2e6b00d0de17" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
