@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**very diverse taste, indeed**  
-<img src="https://preview.redd.it/ek4wffktmxfg1.png?width=640&crop=smart&auto=webp&s=8ca5b6ddf8dbb14efa6eddb64e3ef8178bca9027" alt="Random Meme" width="500"/>
+**I got sick after eating the last one. Turns out it was expired**  
+<img src="https://preview.redd.it/2uld9c2cawfg1.gif?width=640&crop=smart&format=png8&s=3007b2c11f98a12d217a1ac2d5f1d03e59cf2c84" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
