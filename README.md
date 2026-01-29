@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**with the same teacher too**  
-<img src="https://preview.redd.it/fxavffdy74gg1.gif?width=640&crop=smart&format=png8&s=bcc891e031b7c6571fe67807e3def0b5b7b3ee87" alt="Random Meme" width="500"/>
+**Do you guys think he's angry?**  
+<img src="https://preview.redd.it/ddknjyqtspfg1.gif?width=320&crop=smart&format=png8&s=5e877043e3ffb126fc5b0f600e0cd357ef435389" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
