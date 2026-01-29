@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You know what? Put in a few lions, leopards and giraffes for the coolness factor**  
-<img src="https://preview.redd.it/m54ssoprgxfg1.gif?width=320&crop=smart&format=png8&s=eb3981cfccfd7409a3f372f7c439fa6514fb1d15" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xo60uv9w13gg1.png?width=1080&crop=smart&auto=webp&s=a2ad33e64ecc9247905551daec8781e3848fa572" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
