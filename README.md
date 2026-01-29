@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/4nvpq3rcy4gg1.png?width=640&crop=smart&auto=webp&s=e996f8ff29cb7ba2c4cf26b58323065448b10665" alt="Random Meme" width="500"/>
+**All Bow To Throg**  
+<img src="https://preview.redd.it/fkqgle1p76gg1.png?width=640&crop=smart&auto=webp&s=b27e6f4a79035304b5f1497ac70f827f4ec8771b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
