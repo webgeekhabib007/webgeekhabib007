@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Do you guys think he's angry?**  
-<img src="https://preview.redd.it/ddknjyqtspfg1.gif?width=320&crop=smart&format=png8&s=5e877043e3ffb126fc5b0f600e0cd357ef435389" alt="Random Meme" width="500"/>
+**very diverse taste, indeed**  
+<img src="https://preview.redd.it/ek4wffktmxfg1.png?width=640&crop=smart&auto=webp&s=8ca5b6ddf8dbb14efa6eddb64e3ef8178bca9027" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
