@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/77iyvkqpxyfg1.png?width=1080&crop=smart&auto=webp&s=479eed457a8dccfdf6be4b8690a56a3791e19e00" alt="Random Meme" width="500"/>
+**The era of Linux gaming**  
+<img src="https://preview.redd.it/1k7iny31nwfg1.png?width=640&crop=smart&auto=webp&s=64629dd738170b6859e90d42806b35fccbfd483d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
