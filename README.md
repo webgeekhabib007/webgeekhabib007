@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I got sick after eating the last one. Turns out it was expired**  
-<img src="https://preview.redd.it/2uld9c2cawfg1.gif?width=640&crop=smart&format=png8&s=3007b2c11f98a12d217a1ac2d5f1d03e59cf2c84" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5j8syv6f43gg1.png?width=640&crop=smart&auto=webp&s=e9941862978d9bf32644c4e5c17a5d8071205f8a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
