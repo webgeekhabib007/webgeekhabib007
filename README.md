@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The era of Linux gaming**  
-<img src="https://preview.redd.it/1k7iny31nwfg1.png?width=640&crop=smart&auto=webp&s=64629dd738170b6859e90d42806b35fccbfd483d" alt="Random Meme" width="500"/>
+**with the same teacher too**  
+<img src="https://preview.redd.it/fxavffdy74gg1.gif?width=640&crop=smart&format=png8&s=bcc891e031b7c6571fe67807e3def0b5b7b3ee87" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
