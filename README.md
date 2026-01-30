@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/9r8e5tx4tdgg1.png?width=1080&crop=smart&auto=webp&s=f2bcd7f6b99865f78cc937a728684fd6b73da5ee" alt="Random Meme" width="500"/>
+**Why the fuck do you bend down like that**  
+<img src="https://preview.redd.it/6bx23ezmf6gg1.gif?width=640&crop=smart&format=png8&s=71bd3d402d1fbc391806fbe1c173e2694f84364d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
