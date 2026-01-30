@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**choices, choices.. decisions, decisions...**  
-<img src="https://preview.redd.it/qpnx89uvvfgg1.png?width=320&crop=smart&auto=webp&s=e8be332fc7e94587cb3367310ac63a1c5cbc923a" alt="Random Meme" width="500"/>
+**Prepare Yourselves**  
+<img src="https://preview.redd.it/6qdp84g1ndgg1.png?width=960&crop=smart&auto=webp&s=816468b31543db5d3418b4b773f702d6a1e64c21" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
