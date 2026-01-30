@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**90% of ai is just misinformation now ):**  
-<img src="https://preview.redd.it/qwlq6ceoicgg1.png?width=320&crop=smart&auto=webp&s=52d7d2f657d92b1d272fbf665209cb56b26fff78" alt="Random Meme" width="500"/>
+**Oh...I get it now**  
+<img src="https://preview.redd.it/wbp20bh8a5gg1.png?width=640&crop=smart&auto=webp&s=c11693ef26a0c7b2c5190a4b68e0dfe6592d6daf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
