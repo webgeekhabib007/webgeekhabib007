@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/y44b1hh63egg1.png?width=1080&crop=smart&auto=webp&s=958d82c10612930c6854e2981563f74b1101225a" alt="Random Meme" width="500"/>
+**It's the same as GPT 3.**  
+<img src="https://preview.redd.it/x465a30ow4gg1.png?width=1080&crop=smart&auto=webp&s=707fe7163a408f637c3a58df3388319f110a00c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
