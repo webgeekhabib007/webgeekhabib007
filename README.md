@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh...I get it now**  
-<img src="https://preview.redd.it/wbp20bh8a5gg1.png?width=640&crop=smart&auto=webp&s=c11693ef26a0c7b2c5190a4b68e0dfe6592d6daf" alt="Random Meme" width="500"/>
+**Got it soldiers**  
+<img src="https://preview.redd.it/in8iy22ygfgg1.png?width=1080&crop=smart&auto=webp&s=5dcfd64c5635934df2ed40bc49ffab31ae001a42" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
