@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/0tsaq4ibpagg1.png?width=640&crop=smart&auto=webp&s=034e0de683a8868466b26822f0a2e6ee7449fd87" alt="Random Meme" width="500"/>
+**Grinch triggered**  
+<img src="https://preview.redd.it/g9hedjhrujgg1.png?width=640&crop=smart&auto=webp&s=a70c80383d605af1f34e9d3ed961d15721e26fa3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
