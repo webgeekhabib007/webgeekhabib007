@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Got it soldiers**  
-<img src="https://preview.redd.it/in8iy22ygfgg1.png?width=1080&crop=smart&auto=webp&s=5dcfd64c5635934df2ed40bc49ffab31ae001a42" alt="Random Meme" width="500"/>
+**90% of ai is just misinformation now ):**  
+<img src="https://preview.redd.it/qwlq6ceoicgg1.png?width=320&crop=smart&auto=webp&s=52d7d2f657d92b1d272fbf665209cb56b26fff78" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
