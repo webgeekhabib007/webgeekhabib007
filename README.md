@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Prepare Yourselves**  
-<img src="https://preview.redd.it/6qdp84g1ndgg1.png?width=960&crop=smart&auto=webp&s=816468b31543db5d3418b4b773f702d6a1e64c21" alt="Random Meme" width="500"/>
+**Fast food employees the second they hear my order.**  
+<img src="https://preview.redd.it/fbmo5go7m6gg1.png?width=640&crop=smart&auto=webp&s=f3b1702c5929965bed4e90863ffc87e30497f0b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
