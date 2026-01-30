@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Got it soldiers**  
-<img src="https://preview.redd.it/in8iy22ygfgg1.png?width=1080&crop=smart&auto=webp&s=5dcfd64c5635934df2ed40bc49ffab31ae001a42" alt="Random Meme" width="500"/>
+**choices, choices.. decisions, decisions...**  
+<img src="https://preview.redd.it/qpnx89uvvfgg1.png?width=320&crop=smart&auto=webp&s=e8be332fc7e94587cb3367310ac63a1c5cbc923a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
