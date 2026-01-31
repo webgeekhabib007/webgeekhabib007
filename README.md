@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**same teacher too**  
-<img src="https://preview.redd.it/3a418kp184gg1.gif?width=640&crop=smart&format=png8&s=3f8949dc5f26a38e5c15f787d0fb02f5bcd325a6" alt="Random Meme" width="500"/>
+**I knew he had a punchable face for a reason wooooo**  
+<img src="https://preview.redd.it/n1ald0iyszfg1.gif?width=640&crop=smart&format=png8&s=faaeafb3ae02b5d0344abdae14344331e548bc53" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
