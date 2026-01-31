@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Scaramouche scaramouche**  
-<img src="https://preview.redd.it/pun218x67pgg1.png?width=640&crop=smart&auto=webp&s=dda579bd1aaed507ef316b7b64dc54e031ba0a47" alt="Random Meme" width="500"/>
+**I knew he had a punchable face for a reason wooooo**  
+<img src="https://preview.redd.it/n1ald0iyszfg1.gif?width=640&crop=smart&format=png8&s=faaeafb3ae02b5d0344abdae14344331e548bc53" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
