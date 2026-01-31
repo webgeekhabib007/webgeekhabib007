@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I knew he had a punchable face for a reason wooooo**  
-<img src="https://preview.redd.it/n1ald0iyszfg1.gif?width=640&crop=smart&format=png8&s=faaeafb3ae02b5d0344abdae14344331e548bc53" alt="Random Meme" width="500"/>
+**Definitely not based on real world scenarios.**  
+<img src="https://preview.redd.it/6gr8kpbqcqgg1.png?width=320&crop=smart&auto=webp&s=55bfab68005f1247eb6ff458b5d2afba317eee46" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
