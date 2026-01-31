@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i think that was a sign for him and me, i guess**  
-<img src="https://preview.redd.it/wydeyq8gg9gg1.png?width=640&crop=smart&auto=webp&s=2a1d5326a58257da75b7fce1942c0750b43cdc51" alt="Random Meme" width="500"/>
+**return to monke**  
+<img src="https://preview.redd.it/2337v06w4agg1.gif?width=640&crop=smart&format=png8&s=fee0f7c8d707da0cb42917228bc8fb3d8abd3269" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
