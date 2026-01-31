@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Trust me bro**  
-<img src="https://preview.redd.it/amgtjwp6mcgg1.gif?width=320&crop=smart&format=png8&s=3715eb7a350194d9f52cde375a5995bc697de86c" alt="Random Meme" width="500"/>
+**same teacher too**  
+<img src="https://preview.redd.it/3a418kp184gg1.gif?width=640&crop=smart&format=png8&s=3f8949dc5f26a38e5c15f787d0fb02f5bcd325a6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
