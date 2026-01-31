@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**return to monke**  
-<img src="https://preview.redd.it/2337v06w4agg1.gif?width=640&crop=smart&format=png8&s=fee0f7c8d707da0cb42917228bc8fb3d8abd3269" alt="Random Meme" width="500"/>
+**Good memories**  
+<img src="https://preview.redd.it/s5sfxrot4lgg1.gif?width=320&crop=smart&format=png8&s=660fa8adbead21f2f32c0ef29bb48110777185a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
