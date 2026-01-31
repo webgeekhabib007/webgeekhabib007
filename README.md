@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Good memories**  
-<img src="https://preview.redd.it/s5sfxrot4lgg1.gif?width=320&crop=smart&format=png8&s=660fa8adbead21f2f32c0ef29bb48110777185a4" alt="Random Meme" width="500"/>
+**not everything needs your damn categories**  
+<img src="https://preview.redd.it/xpwgihkge8gg1.png?width=960&crop=smart&auto=webp&s=681ba7c835d0d11040da985b01a74a07ff6001c9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
