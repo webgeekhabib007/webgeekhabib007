@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**nerdy container joke**  
-<img src="https://preview.redd.it/fbnd0td5eggg1.png?width=320&crop=smart&auto=webp&s=e4acc598ce67ac773c61f64dd92571d85991dd1f" alt="Random Meme" width="500"/>
+**i think that was a sign for him and me, i guess**  
+<img src="https://preview.redd.it/wydeyq8gg9gg1.png?width=640&crop=smart&auto=webp&s=2a1d5326a58257da75b7fce1942c0750b43cdc51" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
