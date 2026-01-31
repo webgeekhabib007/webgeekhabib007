@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**not everything needs your damn categories**  
-<img src="https://preview.redd.it/xpwgihkge8gg1.png?width=960&crop=smart&auto=webp&s=681ba7c835d0d11040da985b01a74a07ff6001c9" alt="Random Meme" width="500"/>
+**Scaramouche scaramouche**  
+<img src="https://preview.redd.it/pun218x67pgg1.png?width=640&crop=smart&auto=webp&s=dda579bd1aaed507ef316b7b64dc54e031ba0a47" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
