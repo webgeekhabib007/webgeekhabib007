@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If not freedom, why freedom shaped?**  
-<img src="https://preview.redd.it/hznt6bwmhegg1.png?width=320&crop=smart&auto=webp&s=03ce8e91758b90bcd1b0858c74c7509c67080283" alt="Random Meme" width="500"/>
+**Good memories**  
+<img src="https://preview.redd.it/s5sfxrot4lgg1.gif?width=320&crop=smart&format=png8&s=660fa8adbead21f2f32c0ef29bb48110777185a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
