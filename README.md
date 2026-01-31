@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What's another year?**  
-<img src="https://preview.redd.it/awiqvge5xcgg1.png?width=320&crop=smart&auto=webp&s=e5ff3b4333c5326d0c34e6afb6f785890a23fa01" alt="Random Meme" width="500"/>
+**And we love them for it.**  
+<img src="https://preview.redd.it/j9sqysjdlogg1.png?width=640&crop=smart&auto=webp&s=0504a7eda63047438b79e719002dc0d375f9d8ca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
