@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Martin and the boys are back in town.**  
-<img src="https://preview.redd.it/4myq6bgf2ygg1.gif?width=320&crop=smart&format=png8&s=c1ceb099da52d291b83f4ed8201f232171da5dc0" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/t2co4ebfftgg1.png?width=640&crop=smart&auto=webp&s=5bd1df96f2ca367a3bd1d60e73f48bbba629f8fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
