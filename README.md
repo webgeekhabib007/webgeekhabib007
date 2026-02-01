@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Uppies Uppies Uppies! [OC]**  
-<img src="https://preview.redd.it/l2wgeptacwgg1.gif?width=640&crop=smart&format=png8&s=6e360a69608f16fd5b3c7cdcd9303b061785e531" alt="Random Meme" width="500"/>
+**Martin and the boys are back in town.**  
+<img src="https://preview.redd.it/4myq6bgf2ygg1.gif?width=320&crop=smart&format=png8&s=c1ceb099da52d291b83f4ed8201f232171da5dc0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
