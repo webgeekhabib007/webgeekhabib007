@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Definitely not based on real world scenarios.**  
-<img src="https://preview.redd.it/6gr8kpbqcqgg1.png?width=320&crop=smart&auto=webp&s=55bfab68005f1247eb6ff458b5d2afba317eee46" alt="Random Meme" width="500"/>
+**True story**  
+<img src="https://preview.redd.it/oxyw0sfa7rgg1.png?width=1080&crop=smart&auto=webp&s=0fdc077722d4235e1c4c059d15f1d3f022d18ef5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
