@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nights owls rise up**  
-<img src="https://preview.redd.it/0d6x2ievasgg1.png?width=1080&crop=smart&auto=webp&s=0e328492316a1657790a17b5013b0ab4c22d09b0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/zxfadmnz1ugg1.png?width=320&crop=smart&auto=webp&s=b3ff8598872311410f07db0b04f1a22d0f6ecc17" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
