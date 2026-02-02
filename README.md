@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Scorned at dusk, headlined by dawn.**  
-<img src="https://preview.redd.it/56t23pgti2hg1.png?width=1080&crop=smart&auto=webp&s=b28e94f5de79b3b6614094fe006695d4da254f66" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/yodt7wglvwgg1.png?width=320&crop=smart&auto=webp&s=63220a06f3d6e42e41e4204ac78939a7dd1ba73f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
