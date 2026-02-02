@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mosquitos watch out**  
-<img src="https://preview.redd.it/dglsftshmcgg1.gif?width=640&crop=smart&format=png8&s=d55848bed3da211817f731d47d2e179a986b3d07" alt="Random Meme" width="500"/>
+**somehow that's even more pathetic than just being there**  
+<img src="https://preview.redd.it/whnn09l0uvgg1.png?width=1080&crop=smart&auto=webp&s=a1ee52e12d08b20ac7f004ec3c11ea3f9e2c89df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
