@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Get out! Get ouuuuuuut!!!"**  
-<img src="https://preview.redd.it/0pivrv3a6ugg1.png?width=640&crop=smart&auto=webp&s=eee5a5726b8c7da163917b093228c370f3913c87" alt="Random Meme" width="500"/>
+**Mosquitos watch out**  
+<img src="https://preview.redd.it/dglsftshmcgg1.gif?width=640&crop=smart&format=png8&s=d55848bed3da211817f731d47d2e179a986b3d07" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
