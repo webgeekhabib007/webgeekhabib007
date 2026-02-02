@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Get out! Get ouuuuuuut!!!"**  
-<img src="https://preview.redd.it/0pivrv3a6ugg1.png?width=640&crop=smart&auto=webp&s=eee5a5726b8c7da163917b093228c370f3913c87" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/bz4p4645wwgg1.png?width=1080&crop=smart&auto=webp&s=0e26ce6e3963829c602798548396b02801efe207" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
