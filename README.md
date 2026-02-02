@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**good times right here**  
-<img src="https://preview.redd.it/vncea90pyugg1.png?width=320&crop=smart&auto=webp&s=5fe7d36b0e6066ba14a73ce6fb8ac431c67e533f" alt="Random Meme" width="500"/>
+**Everyone needs to go see Iron Lung**  
+<img src="https://preview.redd.it/l0rtc142n1hg1.png?width=1080&crop=smart&auto=webp&s=e70f07b09200ad3974707a59cf54e31dcec5ca81" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
