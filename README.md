@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**somehow that's even more pathetic than just being there**  
-<img src="https://preview.redd.it/whnn09l0uvgg1.png?width=1080&crop=smart&auto=webp&s=a1ee52e12d08b20ac7f004ec3c11ea3f9e2c89df" alt="Random Meme" width="500"/>
+**Scorned at dusk, headlined by dawn.**  
+<img src="https://preview.redd.it/56t23pgti2hg1.png?width=1080&crop=smart&auto=webp&s=b28e94f5de79b3b6614094fe006695d4da254f66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
