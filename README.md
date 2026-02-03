@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's gonna be a long and veiny trip**  
-<img src="https://preview.redd.it/ez3aqq538rgg1.png?width=960&crop=smart&auto=webp&s=f8acc6e4fae64a0f3f4ad7dc20a77654cd83f7c5" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/uhsh9xxqkugg1.gif?width=320&crop=smart&format=png8&s=e854e1d9b2bd4e65882262c147aa9f83a851b714" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
