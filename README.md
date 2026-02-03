@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pie chart of my life**  
-<img src="https://preview.redd.it/v1rplc4yhpgg1.png?width=1080&crop=smart&auto=webp&s=b86f899dcc69806bd4e69284d8e986e7fdaf022a" alt="Random Meme" width="500"/>
+**It’s not smurfing it’s getting deranked because all my teammates decided it be funny to jump off the cliff in the last game 20 times in a row. I’m truly the god of thunder in rivals**  
+<img src="https://preview.redd.it/4848hu6gtzgg1.gif?width=640&crop=smart&format=png8&s=ab584335d9e935d6802bb31c321531da76c4aa91" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
