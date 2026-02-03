@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Everyone needs to go see Iron Lung**  
-<img src="https://preview.redd.it/l0rtc142n1hg1.png?width=1080&crop=smart&auto=webp&s=e70f07b09200ad3974707a59cf54e31dcec5ca81" alt="Random Meme" width="500"/>
+**It's gonna be a long and veiny trip**  
+<img src="https://preview.redd.it/ez3aqq538rgg1.png?width=960&crop=smart&auto=webp&s=f8acc6e4fae64a0f3f4ad7dc20a77654cd83f7c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
