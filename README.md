@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Self-control after one bite of that sweet**  
-<img src="https://preview.redd.it/pjjc73sr74hg1.png?width=640&crop=smart&auto=webp&s=0cd824eeccc6ad0b182b5db489a0c7e0214ff66f" alt="Random Meme" width="500"/>
+**Pie chart of my life**  
+<img src="https://preview.redd.it/v1rplc4yhpgg1.png?width=1080&crop=smart&auto=webp&s=b86f899dcc69806bd4e69284d8e986e7fdaf022a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
