@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anyway, We manage to escape the january of 2026. That is a succes**  
-<img src="https://preview.redd.it/goaykl1hw5hg1.png?width=640&crop=smart&auto=webp&s=4b4c4fe0824f87043fd4de82a6d2a829af7126ff" alt="Random Meme" width="500"/>
+**we're next**  
+<img src="https://external-preview.redd.it/BK3EogJHVRhn67kZW0Rtt7OaKBT50qR0QS2xN7j01po.gif?width=320&crop=smart&format=png8&s=516d555c5f98d5fd087960e12715b2c5985175c9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
