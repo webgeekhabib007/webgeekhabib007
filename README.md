@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And they had the audacity to throw me out afterwards!**  
-<img src="https://preview.redd.it/nep62s2oachg1.png?width=640&crop=smart&auto=webp&s=ee36a92920de7b57d50113a52855d8e8e946e6b9" alt="Random Meme" width="500"/>
+**Does this also happen to you?**  
+<img src="https://preview.redd.it/9u6hd71s2ihg1.png?width=320&crop=smart&auto=webp&s=66f8e8b0c2f2a67d7419df2f26b0e07b45227364" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
