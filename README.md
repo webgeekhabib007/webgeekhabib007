@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I could have been in 2014 instead of 2026, and it is my fault.**  
-<img src="https://preview.redd.it/2trjx0486ahg1.png?width=320&crop=smart&auto=webp&s=7d52951cbcf88ba50ad1cbe13be986ecb8e365a4" alt="Random Meme" width="500"/>
+**Anyway, We manage to escape the january of 2026. That is a succes**  
+<img src="https://preview.redd.it/goaykl1hw5hg1.png?width=640&crop=smart&auto=webp&s=4b4c4fe0824f87043fd4de82a6d2a829af7126ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
