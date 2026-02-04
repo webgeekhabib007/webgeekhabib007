@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Does this also happen to you?**  
-<img src="https://preview.redd.it/9u6hd71s2ihg1.png?width=320&crop=smart&auto=webp&s=66f8e8b0c2f2a67d7419df2f26b0e07b45227364" alt="Random Meme" width="500"/>
+**ay caramba**  
+<img src="https://preview.redd.it/26k4zszg3ihg1.png?width=640&crop=smart&auto=webp&s=18f4cc08e21dd5873c2afd236730aa50cbbc39f9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
