@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/pu9jm8hez2hg1.png?width=1080&crop=smart&auto=webp&s=2bfae49bfbb8d9ee4a9a34e90593bcaeaf198a88" alt="Random Meme" width="500"/>
+**Girls and boys preparing for their Valentine's Day**  
+<img src="https://preview.redd.it/5maqpn27kehg1.png?width=640&crop=smart&auto=webp&s=0e2de6f5e9dd139f67b65cdf5199ba68e40bd3d3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
