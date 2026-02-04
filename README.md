@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Girls and boys preparing for their Valentine's Day**  
-<img src="https://preview.redd.it/5maqpn27kehg1.png?width=640&crop=smart&auto=webp&s=0e2de6f5e9dd139f67b65cdf5199ba68e40bd3d3" alt="Random Meme" width="500"/>
+**And they had the audacity to throw me out afterwards!**  
+<img src="https://preview.redd.it/nep62s2oachg1.png?width=640&crop=smart&auto=webp&s=ee36a92920de7b57d50113a52855d8e8e946e6b9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
