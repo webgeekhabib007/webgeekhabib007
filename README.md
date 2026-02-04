@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**upvotes declined. activating girl mode**  
-<img src="https://preview.redd.it/lo9x9zch46hg1.png?width=1080&crop=smart&auto=webp&s=bf63fed73883b88092a98b41febcc85c5f38880b" alt="Random Meme" width="500"/>
+**He did nazi that coming**  
+<img src="https://preview.redd.it/c9y6g42bergg1.gif?width=640&crop=smart&format=png8&s=4e963cb93d4e3b0cfb6754600edaa455db00f3fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
