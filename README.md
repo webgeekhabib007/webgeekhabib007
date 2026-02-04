@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ockj109abvgg1.png?width=1080&crop=smart&auto=webp&s=c3c3af8e936c9aef80b8bb76b14b81bd26140e20" alt="Random Meme" width="500"/>
+**I could have been in 2014 instead of 2026, and it is my fault.**  
+<img src="https://preview.redd.it/2trjx0486ahg1.png?width=320&crop=smart&auto=webp&s=7d52951cbcf88ba50ad1cbe13be986ecb8e365a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
