@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He did nazi that coming**  
-<img src="https://preview.redd.it/c9y6g42bergg1.gif?width=640&crop=smart&format=png8&s=4e963cb93d4e3b0cfb6754600edaa455db00f3fc" alt="Random Meme" width="500"/>
+**I could have been in 2014 instead of 2026, and it is my fault.**  
+<img src="https://preview.redd.it/2trjx0486ahg1.png?width=320&crop=smart&auto=webp&s=7d52951cbcf88ba50ad1cbe13be986ecb8e365a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
