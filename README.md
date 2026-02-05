@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Very Interesting Timing**  
-<img src="https://preview.redd.it/5h9o6trntihg1.png?width=1080&crop=smart&auto=webp&s=13ae949aee7fef9b69c7deb3ffdc861902f70575" alt="Random Meme" width="500"/>
+**That...THAT is the one thing I fear most**  
+<img src="https://preview.redd.it/uhjkh8b989hg1.png?width=640&crop=smart&auto=webp&s=1d339992449b5b5f5cc27d1f95470642daaef92c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
