@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If you have a passion and an idea, go for it.**  
-<img src="https://preview.redd.it/4n938soazjhg1.png?width=1080&crop=smart&auto=webp&s=2bd04f8c2a3f591547c16bb3b03f485cb9edf0ad" alt="Random Meme" width="500"/>
+**toxic masculinity fan vs positive masculinity enjoyer**  
+<img src="https://preview.redd.it/p9bbemxg3ghg1.png?width=1080&crop=smart&auto=webp&s=4d38c3dd72998618b566dfb1d0c41e4d0a5b4928" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
