@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pay to Work**  
-<img src="https://preview.redd.it/an3a3b5o63hg1.png?width=960&crop=smart&auto=webp&s=ad19a51728f266e62d7699fdf8972e1785c7ab1d" alt="Random Meme" width="500"/>
+**If you have a passion and an idea, go for it.**  
+<img src="https://preview.redd.it/4n938soazjhg1.png?width=1080&crop=smart&auto=webp&s=2bd04f8c2a3f591547c16bb3b03f485cb9edf0ad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
