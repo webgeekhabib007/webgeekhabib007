@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Productivity gurus are built different**  
-<img src="https://preview.redd.it/uzvs4sn1cdhg1.png?width=1080&crop=smart&auto=webp&s=4aaea48812e1c2dc6b53b596702fec17efc51e9f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/7vmjqcm01lhg1.png?width=320&crop=smart&auto=webp&s=8ad30a89bcbc32ad79acd2102b3d9fdc24d7a85f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
