@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Top 10 Anime Betrayals**  
-<img src="https://preview.redd.it/bgcipq5g5phg1.gif?width=640&crop=smart&format=png8&s=03da54e6733858a8398347231d5107fa44ee9e5e" alt="Random Meme" width="500"/>
+**Technically the truth**  
+<img src="https://preview.redd.it/dburktev8chg1.png?width=1080&crop=smart&auto=webp&s=03c14585f110df63141b4d5dc0f4aec55ee893bb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
