@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It do be like that**  
-<img src="https://preview.redd.it/y2ho64jfcahg1.png?width=320&crop=smart&auto=webp&s=e40dd289524ba3a83de72a849dfa765e4a34a3db" alt="Random Meme" width="500"/>
+**Can't spell unpopular without popular!**  
+<img src="https://preview.redd.it/8k0c237jfkhg1.png?width=320&crop=smart&auto=webp&s=8736daf00c0a95f3e76c738421f9c94fb3a3ae92" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
