@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sometimes I can't even enjoy Sunday...**  
-<img src="https://preview.redd.it/0rmnv7i51mhg1.png?width=320&crop=smart&auto=webp&s=0cf406bb9287a64d803dadcf58f1ade319f33a98" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ooo50gk105hg1.png?width=1080&crop=smart&auto=webp&s=fd531079a00e18b0af72ba9d8f706989c73071d8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
