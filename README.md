@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Literally situation rn 😂**  
-<img src="https://preview.redd.it/cqcgbe592vhg1.png?width=1080&crop=smart&auto=webp&s=49eccf04a6d8f87ee0a6b1f147983136555932c5" alt="Random Meme" width="500"/>
+**I should buy a boat.**  
+<img src="https://preview.redd.it/n74zw73gkshg1.gif?width=640&crop=smart&format=png8&s=9d24af38f9a050d503dbbf9bd44e32d5ae2a0d0f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
