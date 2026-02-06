@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He beckons**  
-<img src="https://preview.redd.it/gz427734lahg1.gif?width=320&crop=smart&format=png8&s=56b66f5e46a87fb620aa9cae4c969e21b9b35424" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/1y23crcbiqhg1.png?width=1080&crop=smart&auto=webp&s=6513d5b923bbed1d96d4274518bedfebbe008ab3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
