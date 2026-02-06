@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I swear they are a memetic hazard at this point**  
-<img src="https://preview.redd.it/vcv29ywavhhg1.gif?width=640&crop=smart&format=png8&s=da3afdf4932865d59fea51d19a19860631f91d64" alt="Random Meme" width="500"/>
+**Don't believe it, no matter how convincing or sad**  
+<img src="https://preview.redd.it/8rqf5illpkhg1.png?width=1080&crop=smart&auto=webp&s=f8e775fc03d7358e0bd6062d4639b680cae12ea8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
