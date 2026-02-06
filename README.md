@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/p36v8olinjhg1.png?width=1080&crop=smart&auto=webp&s=61b68901d3d2c181bf4b3dffdcf5a5c0ba7a0fbe" alt="Random Meme" width="500"/>
+**Poor MJF just wanted to grapple**  
+<img src="https://preview.redd.it/df2m38v1hrhg1.png?width=320&crop=smart&auto=webp&s=37b5084457dcc6de15e856ea2e0e379caf5e47c2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
