@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sometimes you just need a bit of patience**  
-<img src="https://preview.redd.it/nb3x4r5gxxhg1.gif?width=640&crop=smart&format=png8&s=92ee354b30a8e79597042ad9bc3ec164e3ba145d" alt="Random Meme" width="500"/>
+**Applying for a job in 2028**  
+<img src="https://preview.redd.it/8fwhbvjxejhg1.png?width=960&crop=smart&auto=webp&s=d8ce05fe820aec74f643deb093b48c01a696344c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
