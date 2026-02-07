@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hawking robot radio voice: "Push me, and then don't touch me, till i can get my, satisfaction.."**  
-<img src="https://preview.redd.it/hz1irazlzohg1.png?width=960&crop=smart&auto=webp&s=c2564ff0faaf9011ebe70766c192d2af34379429" alt="Random Meme" width="500"/>
+**Watch out folks, hide your search bars**  
+<img src="https://preview.redd.it/ioyjlda6k0ig1.png?width=320&crop=smart&auto=webp&s=ae2e236a35d55de7c9d03477c679777f2bbe0668" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
