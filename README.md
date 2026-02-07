@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Once a hero always a hero**  
-<img src="https://preview.redd.it/7f3l5yaw6hhg1.png?width=960&crop=smart&auto=webp&s=eefcf52d418302d25d200e2ca5a0d4b60cc2c0cc" alt="Random Meme" width="500"/>
+**Don't go to the DoJ Website**  
+<img src="https://preview.redd.it/bhe1juhm8chg1.png?width=960&crop=smart&auto=webp&s=7ea73b716d1f6abd07b6fdde20fda80dbaa5e80a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
