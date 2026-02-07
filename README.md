@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Applying for a job in 2028**  
-<img src="https://preview.redd.it/8fwhbvjxejhg1.png?width=960&crop=smart&auto=webp&s=d8ce05fe820aec74f643deb093b48c01a696344c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/u59zkenqn3ig1.png?width=640&crop=smart&auto=webp&s=7f4547346bd0113ac590d447a707e54b9871c2c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
