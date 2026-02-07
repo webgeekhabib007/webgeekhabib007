@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Apparently I have a form of Dacryphilia. Don’t know what to do with this information because it means I weirdly find it cute and attractive when someone cries.**  
-<img src="https://preview.redd.it/nav7w61jxlhg1.gif?width=640&crop=smart&format=png8&s=df2f26b74a8e6e200a30ba1f51fda127a60870ae" alt="Random Meme" width="500"/>
+**base44**  
+<img src="https://preview.redd.it/5rdivdnn2phg1.png?width=320&crop=smart&auto=webp&s=adb6a44424a0b68ee410bb8195112b524e06f9ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
