@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Time flies fast**  
-<img src="https://preview.redd.it/ylyfcrv5xvhg1.png?width=320&crop=smart&auto=webp&s=c48b410e7ad258197ad190f2ffe15cd0fb313e08" alt="Random Meme" width="500"/>
+**420 Millon Epstein files later...**  
+<img src="https://preview.redd.it/xr1n9x62ofhg1.gif?width=320&crop=smart&format=png8&s=61fbabd158878960911ca38ce4fd4f90a19ef07e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
