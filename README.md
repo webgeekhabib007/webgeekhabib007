@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't go to the DoJ Website**  
-<img src="https://preview.redd.it/bhe1juhm8chg1.png?width=960&crop=smart&auto=webp&s=7ea73b716d1f6abd07b6fdde20fda80dbaa5e80a" alt="Random Meme" width="500"/>
+**Gamestonk-ed**  
+<img src="https://preview.redd.it/5lcg5h18bhhg1.gif?width=320&crop=smart&format=png8&s=01334e78d9d43cfe204233e67c7d25ed963fe7b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
