@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How it Feels These Past Few Days**  
-<img src="https://preview.redd.it/c6h3ftix69hg1.png?width=960&crop=smart&auto=webp&s=e3e3c1c6cdf027e24f2323c9e4d83fe82b1f06b0" alt="Random Meme" width="500"/>
+**Apparently I have a form of Dacryphilia. Don’t know what to do with this information because it means I weirdly find it cute and attractive when someone cries.**  
+<img src="https://preview.redd.it/nav7w61jxlhg1.gif?width=640&crop=smart&format=png8&s=df2f26b74a8e6e200a30ba1f51fda127a60870ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
