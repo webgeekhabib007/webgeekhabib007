@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**420 Millon Epstein files later...**  
-<img src="https://preview.redd.it/xr1n9x62ofhg1.gif?width=320&crop=smart&format=png8&s=61fbabd158878960911ca38ce4fd4f90a19ef07e" alt="Random Meme" width="500"/>
+**Watch out folks, hide your search bars**  
+<img src="https://preview.redd.it/ioyjlda6k0ig1.png?width=320&crop=smart&auto=webp&s=ae2e236a35d55de7c9d03477c679777f2bbe0668" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
