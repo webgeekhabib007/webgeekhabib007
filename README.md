@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gamestonk-ed**  
-<img src="https://preview.redd.it/5lcg5h18bhhg1.gif?width=320&crop=smart&format=png8&s=01334e78d9d43cfe204233e67c7d25ed963fe7b0" alt="Random Meme" width="500"/>
+**Time flies fast**  
+<img src="https://preview.redd.it/ylyfcrv5xvhg1.png?width=320&crop=smart&auto=webp&s=c48b410e7ad258197ad190f2ffe15cd0fb313e08" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
