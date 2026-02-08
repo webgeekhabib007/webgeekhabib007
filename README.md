@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**AI Judgement**  
-<img src="https://preview.redd.it/y46sf6rtknhg1.png?width=1080&crop=smart&auto=webp&s=6525933581275dbe80adaebe5743bf509002dc52" alt="Random Meme" width="500"/>
+**Don't believe it, no matter how convincing or sad**  
+<img src="https://preview.redd.it/8rqf5illpkhg1.png?width=1080&crop=smart&auto=webp&s=f8e775fc03d7358e0bd6062d4639b680cae12ea8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
