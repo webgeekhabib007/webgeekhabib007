@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ykcky1djs9ig1.png?width=1080&crop=smart&auto=webp&s=df225b9bc194c445020aa982263e756764b1f67e" alt="Random Meme" width="500"/>
+**✨Willful Ignorance✨**  
+<img src="https://preview.redd.it/9a6z1arbccig1.png?width=640&crop=smart&auto=webp&s=f6eff6be7fea42d5ae483f3c3cb5b7e548cd06a0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
