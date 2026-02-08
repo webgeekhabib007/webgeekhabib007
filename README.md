@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't believe it, no matter how convincing or sad**  
-<img src="https://preview.redd.it/8rqf5illpkhg1.png?width=1080&crop=smart&auto=webp&s=f8e775fc03d7358e0bd6062d4639b680cae12ea8" alt="Random Meme" width="500"/>
+**The Tapatio bottle being half full gave it away**  
+<img src="https://preview.redd.it/bntpcs78v4ig1.gif?width=640&crop=smart&format=png8&s=8ddfc4c6d8d5a060d2e9109c780a595ec19f2d62" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
