@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**100 men vs gorilla , easy W for the men . 100 men vs 1 tiger , easy W for the men ... But this**  
-<img src="https://preview.redd.it/pmjvtp4288ig1.png?width=640&crop=smart&auto=webp&s=49257c3d4ffeae262b8838c814bbf48e5c2c3a01" alt="Random Meme" width="500"/>
+**outside may be overrated**  
+<img src="https://preview.redd.it/0g4rnjl023ig1.png?width=640&crop=smart&auto=webp&s=e36816dc7c6088ea45ce67d6588cf0eb8f07d98c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
