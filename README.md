@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Tapatio bottle being half full gave it away**  
-<img src="https://preview.redd.it/bntpcs78v4ig1.gif?width=640&crop=smart&format=png8&s=8ddfc4c6d8d5a060d2e9109c780a595ec19f2d62" alt="Random Meme" width="500"/>
+**100 men vs gorilla , easy W for the men . 100 men vs 1 tiger , easy W for the men ... But this**  
+<img src="https://preview.redd.it/pmjvtp4288ig1.png?width=640&crop=smart&auto=webp&s=49257c3d4ffeae262b8838c814bbf48e5c2c3a01" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
