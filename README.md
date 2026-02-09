@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Right meow**  
-<img src="https://preview.redd.it/7i4npm2y53ig1.gif?width=320&crop=smart&format=png8&s=7d3c8ca84e3af9caa2e4fbe69fb66dc9e297e22d" alt="Random Meme" width="500"/>
+**Literally Everyone**  
+<img src="https://preview.redd.it/6m7rnyzz6eig1.png?width=1080&crop=smart&auto=webp&s=a3cf4165e65b073426dc06e3af25781e2f2cddc3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
