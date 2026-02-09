@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/u8kxwy9w0gig1.png?width=1080&crop=smart&auto=webp&s=0d534b7487c3cfb1142ffc08a2cad61c3b1ceb08" alt="Random Meme" width="500"/>
+**Cuz that is the full form of the contraction yknow**  
+<img src="https://preview.redd.it/6odkdsvxdgig1.png?width=640&crop=smart&auto=webp&s=46fe305818333b5923e4033622d0ba6d49b9e52f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
