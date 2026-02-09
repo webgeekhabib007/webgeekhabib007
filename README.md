@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Cuz that is the full form of the contraction yknow**  
-<img src="https://preview.redd.it/6odkdsvxdgig1.png?width=640&crop=smart&auto=webp&s=46fe305818333b5923e4033622d0ba6d49b9e52f" alt="Random Meme" width="500"/>
+**Not sure why everyone is talking about it....**  
+<img src="https://preview.redd.it/yk2npdxwngig1.png?width=320&crop=smart&auto=webp&s=afadeab0d480086f9608fde2d6f5734f2b8db5ce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
