@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/qsdx38asugig1.png?width=320&crop=smart&auto=webp&s=1193e804df004e2d1aa62702fde09609be79a38e" alt="Random Meme" width="500"/>
+**How censorship works apparently**  
+<img src="https://preview.redd.it/5rgei4ksvaig1.png?width=320&crop=smart&auto=webp&s=07de7a2de5c36b74617185b60fed21176db570f9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
