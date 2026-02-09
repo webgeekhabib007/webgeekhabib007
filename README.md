@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/pcjvg2maf7ig1.png?width=640&crop=smart&auto=webp&s=d9eb409f6ca5bdbd2a6950a6e6a95ab11340f352" alt="Random Meme" width="500"/>
+**it's about to be "that time of the year" for many of us**  
+<img src="https://external-preview.redd.it/X8w07GONvZzWEssSuN5RBPA5yfvNVrXWzNxb1gWF7Hw.jpeg?width=320&crop=smart&auto=webp&s=f4c3960c01906781499f463b99940f31fb205543" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
