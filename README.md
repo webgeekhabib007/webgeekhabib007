@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Discord age verification be like**  
-<img src="https://preview.redd.it/cri475p1unig1.png?width=320&crop=smart&auto=webp&s=f530a38c20fae3bcd7e02a44b9598b66f5d2a916" alt="Random Meme" width="500"/>
+**How do we fix the crisis**  
+<img src="https://preview.redd.it/kd2d2z40djig1.png?width=1080&crop=smart&auto=webp&s=6cdc3c16399c9be9de10811dcbc1fc28c0600b6e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
