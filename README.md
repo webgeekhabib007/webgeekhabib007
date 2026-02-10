@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**No, I am not proud of this**  
-<img src="https://preview.redd.it/wjjsd5ezghig1.png?width=1080&crop=smart&auto=webp&s=929940caf3c48b2eba8637ea918298ff35614e07" alt="Random Meme" width="500"/>
+**Latin America after the goat mentions every single country from America:**  
+<img src="https://preview.redd.it/qy7udrx67jig1.png?width=1080&crop=smart&auto=webp&s=5b32541fd11348457d0e4716a8048ed31c75c566" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
