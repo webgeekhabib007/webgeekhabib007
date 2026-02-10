@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He sings in English and comes from a British territory**  
-<img src="https://preview.redd.it/tlhxbb1uekig1.gif?width=320&crop=smart&format=png8&s=db729b018a57766041303ff24457ae481d0b5dee" alt="Random Meme" width="500"/>
+**fuck yeah, been a while**  
+<img src="https://preview.redd.it/gyb5gria3jig1.png?width=960&crop=smart&auto=webp&s=fbcaac7c4608fb3a2c66f56db844330580057b2f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
