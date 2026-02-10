@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not Pointing Fingers**  
-<img src="https://preview.redd.it/sj8w2224vhig1.gif?width=320&crop=smart&format=png8&s=2333e2d76a3d3e8d73f89856b487eab3392ea0a5" alt="Random Meme" width="500"/>
+**My dog was about to eat a battery**  
+<img src="https://preview.redd.it/aoo8hv9u7hig1.gif?width=320&crop=smart&format=png8&s=c829f4a21f1727454c0b44e3eb14c438a21d2273" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
