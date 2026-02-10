@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My dog was about to eat a battery**  
-<img src="https://preview.redd.it/aoo8hv9u7hig1.gif?width=320&crop=smart&format=png8&s=c829f4a21f1727454c0b44e3eb14c438a21d2273" alt="Random Meme" width="500"/>
+**Problem solved**  
+<img src="https://preview.redd.it/fj6x7f33uiig1.png?width=320&crop=smart&auto=webp&s=aedee1af5a3bbdbac3ba9517d286a8d4a2e110a2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
