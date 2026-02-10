@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Problem solved**  
-<img src="https://preview.redd.it/fj6x7f33uiig1.png?width=320&crop=smart&auto=webp&s=aedee1af5a3bbdbac3ba9517d286a8d4a2e110a2" alt="Random Meme" width="500"/>
+**Not Pointing Fingers**  
+<img src="https://preview.redd.it/sj8w2224vhig1.gif?width=320&crop=smart&format=png8&s=2333e2d76a3d3e8d73f89856b487eab3392ea0a5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
