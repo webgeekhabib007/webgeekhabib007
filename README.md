@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Not Pointing Fingers**  
-<img src="https://preview.redd.it/sj8w2224vhig1.gif?width=320&crop=smart&format=png8&s=2333e2d76a3d3e8d73f89856b487eab3392ea0a5" alt="Random Meme" width="500"/>
+**He sings in English and comes from a British territory**  
+<img src="https://preview.redd.it/tlhxbb1uekig1.gif?width=320&crop=smart&format=png8&s=db729b018a57766041303ff24457ae481d0b5dee" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
