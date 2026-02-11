@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What is up with some people?**  
-<img src="https://preview.redd.it/acrndkkttsig1.png?width=1080&crop=smart&auto=webp&s=ca80fe6c5c94e1153fa6061b5fa039feb29139d3" alt="Random Meme" width="500"/>
+**Mmm I don't trust you, Discord**  
+<img src="https://preview.redd.it/3ryhcfh0cqig1.png?width=320&crop=smart&auto=webp&s=6840ce0dceba0ad5bae24b79b73b2d407cb59c28" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
