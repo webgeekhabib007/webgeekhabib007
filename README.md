@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What is up with some people?**  
-<img src="https://preview.redd.it/acrndkkttsig1.png?width=1080&crop=smart&auto=webp&s=ca80fe6c5c94e1153fa6061b5fa039feb29139d3" alt="Random Meme" width="500"/>
+**Knees weak, arms are sweaty**  
+<img src="https://preview.redd.it/ez7916h21uig1.png?width=640&crop=smart&auto=webp&s=dfa54922f2173bab94869b2c36a7b9277e366ba5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
