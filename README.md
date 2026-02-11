@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/o6fnq0x9chig1.png?width=1080&crop=smart&auto=webp&s=36ed872f5d16eda17c599d3bd62d729f46229de4" alt="Random Meme" width="500"/>
+**There is no escape for the living**  
+<img src="https://preview.redd.it/qtlsfffjgqig1.png?width=1080&crop=smart&auto=webp&s=0634abf85942b887e5d4b0a61623bcf72a548111" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
