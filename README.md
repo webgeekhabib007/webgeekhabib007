@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You will own nothing.**  
-<img src="https://preview.redd.it/bf5umu840pig1.png?width=640&crop=smart&auto=webp&s=4ce4c6ab1478535cf0b7696abc91a76a54116772" alt="Random Meme" width="500"/>
+**[OC] The Theory of Love was made for this subreddit**  
+<img src="https://preview.redd.it/jfwj2qj71nig1.png?width=320&crop=smart&auto=webp&s=b0d10c4ad99d84b407c51b670e46882f0fc2abd4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
