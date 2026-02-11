@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Latin America after the goat mentions every single country from America:**  
-<img src="https://preview.redd.it/qy7udrx67jig1.png?width=1080&crop=smart&auto=webp&s=5b32541fd11348457d0e4716a8048ed31c75c566" alt="Random Meme" width="500"/>
+**Websites asking if I’m human like I didn’t just click 12 traffic lights.**  
+<img src="https://preview.redd.it/swk22rn09pig1.png?width=1080&crop=smart&auto=webp&s=23e80ace3fbb4e57bd2b1d45f23df33efb5938ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
