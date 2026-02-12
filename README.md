@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My crush vs my actual flirting ability**  
-<img src="https://preview.redd.it/edpabd439wig1.png?width=1080&crop=smart&auto=webp&s=d02db59e60a89e170b3c849027d90df10cc8a8f2" alt="Random Meme" width="500"/>
+**A 2000's title.**  
+<img src="https://preview.redd.it/pbgshiq4xzig1.png?width=640&crop=smart&auto=webp&s=a1a9ffb1dfc2385a6b5a7d1d557e2048c7517560" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
