@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://external-preview.redd.it/TwUiburchpjSF1Nta24iN7wxQj6vh2H1uGfv6MZiGAM.png?width=640&crop=smart&auto=webp&s=7c76259d0aecf8b02c2d5919b97e75b81beb6750" alt="Random Meme" width="500"/>
+**El conejito malo no es americano**  
+<img src="https://preview.redd.it/thfht6frxrig1.png?width=1080&crop=smart&auto=webp&s=a9238f60574c1eacfc564504c8f8c1b8adadacdd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
