@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**“I just wanna kiss my fish” Wait What?**  
-<img src="https://preview.redd.it/qmhv8ubhtwig1.gif?width=640&crop=smart&format=png8&s=fc5eaf784105f3d833de75686925179a26a8bc93" alt="Random Meme" width="500"/>
+**Confidence vs Experience**  
+<img src="https://preview.redd.it/87k7r4dcqwig1.png?width=960&crop=smart&auto=webp&s=a4088f9a622cb751cb2eeae1041acbc41ef6be94" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
