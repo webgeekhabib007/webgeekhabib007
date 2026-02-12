@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Discord, that's not the solution you're looking for**  
-<img src="https://preview.redd.it/kw6oo93e8oig1.png?width=320&crop=smart&auto=webp&s=8fecc4aaac8bb0145a9d7fec6baad12e73891703" alt="Random Meme" width="500"/>
+**My crush vs my actual flirting ability**  
+<img src="https://preview.redd.it/edpabd439wig1.png?width=1080&crop=smart&auto=webp&s=d02db59e60a89e170b3c849027d90df10cc8a8f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
