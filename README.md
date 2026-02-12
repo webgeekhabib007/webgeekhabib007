@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh he'll be here soon**  
-<img src="https://preview.redd.it/s94qqda1psig1.png?width=1080&crop=smart&auto=webp&s=5440d422f8ae99029cd42bdc050b3a2fdf4f5fd8" alt="Random Meme" width="500"/>
+**the two biggest threats to the internet are fighting each other**  
+<img src="https://preview.redd.it/y9cmaagooyig1.png?width=960&crop=smart&auto=webp&s=50f9bd012487c52df8407b8c901cb879b76fbe55" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
