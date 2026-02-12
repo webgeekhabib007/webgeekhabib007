@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Same as yesterday, maybe tomorrow will be better**  
-<img src="https://preview.redd.it/2a6jwzaphzig1.gif?width=640&crop=smart&format=png8&s=e0b2cdbfb1ad36787083d7b04d4fb55bf501b669" alt="Random Meme" width="500"/>
+**Oh he'll be here soon**  
+<img src="https://preview.redd.it/s94qqda1psig1.png?width=1080&crop=smart&auto=webp&s=5440d422f8ae99029cd42bdc050b3a2fdf4f5fd8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
