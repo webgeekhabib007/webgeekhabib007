@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh he'll be here soon**  
-<img src="https://preview.redd.it/s94qqda1psig1.png?width=1080&crop=smart&auto=webp&s=5440d422f8ae99029cd42bdc050b3a2fdf4f5fd8" alt="Random Meme" width="500"/>
+**Disgusting**  
+<img src="https://preview.redd.it/k8uxjqi482jg1.gif?width=640&crop=smart&format=png8&s=0e276fa4037b4b02150e91e10599b32f6af9d118" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
