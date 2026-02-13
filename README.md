@@ -107,7 +107,7 @@
 
 <!-- MEME-START -->
 **me_irl**  
-<img src="https://preview.redd.it/ghhuydtyt8jg1.png?width=640&crop=smart&auto=webp&s=b690aa8c94469978381345dc4c0ed2293d3eb9b8" alt="Random Meme" width="500"/>
+<img src="https://preview.redd.it/f2iya1c64yig1.png?width=1080&crop=smart&auto=webp&s=a5f95e4cd06f2ea9e05b1bce1f470f68b6401dc1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
