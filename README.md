@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Confidence vs Experience**  
-<img src="https://preview.redd.it/87k7r4dcqwig1.png?width=960&crop=smart&auto=webp&s=a4088f9a622cb751cb2eeae1041acbc41ef6be94" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/61f2f2bkvwig1.png?width=320&crop=smart&auto=webp&s=e6cdbccc3e66b2b04c176ec222f17219b82766c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
