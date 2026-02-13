@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**ChatGPT being a Mathematician when helping me with Homework**  
-<img src="https://preview.redd.it/95hzx6kql7jg1.png?width=640&crop=smart&auto=webp&s=364741a4988e08296b70a4021b8238e5f390055b" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/61f2f2bkvwig1.png?width=320&crop=smart&auto=webp&s=e6cdbccc3e66b2b04c176ec222f17219b82766c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
