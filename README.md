@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**1984 or something idk I didn't read the book**  
-<img src="https://preview.redd.it/luqhny3p3ajg1.png?width=1080&crop=smart&auto=webp&s=6f30317551c36c442e6f61f1d8593428a5605b24" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/fw5v3emxe9jg1.gif?width=640&crop=smart&format=png8&s=4be81e7ba6cbad7ffcb654a831e33adab0166d8d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
