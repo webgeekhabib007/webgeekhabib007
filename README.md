@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'll tell you what I'd do, man.**  
-<img src="https://preview.redd.it/z4bmih8vr8jg1.png?width=320&crop=smart&auto=webp&s=dac9c2d1147e852c027e6a99a122de7e5e9b47c2" alt="Random Meme" width="500"/>
+**1984 or something idk I didn't read the book**  
+<img src="https://preview.redd.it/luqhny3p3ajg1.png?width=1080&crop=smart&auto=webp&s=6f30317551c36c442e6f61f1d8593428a5605b24" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
