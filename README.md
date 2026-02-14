@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It was foretold long ago.**  
-<img src="https://preview.redd.it/3i2co55cf5jg1.png?width=1080&crop=smart&auto=webp&s=82a091c2d1625cbcc24bbecaa49b05289edcca33" alt="Random Meme" width="500"/>
+**NOOOOO NOOOO**  
+<img src="https://preview.redd.it/teuk5899dxig1.png?width=320&crop=smart&auto=webp&s=1eccd44a00f1e5e90265be60711c9e1c026936c0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
