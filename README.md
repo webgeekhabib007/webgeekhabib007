@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/jak1ow7zmhjg1.png?width=960&crop=smart&auto=webp&s=0069c97c284d9a4dcc0924e8777b89c9186f543e" alt="Random Meme" width="500"/>
+**the first account that disappear from my home**  
+<img src="https://preview.redd.it/8u2347e537jg1.png?width=1080&crop=smart&auto=webp&s=9f5005aacde15aba0a65e18e39892d18f07d473f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
