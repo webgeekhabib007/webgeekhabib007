@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Forgive me brother**  
-<img src="https://preview.redd.it/mx0v2z6psejg1.png?width=1080&crop=smart&auto=webp&s=574b5d8f6e29e725765d33cceb00e5da226d946e" alt="Random Meme" width="500"/>
+**A grizzly title.**  
+<img src="https://preview.redd.it/n5g4pdpcd7jg1.png?width=640&crop=smart&auto=webp&s=ce448407b8a4a9e570be5b890e7024c239472ff2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
