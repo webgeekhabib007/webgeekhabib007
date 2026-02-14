@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**An average TMNT movie plot.**  
-<img src="https://preview.redd.it/5xvpwm213cjg1.png?width=320&crop=smart&auto=webp&s=4e12857e5a3fb32f196a1fe1f5ef1b7fb5765e5d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/6151l7u9i3jg1.png?width=1080&crop=smart&auto=webp&s=a20b21a015ef209102bfd46e140ef24ad094d9d7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
