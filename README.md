@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**gmang**  
-<img src="https://preview.redd.it/zn7s9cc7iajg1.png?width=320&crop=smart&auto=webp&s=64e330b6a23061e99817a8bdf36c2afdf49450bb" alt="Random Meme" width="500"/>
+**Disgusting**  
+<img src="https://preview.redd.it/k8uxjqi482jg1.gif?width=640&crop=smart&format=png8&s=0e276fa4037b4b02150e91e10599b32f6af9d118" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
