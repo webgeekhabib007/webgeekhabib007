@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/cpxgeg9o15jg1.png?width=640&crop=smart&auto=webp&s=ce33036b4f8921dd39bd84e43c1dfe35c36ca5de" alt="Random Meme" width="500"/>
+**Based Frieren Understands ICE**  
+<img src="https://preview.redd.it/wnnrsap40cjg1.png?width=1080&crop=smart&auto=webp&s=c7c7a5f209aad0e1d63ce321053bbbe353c13fcb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
