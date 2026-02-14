@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A grizzly title.**  
-<img src="https://preview.redd.it/n5g4pdpcd7jg1.png?width=640&crop=smart&auto=webp&s=ce448407b8a4a9e570be5b890e7024c239472ff2" alt="Random Meme" width="500"/>
+**An average TMNT movie plot.**  
+<img src="https://preview.redd.it/5xvpwm213cjg1.png?width=320&crop=smart&auto=webp&s=4e12857e5a3fb32f196a1fe1f5ef1b7fb5765e5d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
