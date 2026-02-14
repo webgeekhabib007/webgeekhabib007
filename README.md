@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happy Valentines My Love**  
-<img src="https://preview.redd.it/0pbglezbthjg1.png?width=960&crop=smart&auto=webp&s=9dacd2050a3db5b1b11d47e387b10f25ae217907" alt="Random Meme" width="500"/>
+**I swear I misclicked**  
+<img src="https://preview.redd.it/pidlm0nrdhjg1.gif?width=640&crop=smart&format=png8&s=250335dcd70071e5d7d88121a73bf5d7825c38b9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
