@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me as an introvert**  
-<img src="https://preview.redd.it/harwthsugnjg1.png?width=960&crop=smart&auto=webp&s=646ffa3fcf0950e1706b985c55a31db72e27caa1" alt="Random Meme" width="500"/>
+**Your average family**  
+<img src="https://preview.redd.it/821i1f0qmhjg1.png?width=640&crop=smart&auto=webp&s=d40f88a6c0fd5b831089453abe25d29fbd75bc61" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
