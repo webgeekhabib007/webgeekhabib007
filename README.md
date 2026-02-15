@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Your average family**  
-<img src="https://preview.redd.it/821i1f0qmhjg1.png?width=640&crop=smart&auto=webp&s=d40f88a6c0fd5b831089453abe25d29fbd75bc61" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/nm2j1i290ljg1.gif?width=640&crop=smart&format=png8&s=9fe71e06fee3576840ad74c9f1b5ea2af829ec94" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
