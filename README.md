@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Everything is fine**  
-<img src="https://preview.redd.it/l2ctw0hszejg1.png?width=1080&crop=smart&auto=webp&s=449297fd51833ac10d5c57c9997d57e3d658465f" alt="Random Meme" width="500"/>
+**Father and sons bonding time**  
+<img src="https://preview.redd.it/icm9z86wmajg1.png?width=320&crop=smart&auto=webp&s=3ac34c9b7442dcd5d87a7107c4eaa229200ef81c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
