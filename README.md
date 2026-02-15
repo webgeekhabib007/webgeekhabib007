@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm tired of streamers but man, I miss looking at those chicks**  
-<img src="https://preview.redd.it/dfw7a9nmbjjg1.png?width=640&crop=smart&auto=webp&s=61d5551e275a64d03c4b2b7709f99850d23ee6fc" alt="Random Meme" width="500"/>
+**We all did this didnt we**  
+<img src="https://external-preview.redd.it/mgLRJ3YorUe7QcjlpenIyGYVP7to8AVja_c6Wah6Rcw.gif?width=320&crop=smart&format=png8&s=30b99d9250bd8b160c7c6f41dd26b65941f597a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
