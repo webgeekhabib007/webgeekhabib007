@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Father and sons bonding time**  
-<img src="https://preview.redd.it/icm9z86wmajg1.png?width=320&crop=smart&auto=webp&s=3ac34c9b7442dcd5d87a7107c4eaa229200ef81c" alt="Random Meme" width="500"/>
+**I'm tired of streamers but man, I miss looking at those chicks**  
+<img src="https://preview.redd.it/dfw7a9nmbjjg1.png?width=640&crop=smart&auto=webp&s=61d5551e275a64d03c4b2b7709f99850d23ee6fc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
