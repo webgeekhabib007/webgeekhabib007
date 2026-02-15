@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Oh no, what am i gonna?**  
-<img src="https://preview.redd.it/j9uj9mfxbojg1.gif?width=640&crop=smart&format=png8&s=6a1085bd44da9c955187309fded70b3ed6b9b3c0" alt="Random Meme" width="500"/>
+**the first account that disappear from my home**  
+<img src="https://preview.redd.it/8u2347e537jg1.png?width=1080&crop=smart&auto=webp&s=9f5005aacde15aba0a65e18e39892d18f07d473f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
