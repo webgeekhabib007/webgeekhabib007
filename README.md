@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**IBM is tripling entry-level jobs**  
-<img src="https://preview.redd.it/ntiz0gouojjg1.gif?width=640&crop=smart&format=png8&s=8bec5762ab2c1f01f42817f903560f7579fc5070" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/syv0cezu1sjg1.png?width=640&crop=smart&auto=webp&s=4731f0607d7fa06ef435038a2d694e9ebe2a1855" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
