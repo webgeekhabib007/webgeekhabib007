@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Japan did way before it was cool**  
-<img src="https://preview.redd.it/5thv69w49ujg1.gif?width=320&crop=smart&format=png8&s=729a73e39fb44bbf0947d05572d71972ea86682e" alt="Random Meme" width="500"/>
+**IBM is tripling entry-level jobs**  
+<img src="https://preview.redd.it/ntiz0gouojjg1.gif?width=640&crop=smart&format=png8&s=8bec5762ab2c1f01f42817f903560f7579fc5070" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
