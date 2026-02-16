@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/dcbchno6fajg1.gif?width=640&crop=smart&format=png8&s=55943562cb328bc72467625e961c2319e5bb71b5" alt="Random Meme" width="500"/>
+**"They'll dig my new look"**  
+<img src="https://preview.redd.it/tprv3rqq9djg1.png?width=640&crop=smart&auto=webp&s=fb24b652e8344c38d6d650e7fd5ef61ec2e7be07" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
