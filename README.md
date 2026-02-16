@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I will die on this hill. "/s" is a coward's crutch.**  
-<img src="https://preview.redd.it/yzh0afe3tejg1.gif?width=640&crop=smart&format=png8&s=8dfd570e3c837e46c3cd6479e25ff7c870064a92" alt="Random Meme" width="500"/>
+**get a copy first to be reviewed before proceeding**  
+<img src="https://preview.redd.it/0sv6dh8kxtjg1.png?width=960&crop=smart&auto=webp&s=fceadb1207ab6f8f8049e73cae2179282aef762e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
