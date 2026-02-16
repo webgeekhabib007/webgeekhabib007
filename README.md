@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Is this support to be a joke, i don't get it, please explain the joke to me**  
-<img src="https://preview.redd.it/jri66htxiojg1.png?width=640&crop=smart&auto=webp&s=3e41a4869e223ba97b9e10f2908e56fc53874a9f" alt="Random Meme" width="500"/>
+**I will die on this hill. "/s" is a coward's crutch.**  
+<img src="https://preview.redd.it/yzh0afe3tejg1.gif?width=640&crop=smart&format=png8&s=8dfd570e3c837e46c3cd6479e25ff7c870064a92" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
