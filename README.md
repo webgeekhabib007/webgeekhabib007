@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"They'll dig my new look"**  
-<img src="https://preview.redd.it/tprv3rqq9djg1.png?width=640&crop=smart&auto=webp&s=fb24b652e8344c38d6d650e7fd5ef61ec2e7be07" alt="Random Meme" width="500"/>
+**I'm cooked**  
+<img src="https://preview.redd.it/ol4sven8shjg1.gif?width=320&crop=smart&format=png8&s=ca4479ff5569f9897cd43d11c735be2e6bb904da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
