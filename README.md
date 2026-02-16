@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Lowkey need to have different passwords 🥀**  
-<img src="https://preview.redd.it/u9ue7sxfpujg1.png?width=640&crop=smart&auto=webp&s=012addc32ef25529c5e9868dd6e6fdd5c2ee0982" alt="Random Meme" width="500"/>
+**Japan did way before it was cool**  
+<img src="https://preview.redd.it/5thv69w49ujg1.gif?width=320&crop=smart&format=png8&s=729a73e39fb44bbf0947d05572d71972ea86682e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
