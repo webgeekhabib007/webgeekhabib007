@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**saving time and money**  
-<img src="https://preview.redd.it/e3292bnxmujg1.png?width=640&crop=smart&auto=webp&s=499e9254dd1479d4660cd11638062cc4a541d5fb" alt="Random Meme" width="500"/>
+**Lowkey need to have different passwords 🥀**  
+<img src="https://preview.redd.it/u9ue7sxfpujg1.png?width=640&crop=smart&auto=webp&s=012addc32ef25529c5e9868dd6e6fdd5c2ee0982" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
