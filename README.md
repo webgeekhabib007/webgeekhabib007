@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The horror... the horror...**  
-<img src="https://preview.redd.it/p3l0lhqzgujg1.png?width=640&crop=smart&auto=webp&s=8cc4157493adaa856e338935dc2ae35b4b3c4fe9" alt="Random Meme" width="500"/>
+**I'm sorry, little one...**  
+<img src="https://preview.redd.it/8cmjs9udhjjg1.png?width=1080&crop=smart&auto=webp&s=370a3db6ddb66b5cc65ecac2af41969df5281bb9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
