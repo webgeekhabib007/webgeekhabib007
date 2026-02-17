@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**minecraft: now vs then**  
-<img src="https://preview.redd.it/ngqk7kjyhujg1.png?width=640&crop=smart&auto=webp&s=47b09df820cac9f2d6e5bfdb02b16dc020410873" alt="Random Meme" width="500"/>
+**Damn shame innit?**  
+<img src="https://preview.redd.it/zah20xivsijg1.png?width=960&crop=smart&auto=webp&s=3ac98049dc205b35052444bf3442829d4de63de8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
