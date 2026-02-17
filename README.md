@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The horror... the horror...**  
-<img src="https://preview.redd.it/p3l0lhqzgujg1.png?width=640&crop=smart&auto=webp&s=8cc4157493adaa856e338935dc2ae35b4b3c4fe9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/4d61miz52pjg1.png?width=1080&crop=smart&auto=webp&s=fa767845453615a85b9577b3e2fbbc90a199b4c5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
