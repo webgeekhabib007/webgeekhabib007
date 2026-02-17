@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dog Psychology 101**  
-<img src="https://preview.redd.it/dpzm5p4s74kg1.png?width=320&crop=smart&auto=webp&s=380145d6c37701449400bfb77341bef1a0bdbb60" alt="Random Meme" width="500"/>
+**Yes they actually do it**  
+<img src="https://preview.redd.it/gjejcixrx3kg1.gif?width=320&crop=smart&format=png8&s=1cb1254cb7fa3b48d0513e6c2ff03516a2a5d236" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
