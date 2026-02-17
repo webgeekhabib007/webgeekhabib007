@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can even play dead if you'd like**  
-<img src="https://preview.redd.it/kitss6kxwxjg1.png?width=960&crop=smart&auto=webp&s=66825afc7239b8afff5fee3eaa6d2472ba3cf7d1" alt="Random Meme" width="500"/>
+**HR in 2026 be like:**  
+<img src="https://preview.redd.it/zbd6hhwvutjg1.png?width=1080&crop=smart&auto=webp&s=bb2f558ba68793ab3a1ccf53ffa11969752a99de" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
