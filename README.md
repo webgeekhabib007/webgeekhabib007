@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn shame innit?**  
-<img src="https://preview.redd.it/zah20xivsijg1.png?width=960&crop=smart&auto=webp&s=3ac98049dc205b35052444bf3442829d4de63de8" alt="Random Meme" width="500"/>
+**My mount Rushmore is me with for different expressions**  
+<img src="https://preview.redd.it/y17unw6i8xjg1.png?width=1080&crop=smart&auto=webp&s=c28d58322959f8f0a380f18e12a500e283d41ef8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
