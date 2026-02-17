@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Absolute "uncanny valley" Cinema**  
-<img src="https://preview.redd.it/co54somfwvjg1.gif?width=320&crop=smart&format=png8&s=1cdb55add58c0a310aeffe805c698aafc9d2f746" alt="Random Meme" width="500"/>
+**I can even play dead if you'd like**  
+<img src="https://preview.redd.it/kitss6kxwxjg1.png?width=960&crop=smart&auto=webp&s=66825afc7239b8afff5fee3eaa6d2472ba3cf7d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
