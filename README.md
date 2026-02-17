@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**HR in 2026 be like:**  
-<img src="https://preview.redd.it/zbd6hhwvutjg1.png?width=1080&crop=smart&auto=webp&s=bb2f558ba68793ab3a1ccf53ffa11969752a99de" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/eg6pdbv9wujg1.png?width=960&crop=smart&auto=webp&s=b5650b0f148df594dbe9d7c4503a5cc98294a8cf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
