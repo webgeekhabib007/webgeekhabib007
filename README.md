@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me👊irl**  
-<img src="https://preview.redd.it/h4g1fh2c2tjg1.png?width=1080&crop=smart&auto=webp&s=f83af7e9dda11610146fc488c29f8756ecc1b164" alt="Random Meme" width="500"/>
+**Dog Psychology 101**  
+<img src="https://preview.redd.it/dpzm5p4s74kg1.png?width=320&crop=smart&auto=webp&s=380145d6c37701449400bfb77341bef1a0bdbb60" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
