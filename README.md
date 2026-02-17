@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My mount Rushmore is me with for different expressions**  
-<img src="https://preview.redd.it/y17unw6i8xjg1.png?width=1080&crop=smart&auto=webp&s=c28d58322959f8f0a380f18e12a500e283d41ef8" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ymj01hzq0hjg1.gif?width=640&crop=smart&format=png8&s=911b9b8533997f176ad2af92bf177c86dba7726e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
