@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How dare you notice!**  
-<img src="https://preview.redd.it/aq2720ww4qjg1.png?width=1080&crop=smart&auto=webp&s=6b88943e0625342d4873e06184057f42e0fb508b" alt="Random Meme" width="500"/>
+**minecraft: now vs then**  
+<img src="https://preview.redd.it/ngqk7kjyhujg1.png?width=640&crop=smart&auto=webp&s=47b09df820cac9f2d6e5bfdb02b16dc020410873" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
