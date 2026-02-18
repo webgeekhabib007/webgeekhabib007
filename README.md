@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Well...ummm 💀**  
-<img src="https://preview.redd.it/80yj5lvj90kg1.png?width=640&crop=smart&auto=webp&s=ae439ff923632bdd7a1378e85f2dd7162bf797f4" alt="Random Meme" width="500"/>
+**Ow! Teora, This Geography Hurts...**  
+<img src="https://preview.redd.it/4y3w5bwbu2kg1.png?width=320&crop=smart&auto=webp&s=4572da5f2c9d2b90607e3a0eae9c3a65e35494d0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
