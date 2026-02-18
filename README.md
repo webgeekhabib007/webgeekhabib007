@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/g265gm0ki8kg1.png?width=640&crop=smart&auto=webp&s=e14ce51b89663a4e6b8d076bfa1c12d4f12d72fb" alt="Random Meme" width="500"/>
+**Toshiki Inoue is just freaky like that**  
+<img src="https://preview.redd.it/ed6m67ii78kg1.png?width=1080&crop=smart&auto=webp&s=a3d0fed0a0b9a5c0182ef48fbc5470d3a9efea20" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
