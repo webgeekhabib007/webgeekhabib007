@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**sorry guy album 😭**  
-<img src="https://preview.redd.it/ycveuqq727kg1.png?width=640&crop=smart&auto=webp&s=b6911705e881c28c2bc75beb0a1247531e8dd7fa" alt="Random Meme" width="500"/>
+**Sure buddy**  
+<img src="https://preview.redd.it/416apxzbbxjg1.gif?width=640&crop=smart&format=png8&s=4a860ecdd194a4880dfe52a85f7f88627c4113aa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
