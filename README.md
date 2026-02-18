@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Toshiki Inoue is just freaky like that**  
-<img src="https://preview.redd.it/ed6m67ii78kg1.png?width=1080&crop=smart&auto=webp&s=a3d0fed0a0b9a5c0182ef48fbc5470d3a9efea20" alt="Random Meme" width="500"/>
+**Winter Olympics in Italy (now versus 2006)**  
+<img src="https://preview.redd.it/4iemjtuf29kg1.png?width=320&crop=smart&auto=webp&s=3d0dedd2da6a145da8201762977f670552c9c8c1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
