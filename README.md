@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When will it be their turn?**  
-<img src="https://preview.redd.it/64odxse4odkg1.png?width=320&crop=smart&auto=webp&s=84403c60cf1fa66a3f393f71e1b25e3b9ac1b6d5" alt="Random Meme" width="500"/>
+**It’s not that hard to just follow the 1st game, it’s simple enough to understand!**  
+<img src="https://preview.redd.it/eb7c1gl4u9kg1.gif?width=640&crop=smart&format=png8&s=f3ba76db29f6c69b1200f84f1330589d8ce94ddf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
