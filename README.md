@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It’s not that hard to just follow the 1st game, it’s simple enough to understand!**  
-<img src="https://preview.redd.it/eb7c1gl4u9kg1.gif?width=640&crop=smart&format=png8&s=f3ba76db29f6c69b1200f84f1330589d8ce94ddf" alt="Random Meme" width="500"/>
+**Me after a 10-minute silence: ‘So this is how our love story ends…’**  
+<img src="https://preview.redd.it/k6jtg1barekg1.png?width=640&crop=smart&auto=webp&s=6fc4e1a58ad99cc3f3e44485b969a4965ab9ae04" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
