@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me after a 10-minute silence: ‘So this is how our love story ends…’**  
-<img src="https://preview.redd.it/k6jtg1barekg1.png?width=640&crop=smart&auto=webp&s=6fc4e1a58ad99cc3f3e44485b969a4965ab9ae04" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2695hes84bkg1.png?width=1080&crop=smart&auto=webp&s=db350f70cc3ec46ea58bab3111aeb35e23b17c71" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
