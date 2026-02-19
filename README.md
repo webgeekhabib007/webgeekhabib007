@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Bob Marley meme**  
-<img src="https://preview.redd.it/l3da97z101kg1.png?width=640&crop=smart&auto=webp&s=c34c0ff362dc2adc2438d904aef38e47e93b214b" alt="Random Meme" width="500"/>
+**Uninsured seabirds are committing B&amp;E now**  
+<img src="https://preview.redd.it/vtd05aa463kg1.png?width=1080&crop=smart&auto=webp&s=46ecb904aeec2078ae9ab2e4ea3e479d6fb88a23" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
