@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They just look so extraterrestrial**  
-<img src="https://preview.redd.it/1tvll6dzj5kg1.png?width=320&crop=smart&auto=webp&s=fcbf56b423d4c3a51fc7ee4f5ba25543f9a2df4e" alt="Random Meme" width="500"/>
+**Rotate**  
+<img src="https://preview.redd.it/j58vl2nke8kg1.gif?width=640&crop=smart&format=png8&s=4c8a03c334a66045c579d07f8fc142722c018045" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
