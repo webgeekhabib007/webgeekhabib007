@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Uninsured seabirds are committing B&amp;E now**  
-<img src="https://preview.redd.it/vtd05aa463kg1.png?width=1080&crop=smart&auto=webp&s=46ecb904aeec2078ae9ab2e4ea3e479d6fb88a23" alt="Random Meme" width="500"/>
+**When will it be their turn?**  
+<img src="https://preview.redd.it/64odxse4odkg1.png?width=320&crop=smart&auto=webp&s=84403c60cf1fa66a3f393f71e1b25e3b9ac1b6d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
