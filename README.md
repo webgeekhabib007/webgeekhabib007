@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Santa got a big surprise for my mom**  
-<img src="https://preview.redd.it/imirvdujeakg1.png?width=1080&crop=smart&auto=webp&s=e17a9f7dc725ff8cd3daaa3f1a715016deaaa100" alt="Random Meme" width="500"/>
+**That's what happens when you get your hopes up**  
+<img src="https://preview.redd.it/23lznizgt3kg1.png?width=640&crop=smart&auto=webp&s=a869eb34610148147480e078b9ee6e61e7739628" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
