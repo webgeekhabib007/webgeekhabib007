@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The last image you see before your first sulphuric acid bath**  
-<img src="https://preview.redd.it/oohktjjrj3kg1.png?width=320&crop=smart&auto=webp&s=cb7a1a401c3acfa5d136d56a1d3bf68837c35c6d" alt="Random Meme" width="500"/>
+**They just look so extraterrestrial**  
+<img src="https://preview.redd.it/1tvll6dzj5kg1.png?width=320&crop=smart&auto=webp&s=fcbf56b423d4c3a51fc7ee4f5ba25543f9a2df4e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
