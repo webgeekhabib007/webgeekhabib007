@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That's what happens when you get your hopes up**  
-<img src="https://preview.redd.it/23lznizgt3kg1.png?width=640&crop=smart&auto=webp&s=a869eb34610148147480e078b9ee6e61e7739628" alt="Random Meme" width="500"/>
+**The new Wuthering Heights looks amazing**  
+<img src="https://preview.redd.it/nhffii8ikbkg1.png?width=960&crop=smart&auto=webp&s=3622f7d367cefb4c9248115153c62b0bfbc72265" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
