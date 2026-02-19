@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/2695hes84bkg1.png?width=1080&crop=smart&auto=webp&s=db350f70cc3ec46ea58bab3111aeb35e23b17c71" alt="Random Meme" width="500"/>
+**Bob Marley meme**  
+<img src="https://preview.redd.it/l3da97z101kg1.png?width=640&crop=smart&auto=webp&s=c34c0ff362dc2adc2438d904aef38e47e93b214b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
