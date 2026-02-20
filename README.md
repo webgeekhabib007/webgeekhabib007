@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"It bursts... now ...now ....now..." (-people since 2023)**  
-<img src="https://preview.redd.it/h086krvtqakg1.gif?width=216&crop=smart&format=png8&s=8b7e667309bc669d68a1b6402dfb28ec92a676ad" alt="Random Meme" width="500"/>
+**Absolute business**  
+<img src="https://preview.redd.it/9uxz0xmeigkg1.gif?width=640&crop=smart&format=png8&s=48149f5dcdd915b7e15c9e963c526a5c9d43c012" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
