@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Absolute business**  
-<img src="https://preview.redd.it/9uxz0xmeigkg1.gif?width=640&crop=smart&format=png8&s=48149f5dcdd915b7e15c9e963c526a5c9d43c012" alt="Random Meme" width="500"/>
+**Say what you will, he friggin' Nailed it!**  
+<img src="https://preview.redd.it/vshnm6wcyjkg1.png?width=960&crop=smart&auto=webp&s=a9355e7741dff4b1e48eb4a2d8bb53f994fd4c3b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
