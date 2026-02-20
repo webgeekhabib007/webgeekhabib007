@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's Bananas!**  
-<img src="https://preview.redd.it/o6ut9njnwjkg1.png?width=320&crop=smart&auto=webp&s=a74910eb9bf7a287296c8b564d2fbe50fdd40181" alt="Random Meme" width="500"/>
+**Are they even listening to the songs they like?**  
+<img src="https://preview.redd.it/ikdsb7uh7jkg1.gif?width=640&crop=smart&format=png8&s=9b1319deda3e6503dc73a8c993e881a136b3a45f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
