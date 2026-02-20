@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/ir3zutm24fkg1.gif?width=320&crop=smart&format=png8&s=42e9468d20ade8adcee1272c7bc50768f52a473e" alt="Random Meme" width="500"/>
+**Money is just too enticing to leave it at 3 or 4**  
+<img src="https://preview.redd.it/9rbg768fsikg1.png?width=320&crop=smart&auto=webp&s=c0ce6c0118b7cd7c3879b954c4a72ae639a52218" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
