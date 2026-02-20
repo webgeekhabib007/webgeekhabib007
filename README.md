@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Prices go down now... Right?**  
-<img src="https://preview.redd.it/2087qkd3qokg1.png?width=960&crop=smart&auto=webp&s=a31d243a7240f74f7a2010a40b0684cd86b4b292" alt="Random Meme" width="500"/>
+**Holy crap... DEEP**  
+<img src="https://preview.redd.it/m46dtcg4hokg1.png?width=640&crop=smart&auto=webp&s=bfdc19e370bec8022cddf3ea43e2fd5e1e8b1d33" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
