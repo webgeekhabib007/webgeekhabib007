@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Say what you will, he friggin' Nailed it!**  
-<img src="https://preview.redd.it/vshnm6wcyjkg1.png?width=960&crop=smart&auto=webp&s=a9355e7741dff4b1e48eb4a2d8bb53f994fd4c3b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/o61ytc9wwlkg1.png?width=1080&crop=smart&auto=webp&s=91ead19475aa8b5bdb4edb2136d5a63e7f5901c4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
