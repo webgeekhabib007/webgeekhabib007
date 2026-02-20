@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**That pretty much sums me up**  
-<img src="https://preview.redd.it/3w2k144gvjkg1.png?width=640&crop=smart&auto=webp&s=0211160a523d84d5aa19f0d5946771680c84b8df" alt="Random Meme" width="500"/>
+**Is Underratedly even a word?**  
+<img src="https://preview.redd.it/198ph4swbnkg1.gif?width=320&crop=smart&format=png8&s=f597e3e9235f5a85576ff4b9a9bff70cd13558fa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
