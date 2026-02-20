@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's Been One Hell of a Year**  
-<img src="https://preview.redd.it/8xi8egu9yikg1.png?width=960&crop=smart&auto=webp&s=0ba94308e9d29e7b821ee104df8f10d248c14297" alt="Random Meme" width="500"/>
+**It's Bananas!**  
+<img src="https://preview.redd.it/o6ut9njnwjkg1.png?width=320&crop=smart&auto=webp&s=a74910eb9bf7a287296c8b564d2fbe50fdd40181" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
