@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Are they even listening to the songs they like?**  
-<img src="https://preview.redd.it/ikdsb7uh7jkg1.gif?width=640&crop=smart&format=png8&s=9b1319deda3e6503dc73a8c993e881a136b3a45f" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ir3zutm24fkg1.gif?width=320&crop=smart&format=png8&s=42e9468d20ade8adcee1272c7bc50768f52a473e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
