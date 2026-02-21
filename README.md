@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Character Arc Unlocked**  
-<img src="https://preview.redd.it/r9sm0uqj7rkg1.png?width=960&crop=smart&auto=webp&s=cd178d14d41ad7f699ed1fee56dcad22a4cf4f8b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/x7boxs12pjkg1.png?width=1080&crop=smart&auto=webp&s=16d5c323c0ec54c2f69609f206003e98ea4f35c3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
