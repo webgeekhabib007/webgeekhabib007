@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Do we really need another slap in the face?**  
-<img src="https://preview.redd.it/auy7uhb5dpkg1.png?width=960&crop=smart&auto=webp&s=9b85d15c558794c23d1897aba87fa5823f3938c2" alt="Random Meme" width="500"/>
+**Integrity? Never 'erd of er**  
+<img src="https://preview.redd.it/9dzjstovtjkg1.png?width=1080&crop=smart&auto=webp&s=996c456bac562b3e4dba2511349a840f1b7fc6fa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
