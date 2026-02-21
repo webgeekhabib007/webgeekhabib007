@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Integrity? Never 'erd of er**  
-<img src="https://preview.redd.it/9dzjstovtjkg1.png?width=1080&crop=smart&auto=webp&s=996c456bac562b3e4dba2511349a840f1b7fc6fa" alt="Random Meme" width="500"/>
+**Blow me up like a balloon please**  
+<img src="https://preview.redd.it/9yar5dj5vmkg1.png?width=1080&crop=smart&auto=webp&s=47ac4ba63c9709602691e1a0b3c865a11a2e5699" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
