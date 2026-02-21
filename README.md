@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Blow me up like a balloon please**  
-<img src="https://preview.redd.it/9yar5dj5vmkg1.png?width=1080&crop=smart&auto=webp&s=47ac4ba63c9709602691e1a0b3c865a11a2e5699" alt="Random Meme" width="500"/>
+**Rotate**  
+<img src="https://preview.redd.it/j58vl2nke8kg1.gif?width=640&crop=smart&format=png8&s=4c8a03c334a66045c579d07f8fc142722c018045" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
