@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Some of us are like that**  
-<img src="https://preview.redd.it/k2e4fe2v00lg1.png?width=1080&crop=smart&auto=webp&s=54be4848fcdd2dd2c4f8192f2c40bbe96575d74d" alt="Random Meme" width="500"/>
+**gotta save 'em all**  
+<img src="https://preview.redd.it/9yu8ye47a2lg1.png?width=1080&crop=smart&auto=webp&s=84560b10a3ed1a6ba3bc255764ff66ecef5805f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
