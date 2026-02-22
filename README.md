@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**which one...**  
-<img src="https://preview.redd.it/ljvuddd5zukg1.png?width=1080&crop=smart&auto=webp&s=cce0533c92a1ece4c2308392cdf7086c86650308" alt="Random Meme" width="500"/>
+**Going to class in different education systems**  
+<img src="https://preview.redd.it/w7yil4qoeukg1.png?width=1080&crop=smart&auto=webp&s=ad7534e702d27d165c9a4c488ca67d08e2d5bbf8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
