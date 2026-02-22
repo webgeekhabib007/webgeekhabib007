@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/ew9b2azatykg1.png?width=1080&crop=smart&auto=webp&s=1688cbee7b4eee3bd402bb51a254af75320c98eb" alt="Random Meme" width="500"/>
+**Have you ever gotten an ad in your dreams?**  
+<img src="https://preview.redd.it/38l20ayooxkg1.png?width=640&crop=smart&auto=webp&s=7d170bf0c1ea7fbb8919c883e979953077e8d2a5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
