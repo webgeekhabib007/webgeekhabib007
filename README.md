@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I recently rewatched Making Fiends and found a new memeable shot!**  
-<img src="https://preview.redd.it/ptckyg23d2lg1.png?width=1080&crop=smart&auto=webp&s=0ae3949047cf74b3302d951b6a1bcdc97aa6543e" alt="Random Meme" width="500"/>
+**"Talk to your neighbors"**  
+<img src="https://preview.redd.it/57m50lfcs2lg1.png?width=1080&crop=smart&auto=webp&s=4990cd073017073884faefe46cd068de8bd20e7b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
