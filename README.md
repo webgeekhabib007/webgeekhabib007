@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/tn2csuqi73lg1.png?width=320&crop=smart&auto=webp&s=50b59f1a4fbe45c6ea1e0c9e0d0ea269c11488db" alt="Random Meme" width="500"/>
+**I recently rewatched Making Fiends and found a new memeable shot!**  
+<img src="https://preview.redd.it/ptckyg23d2lg1.png?width=1080&crop=smart&auto=webp&s=0ae3949047cf74b3302d951b6a1bcdc97aa6543e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
