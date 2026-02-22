@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/1zndw2p8sxkg1.png?width=1080&crop=smart&auto=webp&s=dfe8afa7b42348a7860dc5dba0c6f7f38d3c5aaa" alt="Random Meme" width="500"/>
+**Don’t you guys know about Minor Monday**  
+<img src="https://preview.redd.it/r10jxh3ydokg1.gif?width=640&crop=smart&format=png8&s=d112f6defe0f7af951943f7f825a22fca8fa25bb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
