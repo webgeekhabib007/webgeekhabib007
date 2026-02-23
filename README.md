@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Subtle as a brick through a window.**  
-<img src="https://preview.redd.it/5e1mkf3zz2lg1.gif?width=320&crop=smart&format=png8&s=2b8823d1086ad6208db64fb0e2c5d9a07372ae1e" alt="Random Meme" width="500"/>
+**You guys know we know names already right?**  
+<img src="https://preview.redd.it/evm8il5pcpkg1.png?width=960&crop=smart&auto=webp&s=d13ffbc6b5df65d363c2f80de41a486ac444b280" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
