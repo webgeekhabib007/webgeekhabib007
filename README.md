@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/tzy5te8v89lg1.png?width=320&crop=smart&auto=webp&s=3546ab0f36f07818803b6ea3a00b1b8ce7a66c6f" alt="Random Meme" width="500"/>
+**Apparently Family Guy misled us**  
+<img src="https://preview.redd.it/3qowxsu1yalg1.png?width=1080&crop=smart&auto=webp&s=536edce88a19b512d098f2aec685a58135822135" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
