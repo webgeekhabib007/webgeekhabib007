@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/mfgf14xmf2lg1.gif?width=320&crop=smart&format=png8&s=dc5a318199084aaa93970b028a057470512f926c" alt="Random Meme" width="500"/>
+**Those notifications now mostly remind me how much I don't give af**  
+<img src="https://preview.redd.it/826k9wuy34lg1.png?width=640&crop=smart&auto=webp&s=4590a078499625962b9b71c00e85b43e27479944" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
