@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Seems familiar**  
-<img src="https://preview.redd.it/m1l1oxwp8alg1.png?width=640&crop=smart&auto=webp&s=dd025c5d34a1a046e30be1abdeda6ad2fa5d2e2c" alt="Random Meme" width="500"/>
+**the future looks grim.**  
+<img src="https://preview.redd.it/6hildaxcuokg1.png?width=1080&crop=smart&auto=webp&s=4ed7b85ac88dab2934b72e1e18725ade1aac3697" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
