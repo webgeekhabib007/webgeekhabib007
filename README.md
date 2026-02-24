@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the future looks grim.**  
-<img src="https://preview.redd.it/6hildaxcuokg1.png?width=1080&crop=smart&auto=webp&s=4ed7b85ac88dab2934b72e1e18725ade1aac3697" alt="Random Meme" width="500"/>
+**Subtle as a brick through a window.**  
+<img src="https://preview.redd.it/5e1mkf3zz2lg1.gif?width=320&crop=smart&format=png8&s=2b8823d1086ad6208db64fb0e2c5d9a07372ae1e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
