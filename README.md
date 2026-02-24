@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**All set for the alien discourse in the Summer**  
-<img src="https://preview.redd.it/fyofyxbrnflg1.png?width=640&crop=smart&auto=webp&s=07c928a64cd23d4510e17adc05c22f9079e4e356" alt="Random Meme" width="500"/>
+**Climate insurance crisis explained**  
+<img src="https://preview.redd.it/34qber0o3hlg1.png?width=1080&crop=smart&auto=webp&s=1d2acffa9b301948ff95a43c7349d9755e106cf7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
