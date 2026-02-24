@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Subtle as a brick through a window.**  
-<img src="https://preview.redd.it/5e1mkf3zz2lg1.gif?width=320&crop=smart&format=png8&s=2b8823d1086ad6208db64fb0e2c5d9a07372ae1e" alt="Random Meme" width="500"/>
+**classic maneuver, old sport**  
+<img src="https://preview.redd.it/h2ev46fzrpkg1.png?width=320&crop=smart&auto=webp&s=eba1c44f7fd9fd1af10ffd1fc2c2891978fc983e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
