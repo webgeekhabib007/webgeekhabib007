@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/b2rjzu1smblg1.png?width=640&crop=smart&auto=webp&s=874e869aad1f65e9ff36394aa536447ce9a58e67" alt="Random Meme" width="500"/>
+**I legit once scrolled for an hour while my laptop stayed on the lock screen.**  
+<img src="https://preview.redd.it/7i2j7695ujlg1.png?width=320&crop=smart&auto=webp&s=a7fcb01f806ea50e7762703aecfec38fe777b8c6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
