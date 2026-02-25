@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/asu3zpbsr9lg1.png?width=960&crop=smart&auto=webp&s=900299e9661bdcdf3452ff044062354f8833eb37" alt="Random Meme" width="500"/>
+**Climate insurance crisis explained**  
+<img src="https://preview.redd.it/34qber0o3hlg1.png?width=1080&crop=smart&auto=webp&s=1d2acffa9b301948ff95a43c7349d9755e106cf7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
