@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Trinity Youtubers**  
-<img src="https://preview.redd.it/e8izznff4olg1.png?width=320&crop=smart&auto=webp&s=ad471a73ad74351095e7faae008cba8d0e217c64" alt="Random Meme" width="500"/>
+**I think humanity might have already lost any chance of surviving to 2500**  
+<img src="https://preview.redd.it/k7vt0lo0yolg1.gif?width=216&crop=smart&format=png8&s=85f697093dc03c8a012aa8c946e846e34c859b66" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
