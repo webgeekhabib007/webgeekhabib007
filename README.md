@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/fen9ytwz5llg1.png?width=640&crop=smart&auto=webp&s=74f01a694fff55761aa6f0510258c3808be0ee17" alt="Random Meme" width="500"/>
+**Most People Are Fake ASF Anyways**  
+<img src="https://preview.redd.it/84pv26yp9llg1.png?width=1080&crop=smart&auto=webp&s=143d58cc6d3fa7d245263301b2d40c20d3e6074e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
