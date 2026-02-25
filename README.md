@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I legit once scrolled for an hour while my laptop stayed on the lock screen.**  
-<img src="https://preview.redd.it/7i2j7695ujlg1.png?width=320&crop=smart&auto=webp&s=a7fcb01f806ea50e7762703aecfec38fe777b8c6" alt="Random Meme" width="500"/>
+**Trinity Youtubers**  
+<img src="https://preview.redd.it/e8izznff4olg1.png?width=320&crop=smart&auto=webp&s=ad471a73ad74351095e7faae008cba8d0e217c64" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
