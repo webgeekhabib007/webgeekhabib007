@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**They had a valid reason to crash out...**  
-<img src="https://preview.redd.it/h9z4p86ah0lg1.gif?width=320&crop=smart&format=png8&s=97f45f74cd269134f81fa6b16804b4126f452e03" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/lrrsrwl26llg1.png?width=640&crop=smart&auto=webp&s=bf4b107df78a8fa02a706f87c2c8fbed9ac03474" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
