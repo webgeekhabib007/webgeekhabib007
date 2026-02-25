@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How does it make sense?!**  
-<img src="https://preview.redd.it/ton2pex4dzkg1.png?width=640&crop=smart&auto=webp&s=b70177b825eb9552ff55f13a74c88af89ca631d4" alt="Random Meme" width="500"/>
+**the annoying wrinkles**  
+<img src="https://preview.redd.it/1pqs7drk5mlg1.png?width=960&crop=smart&auto=webp&s=1401004d37f3c8eb3ebb1c9a79bb66aed3855cf4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
