@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I think humanity might have already lost any chance of surviving to 2500**  
-<img src="https://preview.redd.it/k7vt0lo0yolg1.gif?width=216&crop=smart&format=png8&s=85f697093dc03c8a012aa8c946e846e34c859b66" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/fen9ytwz5llg1.png?width=640&crop=smart&auto=webp&s=74f01a694fff55761aa6f0510258c3808be0ee17" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
