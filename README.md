@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**what a neat idea, but how about : no**  
-<img src="https://preview.redd.it/9cw51kd12ilg1.png?width=640&crop=smart&auto=webp&s=76692f2b52a1aa2cc2c8eebc60fc1027ef9c676a" alt="Random Meme" width="500"/>
+**We're cooked**  
+<img src="https://preview.redd.it/n5esbca4btlg1.gif?width=216&crop=smart&format=png8&s=6f64f709a38b9657d006d0ecd6a7825a5c121631" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
