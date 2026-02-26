@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Vicious circle of pirate websites.**  
-<img src="https://preview.redd.it/ypoq7p2llglg1.png?width=960&crop=smart&auto=webp&s=6072e15b8382d987e20e4f86449516d157f8c110" alt="Random Meme" width="500"/>
+**"Babe, it was a joke. Please put the table down."**  
+<img src="https://preview.redd.it/se7qxcj0ndlg1.png?width=640&crop=smart&auto=webp&s=bb95427a34c295539b8c69a52d85c17b0f039945" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
