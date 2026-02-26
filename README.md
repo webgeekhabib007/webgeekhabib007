@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It is still Pourable**  
-<img src="https://preview.redd.it/t0313pw6crlg1.png?width=640&crop=smart&auto=webp&s=73714c6d7cafd9a3090bdd30fd56fddd525c935a" alt="Random Meme" width="500"/>
+**Winning at life again**  
+<img src="https://preview.redd.it/ei1ram963olg1.gif?width=640&crop=smart&format=png8&s=e052183b2f869ba045002752f770a46cdbe06ab3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
