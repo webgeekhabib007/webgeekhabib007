@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**When PETA goes a step too far**  
-<img src="https://preview.redd.it/bhqm90n78jlg1.png?width=640&crop=smart&auto=webp&s=e1bf0aadc087eb6220ad3fa19c959230f23944dd" alt="Random Meme" width="500"/>
+**what a neat idea, but how about : no**  
+<img src="https://preview.redd.it/9cw51kd12ilg1.png?width=640&crop=smart&auto=webp&s=76692f2b52a1aa2cc2c8eebc60fc1027ef9c676a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
