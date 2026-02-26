@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We're cooked**  
-<img src="https://preview.redd.it/n5esbca4btlg1.gif?width=216&crop=smart&format=png8&s=6f64f709a38b9657d006d0ecd6a7825a5c121631" alt="Random Meme" width="500"/>
+**A man once said: The surest sign of intelligent life in space is that none of them want to come anywhere near us.**  
+<img src="https://preview.redd.it/h020dhyewklg1.gif?width=216&crop=smart&format=png8&s=cd9c5eed7bb7a6d3291dc66ec6a7bb70e568c616" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
