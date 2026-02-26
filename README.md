@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Universal guide for buying anything in today's society.**  
-<img src="https://preview.redd.it/cq3gw51stolg1.png?width=1080&crop=smart&auto=webp&s=c1c0672967a0af8572226998e5f200e8aeb315dc" alt="Random Meme" width="500"/>
+**When PETA goes a step too far**  
+<img src="https://preview.redd.it/bhqm90n78jlg1.png?width=640&crop=smart&auto=webp&s=e1bf0aadc087eb6220ad3fa19c959230f23944dd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
