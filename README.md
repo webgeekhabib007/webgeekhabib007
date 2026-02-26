@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Today I learned that there is a Scrubs revival in 2026!**  
-<img src="https://preview.redd.it/rjbh0si14vlg1.png?width=640&crop=smart&auto=webp&s=4e1b687d58ebe0cff783c333c934049ff09226a1" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/gid53v31zhlg1.png?width=640&crop=smart&auto=webp&s=6855f84c5fa1bb488fff571814ac5c5a9316f2ec" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
