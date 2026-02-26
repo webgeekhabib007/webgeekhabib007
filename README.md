@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Universal guide for buying anything in today's society.**  
-<img src="https://preview.redd.it/cq3gw51stolg1.png?width=1080&crop=smart&auto=webp&s=c1c0672967a0af8572226998e5f200e8aeb315dc" alt="Random Meme" width="500"/>
+**It is still Pourable**  
+<img src="https://preview.redd.it/t0313pw6crlg1.png?width=640&crop=smart&auto=webp&s=73714c6d7cafd9a3090bdd30fd56fddd525c935a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
