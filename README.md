@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**a winner is you**  
-<img src="https://preview.redd.it/6dlszmajollg1.png?width=320&crop=smart&auto=webp&s=c237cf54d107da59cad13a07b2866774aff228ce" alt="Random Meme" width="500"/>
+**Universal guide for buying anything in today's society.**  
+<img src="https://preview.redd.it/cq3gw51stolg1.png?width=1080&crop=smart&auto=webp&s=c1c0672967a0af8572226998e5f200e8aeb315dc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
