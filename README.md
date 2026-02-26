@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/gid53v31zhlg1.png?width=640&crop=smart&auto=webp&s=6855f84c5fa1bb488fff571814ac5c5a9316f2ec" alt="Random Meme" width="500"/>
+**So much talent being wasted**  
+<img src="https://preview.redd.it/wzqbv9g2t9lg1.gif?width=640&crop=smart&format=png8&s=6f2fe1d941c5c8caa4a278c22f6093b467a8a36e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
