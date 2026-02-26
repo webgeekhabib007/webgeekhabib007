@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A man once said: The surest sign of intelligent life in space is that none of them want to come anywhere near us.**  
-<img src="https://preview.redd.it/h020dhyewklg1.gif?width=216&crop=smart&format=png8&s=cd9c5eed7bb7a6d3291dc66ec6a7bb70e568c616" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/nlxtqdr16jlg1.png?width=320&crop=smart&auto=webp&s=8ccdc70d0fd682f3a4d8672d162aa3e0cdf3c1a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
