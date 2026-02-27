@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Civil engineers be like**  
-<img src="https://preview.redd.it/mjo4ix0nr1mg1.png?width=1080&crop=smart&auto=webp&s=3d81ffe27740ba7cad3172bbc5cf59970346389d" alt="Random Meme" width="500"/>
+**Is this a title?**  
+<img src="https://preview.redd.it/hsque2togslg1.png?width=640&crop=smart&auto=webp&s=306b91f612a5759e5d6ec8f8f1e58058f760486c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
