@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am a dead man**  
-<img src="https://preview.redd.it/rm7otje8z0mg1.png?width=1080&crop=smart&auto=webp&s=38374fdb92582068ee9fc4dc8ed687988bf7e696" alt="Random Meme" width="500"/>
+**what a neat idea, but how about : no**  
+<img src="https://preview.redd.it/9cw51kd12ilg1.png?width=640&crop=smart&auto=webp&s=76692f2b52a1aa2cc2c8eebc60fc1027ef9c676a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
