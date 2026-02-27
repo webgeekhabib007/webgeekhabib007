@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/26govh6mqulg1.gif?width=320&crop=smart&format=png8&s=dce3a5a261f38d0d5c999cd01d3ffa4f5c40b60d" alt="Random Meme" width="500"/>
+**"You're not affiliated with me!"**  
+<img src="https://preview.redd.it/dwa9q6s8kvlg1.png?width=640&crop=smart&auto=webp&s=35e70157daf2f80a5454c9062b91375badeed008" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
