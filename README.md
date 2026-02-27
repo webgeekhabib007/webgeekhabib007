@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Never Forget**  
-<img src="https://preview.redd.it/cdy4nkab9qlg1.png?width=640&crop=smart&auto=webp&s=431d357b6b5ae67c37043b4184fdcbff4a0d51e4" alt="Random Meme" width="500"/>
+**I am a dead man**  
+<img src="https://preview.redd.it/rm7otje8z0mg1.png?width=1080&crop=smart&auto=webp&s=38374fdb92582068ee9fc4dc8ed687988bf7e696" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
