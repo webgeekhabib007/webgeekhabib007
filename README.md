@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta position them in the perfect spot**  
-<img src="https://preview.redd.it/8778vr61pwlg1.gif?width=216&crop=smart&format=png8&s=17165fe2b5f762e3689eb7ad16b26f1b9ffb303f" alt="Random Meme" width="500"/>
+**What A Creep!**  
+<img src="https://preview.redd.it/0sqznzw78vlg1.png?width=1080&crop=smart&auto=webp&s=7ec241357feb4146f3a7c9d8ac9ee449d3412577" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
