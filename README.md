@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Tik tok is against equality**  
-<img src="https://preview.redd.it/8jm5zd7hs4mg1.png?width=1080&crop=smart&auto=webp&s=0d98012cb7ab5a7ed797f8252145e69e66e64ef7" alt="Random Meme" width="500"/>
+**genius Plan**  
+<img src="https://preview.redd.it/wl1hkgm6q7mg1.png?width=640&crop=smart&auto=webp&s=2dad1258b7dbb95ccdc737c5e4ca26363772767b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
