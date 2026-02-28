@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Everybody loses their minds**  
-<img src="https://preview.redd.it/nf1kjl5553mg1.gif?width=320&crop=smart&format=png8&s=02495b363a6aebc9694eaf56feaccba3240ba98e" alt="Random Meme" width="500"/>
+**genius Plan**  
+<img src="https://preview.redd.it/wl1hkgm6q7mg1.png?width=640&crop=smart&auto=webp&s=2dad1258b7dbb95ccdc737c5e4ca26363772767b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
