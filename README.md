@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/0fdplj3ehwlg1.png?width=1080&crop=smart&auto=webp&s=7671fdcea5688323d7020222c5c277648edcf2fe" alt="Random Meme" width="500"/>
+**is the stereotype real**  
+<img src="https://preview.redd.it/3atkqsmch9mg1.png?width=320&crop=smart&auto=webp&s=9a47fad24b8e02efb41de2539a6c640e07f16015" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
