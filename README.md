@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Duality of Dads**  
-<img src="https://preview.redd.it/ilzksutb6tlg1.png?width=1080&crop=smart&auto=webp&s=23dcf993e2148aaba5d9dfa4a884d47e38a5b3da" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/7xl3oo1cf3mg1.png?width=640&crop=smart&auto=webp&s=d89f09907072b7e6739b20d55916cc5549af779d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
