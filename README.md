@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta look calm**  
-<img src="https://preview.redd.it/xw3pp8gz02mg1.gif?width=320&crop=smart&format=png8&s=b8fe1dcdd0c7ba322f8b38f771d1a992f99ab754" alt="Random Meme" width="500"/>
+**Can someone confirm if this banana is trying to talk to me**  
+<img src="https://preview.redd.it/z7h4km29cwlg1.png?width=1080&crop=smart&auto=webp&s=2a6dbf54cf7d5aa87a1169ed175dfd0c869f694f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
