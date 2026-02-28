@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**So it was all a lie**  
-<img src="https://preview.redd.it/wkwbnkibc3mg1.gif?width=640&crop=smart&format=png8&s=f4365336d4a5e589359ac5d8b6f8241ec680a4d8" alt="Random Meme" width="500"/>
+**Tik tok is against equality**  
+<img src="https://preview.redd.it/8jm5zd7hs4mg1.png?width=1080&crop=smart&auto=webp&s=0d98012cb7ab5a7ed797f8252145e69e66e64ef7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
