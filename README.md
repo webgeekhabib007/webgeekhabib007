@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**genius Plan**  
-<img src="https://preview.redd.it/wl1hkgm6q7mg1.png?width=640&crop=smart&auto=webp&s=2dad1258b7dbb95ccdc737c5e4ca26363772767b" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/mub47rihk4mg1.png?width=1080&crop=smart&auto=webp&s=40a548e84edc7e0deb3785903f3bbccdf7a6301a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
