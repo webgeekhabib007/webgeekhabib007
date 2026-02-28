@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can someone confirm if this banana is trying to talk to me**  
-<img src="https://preview.redd.it/z7h4km29cwlg1.png?width=1080&crop=smart&auto=webp&s=2a6dbf54cf7d5aa87a1169ed175dfd0c869f694f" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/iu8dmpm6imlg1.png?width=1080&crop=smart&auto=webp&s=23437b9da04169e065dac7402bf3d3cc756822c0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
