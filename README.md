@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dinasaurrr...**  
-<img src="https://preview.redd.it/8fn0ynwln1mg1.png?width=640&crop=smart&auto=webp&s=93fd0c315fa22b08d98615f4f181b4d18a6fc229" alt="Random Meme" width="500"/>
+**Duality of Dads**  
+<img src="https://preview.redd.it/ilzksutb6tlg1.png?width=1080&crop=smart&auto=webp&s=23dcf993e2148aaba5d9dfa4a884d47e38a5b3da" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
