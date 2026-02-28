@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**So much talent being wasted**  
-<img src="https://preview.redd.it/wzqbv9g2t9lg1.gif?width=640&crop=smart&format=png8&s=6f2fe1d941c5c8caa4a278c22f6093b467a8a36e" alt="Random Meme" width="500"/>
+**Dinasaurrr...**  
+<img src="https://preview.redd.it/8fn0ynwln1mg1.png?width=640&crop=smart&auto=webp&s=93fd0c315fa22b08d98615f4f181b4d18a6fc229" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
