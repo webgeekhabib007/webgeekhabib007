@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**on my day off too**  
-<img src="https://preview.redd.it/j4xgsfe4h9mg1.png?width=320&crop=smart&auto=webp&s=c78d66d7554d138d77f0bdb2ad6b03d9ece85166" alt="Random Meme" width="500"/>
+**yay for violence**  
+<img src="https://preview.redd.it/1z9cel34dwlg1.png?width=640&crop=smart&auto=webp&s=530d888bd55e4f89611f382e485fb59bec2bb2c1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
