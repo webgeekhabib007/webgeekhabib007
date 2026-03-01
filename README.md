@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Everyone wasting their money on AI**  
-<img src="https://preview.redd.it/lfg8t9hk4cmg1.png?width=640&crop=smart&auto=webp&s=59b8b599c98260cd1488f9298b5ea1eb8b2802c8" alt="Random Meme" width="500"/>
+**It do be like that.**  
+<img src="https://preview.redd.it/j93x4gkc2emg1.png?width=960&crop=smart&auto=webp&s=f1a5fe2519858d08a835198986937086b246540c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
