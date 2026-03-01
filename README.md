@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Double tap by the weather.**  
-<img src="https://preview.redd.it/zp1oq1865dmg1.gif?width=640&crop=smart&format=png8&s=88cf89667289733a94ea8cd40f00a370598838f0" alt="Random Meme" width="500"/>
+**even colors have feelings...**  
+<img src="https://preview.redd.it/zdh58u1btbmg1.png?width=320&crop=smart&auto=webp&s=47646b68653fb7643c404054b8a7640c3c5b5a22" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
