@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anything but that**  
-<img src="https://preview.redd.it/3av00ighvfmg1.png?width=640&crop=smart&auto=webp&s=240948dd6d8ed3408cd67bf6f03e4f3345e9d4b7" alt="Random Meme" width="500"/>
+**Double tap by the weather.**  
+<img src="https://preview.redd.it/zp1oq1865dmg1.gif?width=640&crop=smart&format=png8&s=88cf89667289733a94ea8cd40f00a370598838f0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
