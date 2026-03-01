@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yeah I'm 17**  
-<img src="https://preview.redd.it/nxy3x77bkulg1.gif?width=320&crop=smart&format=png8&s=41bfad14136467c793fa088c18b164e68475c0af" alt="Random Meme" width="500"/>
+**This is actually true**  
+<img src="https://preview.redd.it/xx91wyjw22mg1.gif?width=640&crop=smart&format=png8&s=e312c7578141d282399503aeeec7299d236bf214" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
