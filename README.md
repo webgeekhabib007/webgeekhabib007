@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chaos Mode: 1000% at 3:02AM**  
-<img src="https://preview.redd.it/bhuzhkyq3dmg1.png?width=960&crop=smart&auto=webp&s=d8eb18280aac42e491edef323bbd433ca7cef7ee" alt="Random Meme" width="500"/>
+**I understand why they do it. I don’t accept it.**  
+<img src="https://preview.redd.it/wnx0nhnat8mg1.gif?width=640&crop=smart&format=png8&s=f8b40c911bd78f941be94d57072ad79e97a2f23f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
