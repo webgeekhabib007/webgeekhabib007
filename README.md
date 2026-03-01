@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/s13ctwikt8mg1.png?width=320&crop=smart&auto=webp&s=5f4e843d52204cf94f0941b42356a6ffaf31ac1f" alt="Random Meme" width="500"/>
+**Paramount just won the deal to acquire Warner Bros. I sure hope the billionaire owner of Paramount hasn't had any spicy takes about AI surveillance states and constant civilian monitoring!**  
+<img src="https://preview.redd.it/6vjo5t2c6ylg1.png?width=1080&crop=smart&auto=webp&s=77cc075c16f98c5dfe727bb8be64b551c0ca52ee" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
