@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The future I never imagined**  
-<img src="https://preview.redd.it/td8rz98dolmg1.gif?width=640&crop=smart&format=png8&s=f156cd287db9bdf52f9a8801db02450130faa98b" alt="Random Meme" width="500"/>
+**Plus Low taper fade for all recruits for infinite Aura**  
+<img src="https://preview.redd.it/501amy3pmfmg1.gif?width=320&crop=smart&format=png8&s=8efb9b50b5b47be2a55585dd7cb1ca2bb6a42997" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
