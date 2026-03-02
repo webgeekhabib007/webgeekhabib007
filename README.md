@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why was shrek so ahead of its time?**  
-<img src="https://preview.redd.it/l82a8f2jf7mg1.gif?width=320&crop=smart&format=png8&s=ca6f6c71db228af0c07f84d173e40f9a1ec0ce45" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2iijnto5ramg1.gif?width=640&crop=smart&format=png8&s=df55991b7205ab19ba060653fe192d3b15bd57c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
