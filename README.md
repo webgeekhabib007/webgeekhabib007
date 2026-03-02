@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Holy Tacos**  
-<img src="https://preview.redd.it/sn8hwxa75zlg1.gif?width=640&crop=smart&format=png8&s=221fbda88f3b00dd337356b967313e2ee5afb10b" alt="Random Meme" width="500"/>
+**yay for violence**  
+<img src="https://preview.redd.it/1z9cel34dwlg1.png?width=640&crop=smart&auto=webp&s=530d888bd55e4f89611f382e485fb59bec2bb2c1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
