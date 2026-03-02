@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/vgjb2djoynmg1.png?width=1080&crop=smart&auto=webp&s=2a411e0a311358f8b3d7a9b00cbbc5c2eb66cb81" alt="Random Meme" width="500"/>
+**what actually is air defence doing**  
+<img src="https://preview.redd.it/rgpniar4bomg1.png?width=1080&crop=smart&auto=webp&s=cc5b4080777162f16bbc079c22d01c5d50bbe4b3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
