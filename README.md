@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**IM SO SICK OF THESE COMPANIES AUUUUUUUUUGH!!!!**  
-<img src="https://preview.redd.it/gf4ihfcwjjmg1.png?width=320&crop=smart&auto=webp&s=21a829b8e699842e3fd0fb6e7b02b6bbc52f57ef" alt="Random Meme" width="500"/>
+**Why was shrek so ahead of its time?**  
+<img src="https://preview.redd.it/l82a8f2jf7mg1.gif?width=320&crop=smart&format=png8&s=ca6f6c71db228af0c07f84d173e40f9a1ec0ce45" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
