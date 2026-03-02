@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/m6g8ag41u6mg1.png?width=960&crop=smart&auto=webp&s=b558ec84932103172f2b4f20106b5b3ce2e2b055" alt="Random Meme" width="500"/>
+**Takes the whole WW3 for me to post some OC here again**  
+<img src="https://preview.redd.it/ecvq4aa8xkmg1.png?width=320&crop=smart&auto=webp&s=76043a31b671c8573529328720136145bbf98f19" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
