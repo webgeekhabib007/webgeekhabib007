@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hope you are not dating one of these**  
-<img src="https://preview.redd.it/l8vfspx8dnmg1.png?width=960&crop=smart&auto=webp&s=a94cefc7d9f1dba0cf892aae2673bbdec4198c4c" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2iijnto5ramg1.gif?width=640&crop=smart&format=png8&s=df55991b7205ab19ba060653fe192d3b15bd57c8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
