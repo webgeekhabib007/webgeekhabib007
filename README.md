@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hell Yeah...**  
-<img src="https://preview.redd.it/gbs9v0rrqmmg1.png?width=640&crop=smart&auto=webp&s=dc649f129f3d8686ade6c09c682f96468d79e777" alt="Random Meme" width="500"/>
+**Hope you are not dating one of these**  
+<img src="https://preview.redd.it/l8vfspx8dnmg1.png?width=960&crop=smart&auto=webp&s=a94cefc7d9f1dba0cf892aae2673bbdec4198c4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
