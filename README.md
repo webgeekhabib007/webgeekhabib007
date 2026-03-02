@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Takes the whole WW3 for me to post some OC here again**  
-<img src="https://preview.redd.it/ecvq4aa8xkmg1.png?width=320&crop=smart&auto=webp&s=76043a31b671c8573529328720136145bbf98f19" alt="Random Meme" width="500"/>
+**IM SO SICK OF THESE COMPANIES AUUUUUUUUUGH!!!!**  
+<img src="https://preview.redd.it/gf4ihfcwjjmg1.png?width=320&crop=smart&auto=webp&s=21a829b8e699842e3fd0fb6e7b02b6bbc52f57ef" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
