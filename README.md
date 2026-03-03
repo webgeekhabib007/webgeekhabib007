@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Say "shareholder value" one more time, rich boy. I dare you.**  
-<img src="https://preview.redd.it/7ceb44fa9vmg1.png?width=960&crop=smart&auto=webp&s=9301c1a2c73e0e2848e76c18032d2481cf157a7e" alt="Random Meme" width="500"/>
+**Holy time loop**  
+<img src="https://preview.redd.it/hzcposxj2smg1.gif?width=216&crop=smart&format=png8&s=433570c24e417863c1267a1b1012a75ae483ac62" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
