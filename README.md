@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How my first day at fast food became my last day.**  
-<img src="https://preview.redd.it/tc23nj5u6qmg1.png?width=1080&crop=smart&auto=webp&s=eacb84b6df19b7daefe28929c0311c3b5b1cf955" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/2xcicn84qkmg1.png?width=640&crop=smart&auto=webp&s=2c711db60f05ef8020f37709bd8b841f1d96b30b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
