@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Historical events go bbbbbrrrrrtttt**  
-<img src="https://preview.redd.it/m5pbfv5p5gmg1.png?width=640&crop=smart&auto=webp&s=1fd05919c7d004925b755a52d97b580ca063c6a9" alt="Random Meme" width="500"/>
+**Hope you are not dating one of these**  
+<img src="https://preview.redd.it/l8vfspx8dnmg1.png?width=960&crop=smart&auto=webp&s=a94cefc7d9f1dba0cf892aae2673bbdec4198c4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
