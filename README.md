@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There are good and bad things, but I only see the positive :**  
-<img src="https://preview.redd.it/18s47hj2opmg1.png?width=320&crop=smart&auto=webp&s=2c1861ff82b047266ac57bc508f9aded2c1dc137" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/vgjb2djoynmg1.png?width=1080&crop=smart&auto=webp&s=2a411e0a311358f8b3d7a9b00cbbc5c2eb66cb81" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
