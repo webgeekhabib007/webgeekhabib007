@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It could happen**  
-<img src="https://preview.redd.it/m7vgxvctrumg1.png?width=1080&crop=smart&auto=webp&s=41d501aac911343150afc2dafe326b7e95282fda" alt="Random Meme" width="500"/>
+**bro needed to go outside while his phone recharge**  
+<img src="https://preview.redd.it/dkzkyhp7zsmg1.png?width=960&crop=smart&auto=webp&s=2ccf18ac258af9baa0f28c2d18b030affb3cbdf2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
