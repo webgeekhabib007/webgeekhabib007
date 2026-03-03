@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**i thought it'd just be ice cream whenever i want**  
-<img src="https://preview.redd.it/19v8w7j20pmg1.png?width=1080&crop=smart&auto=webp&s=49af6ecd7e747a7985178f595f5c22a65c2c1615" alt="Random Meme" width="500"/>
+**There are good and bad things, but I only see the positive :**  
+<img src="https://preview.redd.it/18s47hj2opmg1.png?width=320&crop=smart&auto=webp&s=2c1861ff82b047266ac57bc508f9aded2c1dc137" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
