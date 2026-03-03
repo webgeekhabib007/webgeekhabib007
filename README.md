@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**bro needed to go outside while his phone recharge**  
-<img src="https://preview.redd.it/dkzkyhp7zsmg1.png?width=960&crop=smart&auto=webp&s=2ccf18ac258af9baa0f28c2d18b030affb3cbdf2" alt="Random Meme" width="500"/>
+**Historical events go bbbbbrrrrrtttt**  
+<img src="https://preview.redd.it/m5pbfv5p5gmg1.png?width=640&crop=smart&auto=webp&s=1fd05919c7d004925b755a52d97b580ca063c6a9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
