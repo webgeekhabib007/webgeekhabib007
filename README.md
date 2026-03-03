@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Shoutout To Our Boy Joey Swoll!**  
-<img src="https://preview.redd.it/i87sjnubztmg1.png?width=1080&crop=smart&auto=webp&s=d4a7eb96cd87ae0a9d295914a0369718dbf551ff" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/kzo2cu3u7tmg1.png?width=960&crop=smart&auto=webp&s=457799ffeca4aef610eeebd410bb98619e8f1593" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
