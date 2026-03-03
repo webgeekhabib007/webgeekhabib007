@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/2xcicn84qkmg1.png?width=640&crop=smart&auto=webp&s=2c711db60f05ef8020f37709bd8b841f1d96b30b" alt="Random Meme" width="500"/>
+**i thought it'd just be ice cream whenever i want**  
+<img src="https://preview.redd.it/19v8w7j20pmg1.png?width=1080&crop=smart&auto=webp&s=49af6ecd7e747a7985178f595f5c22a65c2c1615" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
