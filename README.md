@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't we settle this over pizza?**  
-<img src="https://preview.redd.it/i13icfootrmg1.gif?width=320&crop=smart&format=png8&s=29a4f90e8ec3b03debaa418cf3122154c736b8c6" alt="Random Meme" width="500"/>
+**Shoutout To Our Boy Joey Swoll!**  
+<img src="https://preview.redd.it/i87sjnubztmg1.png?width=1080&crop=smart&auto=webp&s=d4a7eb96cd87ae0a9d295914a0369718dbf551ff" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
