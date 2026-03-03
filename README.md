@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Holy time loop**  
-<img src="https://preview.redd.it/hzcposxj2smg1.gif?width=216&crop=smart&format=png8&s=433570c24e417863c1267a1b1012a75ae483ac62" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/q91c4hy5kcmg1.png?width=640&crop=smart&auto=webp&s=3479a2ceba4de916ea7088433155d47179939367" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
