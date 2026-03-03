@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hope you are not dating one of these**  
-<img src="https://preview.redd.it/l8vfspx8dnmg1.png?width=960&crop=smart&auto=webp&s=a94cefc7d9f1dba0cf892aae2673bbdec4198c4c" alt="Random Meme" width="500"/>
+**Say "shareholder value" one more time, rich boy. I dare you.**  
+<img src="https://preview.redd.it/7ceb44fa9vmg1.png?width=960&crop=smart&auto=webp&s=9301c1a2c73e0e2848e76c18032d2481cf157a7e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
