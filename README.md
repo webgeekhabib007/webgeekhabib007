@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/q91c4hy5kcmg1.png?width=640&crop=smart&auto=webp&s=3479a2ceba4de916ea7088433155d47179939367" alt="Random Meme" width="500"/>
+**A musical title.**  
+<img src="https://preview.redd.it/i02z4p28vrmg1.png?width=640&crop=smart&auto=webp&s=a3c51e9c5daa9c257be8e77e197f423e14224443" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
