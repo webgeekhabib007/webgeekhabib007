@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am tired of Earth.**  
-<img src="https://preview.redd.it/urukvrhuutmg1.png?width=1080&crop=smart&auto=webp&s=1520814230333a2845727661ca1c065ca07bdae7" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/1nwa2r4wkymg1.png?width=640&crop=smart&auto=webp&s=eedfd90ea78bac988bc8e58e81f7e0ad39ca7345" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
