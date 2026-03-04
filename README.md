@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/3cjdu2j47wmg1.png?width=1080&crop=smart&auto=webp&s=ef95a8e1c33d81bbebaeb87501f8b6531f03b9df" alt="Random Meme" width="500"/>
+**Most people can't even reach the Fermi approximation of my intelligence quotient**  
+<img src="https://external-preview.redd.it/FTkIfHmHwO3eR-qvaq3zOUzHb3YhfcKxk1L1reXG_Wo.jpeg?width=216&crop=smart&auto=webp&s=55a474a809e8439aeba62daa00155afec2962964" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
