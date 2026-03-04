@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The movie shows battles with trenches...**  
-<img src="https://preview.redd.it/jkxsmy1mhkmg1.png?width=1080&crop=smart&auto=webp&s=63abe4fe178d2221d2006bc0c0592b32f742ad8d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3cjdu2j47wmg1.png?width=1080&crop=smart&auto=webp&s=ef95a8e1c33d81bbebaeb87501f8b6531f03b9df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
