@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Straight up downgrade**  
-<img src="https://preview.redd.it/j06gwy3c4tmg1.png?width=1080&crop=smart&auto=webp&s=b5306210ce61b6608f1f72de925c71c0ae64108e" alt="Random Meme" width="500"/>
+**He is never going recover from this**  
+<img src="https://preview.redd.it/5h075xl5cvmg1.gif?width=320&crop=smart&format=png8&s=7a0f40f9292a3b67ca8da6b3ddc6bef3b23947fe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
