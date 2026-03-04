@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Used to the Roman traffic enforcement…**  
-<img src="https://preview.redd.it/eoomfwoyjgmg1.gif?width=640&crop=smart&format=png8&s=278afe7c76c39060f6b22f2071203809148ce4ab" alt="Random Meme" width="500"/>
+**You have no power now**  
+<img src="https://preview.redd.it/z6vfe82nqymg1.png?width=1080&crop=smart&auto=webp&s=36eceb8907dc429ee05e331e664a130c77b12f78" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
