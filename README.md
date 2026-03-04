@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/3cjdu2j47wmg1.png?width=1080&crop=smart&auto=webp&s=ef95a8e1c33d81bbebaeb87501f8b6531f03b9df" alt="Random Meme" width="500"/>
+**Step aside goth girls, there's a new gooner trend in town**  
+<img src="https://preview.redd.it/do2d0a2x8lmg1.png?width=320&crop=smart&auto=webp&s=ce2c27fe0d58ccd15253e334ee75958a7df3943c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
