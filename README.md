@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You have no power now**  
-<img src="https://preview.redd.it/z6vfe82nqymg1.png?width=1080&crop=smart&auto=webp&s=36eceb8907dc429ee05e331e664a130c77b12f78" alt="Random Meme" width="500"/>
+**I am tired of Earth.**  
+<img src="https://preview.redd.it/urukvrhuutmg1.png?width=1080&crop=smart&auto=webp&s=1520814230333a2845727661ca1c065ca07bdae7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
