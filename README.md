@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**He is never going recover from this**  
-<img src="https://preview.redd.it/5h075xl5cvmg1.gif?width=320&crop=smart&format=png8&s=7a0f40f9292a3b67ca8da6b3ddc6bef3b23947fe" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3cjdu2j47wmg1.png?width=1080&crop=smart&auto=webp&s=ef95a8e1c33d81bbebaeb87501f8b6531f03b9df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
