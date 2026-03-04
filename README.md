@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/1nwa2r4wkymg1.png?width=640&crop=smart&auto=webp&s=eedfd90ea78bac988bc8e58e81f7e0ad39ca7345" alt="Random Meme" width="500"/>
+**Plus Low taper fade for all recruits for infinite Aura**  
+<img src="https://preview.redd.it/501amy3pmfmg1.gif?width=320&crop=smart&format=png8&s=8efb9b50b5b47be2a55585dd7cb1ca2bb6a42997" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
