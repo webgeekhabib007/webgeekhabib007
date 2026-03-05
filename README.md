@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm too old for ts**  
-<img src="https://preview.redd.it/5hqs8rmo56ng1.gif?width=640&crop=smart&format=png8&s=c889319182c0da978de184d582947b59ddd8c6a4" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/kzo2cu3u7tmg1.png?width=960&crop=smart&auto=webp&s=457799ffeca4aef610eeebd410bb98619e8f1593" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
