@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't we settle this over pizza?**  
-<img src="https://preview.redd.it/i13icfootrmg1.gif?width=320&crop=smart&format=png8&s=29a4f90e8ec3b03debaa418cf3122154c736b8c6" alt="Random Meme" width="500"/>
+**Only 2, there are. No more, no less.**  
+<img src="https://preview.redd.it/wpo04vwji5ng1.png?width=640&crop=smart&auto=webp&s=37b2c8ee823279dcd5eb8f8e0cf324bf642b494b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
