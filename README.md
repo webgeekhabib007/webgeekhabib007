@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**(i still eat it anyway)**  
-<img src="https://preview.redd.it/8cjao01ip5ng1.png?width=320&crop=smart&auto=webp&s=3488aa08b6a8af926058910c2a1726b0683061fb" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5e9f43w8awmg1.png?width=320&crop=smart&auto=webp&s=4d060c118a3e9efd68b13d520eb2aa159d23810c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
