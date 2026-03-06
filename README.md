@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I mean, if you think about it, that would solve the problem**  
-<img src="https://preview.redd.it/f0as5w974ang1.png?width=1080&crop=smart&auto=webp&s=71ab5e908aaebc70dcf108fcd1e0527fa3300f8d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3cjdu2j47wmg1.png?width=1080&crop=smart&auto=webp&s=ef95a8e1c33d81bbebaeb87501f8b6531f03b9df" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
