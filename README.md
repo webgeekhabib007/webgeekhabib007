@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just 3 simple reassons**  
-<img src="https://preview.redd.it/hmu4953mabng1.gif?width=216&crop=smart&format=png8&s=96bfb6788dad7e8b171010243239bcaabc377a06" alt="Random Meme" width="500"/>
+**Here, have a duck to get away from an existential crisis ☺️**  
+<img src="https://preview.redd.it/q0layqxsjbng1.png?width=640&crop=smart&auto=webp&s=d0d483486e8ef50dad4109042c62dccb7b7476c7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
