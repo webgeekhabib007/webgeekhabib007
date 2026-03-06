@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The meltdown is the best part when they say a bunch of slurs. I’ll never forget when the Friday the 13th game servers were still active and I crashed the boat onto land because a guy was being an ass.**  
-<img src="https://preview.redd.it/2lp5ye70jxmg1.gif?width=640&crop=smart&format=png8&s=f961f9dc62b447f2577a7cafc6f77449dd7a14dd" alt="Random Meme" width="500"/>
+**Ma, the AI is on drugs again.**  
+<img src="https://preview.redd.it/kc9fbmxrfcng1.png?width=640&crop=smart&auto=webp&s=f850c6c6f40a3d5d66d9f3973fccdab3fe1730e7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
