@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why yes, I do feel morally superior to the Island Visiters**  
-<img src="https://preview.redd.it/el798qidxgng1.png?width=640&crop=smart&auto=webp&s=289ce42af32bded6aea538307468c8d1d4aba1d8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/mq91ho7m79ng1.png?width=640&crop=smart&auto=webp&s=c17af862e9cda3fc87f230b6727ee64a99622eda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
