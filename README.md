@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The genius of video game logic**  
-<img src="https://preview.redd.it/d6athafnjbng1.png?width=320&crop=smart&auto=webp&s=39b7f6508e773fca2e508c85728e9a5cb4be66fd" alt="Random Meme" width="500"/>
+**What if ??**  
+<img src="https://preview.redd.it/l8pwms9d8cng1.png?width=960&crop=smart&auto=webp&s=2ae09ab25ad4443cf1b3c45503cac361704ad563" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
