@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Here, have a duck to get away from an existential crisis ☺️**  
-<img src="https://preview.redd.it/q0layqxsjbng1.png?width=640&crop=smart&auto=webp&s=d0d483486e8ef50dad4109042c62dccb7b7476c7" alt="Random Meme" width="500"/>
+**The meltdown is the best part when they say a bunch of slurs. I’ll never forget when the Friday the 13th game servers were still active and I crashed the boat onto land because a guy was being an ass.**  
+<img src="https://preview.redd.it/2lp5ye70jxmg1.gif?width=640&crop=smart&format=png8&s=f961f9dc62b447f2577a7cafc6f77449dd7a14dd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
