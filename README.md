@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm too old for ts**  
-<img src="https://preview.redd.it/5hqs8rmo56ng1.gif?width=640&crop=smart&format=png8&s=c889319182c0da978de184d582947b59ddd8c6a4" alt="Random Meme" width="500"/>
+**The genius of video game logic**  
+<img src="https://preview.redd.it/d6athafnjbng1.png?width=320&crop=smart&auto=webp&s=39b7f6508e773fca2e508c85728e9a5cb4be66fd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
