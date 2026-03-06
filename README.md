@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's bananas.**  
-<img src="https://preview.redd.it/2vtziv1861ng1.png?width=320&crop=smart&auto=webp&s=19a0094c55b6a4db670b9221c0433ce6929a7747" alt="Random Meme" width="500"/>
+**I'm too old for ts**  
+<img src="https://preview.redd.it/5hqs8rmo56ng1.gif?width=640&crop=smart&format=png8&s=c889319182c0da978de184d582947b59ddd8c6a4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
