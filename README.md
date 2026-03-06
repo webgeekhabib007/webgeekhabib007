@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What if ??**  
-<img src="https://preview.redd.it/l8pwms9d8cng1.png?width=960&crop=smart&auto=webp&s=2ae09ab25ad4443cf1b3c45503cac361704ad563" alt="Random Meme" width="500"/>
+**Crayon eating competition**  
+<img src="https://preview.redd.it/84qdu86p39ng1.png?width=320&crop=smart&auto=webp&s=f5a2f5a01826382535b11c0880d93b76df5a6b0c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
