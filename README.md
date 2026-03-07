@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gloves off today**  
-<img src="https://preview.redd.it/vwhzp6l6uing1.png?width=640&crop=smart&auto=webp&s=6ea4f6f41a5a72a6238481cab0d05b5f10a5ef61" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/cel0ejyypdng1.png?width=320&crop=smart&auto=webp&s=d0084c6861b9998214b82db4670762f42bbb8a2f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
