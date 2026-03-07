@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**There are two ways to solve this**  
-<img src="https://preview.redd.it/fakwmbevecng1.png?width=1080&crop=smart&auto=webp&s=76b7710af8ef660749447e22260c7526ee6f05a0" alt="Random Meme" width="500"/>
+**It's the Year of the Horse again**  
+<img src="https://preview.redd.it/qho433gragng1.png?width=320&crop=smart&auto=webp&s=01454554238be42dff41705678ea08d2b4bfc05d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
