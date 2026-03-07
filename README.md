@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Life's a bitch**  
-<img src="https://preview.redd.it/3xfss3o79hng1.png?width=640&crop=smart&auto=webp&s=730dfba92c5e06686aba04711fb35d4a9df307bd" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/og3ylm4h5mng1.png?width=320&crop=smart&auto=webp&s=15eb1917600c9967eb81856a199fbbc8417781b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
