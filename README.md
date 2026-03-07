@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just go back to your water land**  
-<img src="https://preview.redd.it/18hyrxab8jng1.png?width=1080&crop=smart&auto=webp&s=2d59016851a424a95534603aebf4865065a7148b" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/83ywrayining1.png?width=640&crop=smart&auto=webp&s=f2bb2316069f59570cff9a95094624316a670a9e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
