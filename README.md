@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's joever**  
-<img src="https://preview.redd.it/pgv5mimvsjng1.gif?width=640&crop=smart&format=png8&s=023c95b686480500b0d9c4fd5f09195d3632ab79" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/hxp0w1nzodng1.png?width=320&crop=smart&auto=webp&s=2499244a558aa5d577ea095e8f59364d2e5d5ebd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
