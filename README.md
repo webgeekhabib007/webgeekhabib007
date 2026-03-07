@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/hxp0w1nzodng1.png?width=320&crop=smart&auto=webp&s=2499244a558aa5d577ea095e8f59364d2e5d5ebd" alt="Random Meme" width="500"/>
+**Almost as good as Sinners**  
+<img src="https://preview.redd.it/qglwc4m03cng1.png?width=1080&crop=smart&auto=webp&s=a0fb0aeae37c77171a0c0bdb2bd2608733fd47e9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
