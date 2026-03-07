@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Crayon eating competition**  
-<img src="https://preview.redd.it/84qdu86p39ng1.png?width=320&crop=smart&auto=webp&s=f5a2f5a01826382535b11c0880d93b76df5a6b0c" alt="Random Meme" width="500"/>
+**"This isn't even my final form"**  
+<img src="https://preview.redd.it/jv6033tjgcng1.png?width=640&crop=smart&auto=webp&s=5febef8b31ca4ec69a5f3d06ca4ed94e5ca777e8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
