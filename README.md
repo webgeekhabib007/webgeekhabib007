@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Nuclear power plants are very dangerous"**  
-<img src="https://preview.redd.it/sin9y2jqw0ng1.png?width=960&crop=smart&auto=webp&s=05964fc61f6d5442c995dfcc3592746e2005c42c" alt="Random Meme" width="500"/>
+**Jeffrey Who?**  
+<img src="https://preview.redd.it/sy997f6oaong1.gif?width=320&crop=smart&format=png8&s=99b2d882ebb580b50f292bc49690ba2407d5a8ef" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
