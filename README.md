@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thank you sun!**  
-<img src="https://preview.redd.it/sr8u1alds8ng1.gif?width=640&crop=smart&format=png8&s=c3eb53370f76f4214eeeee6fc648fd9c891f3d8e" alt="Random Meme" width="500"/>
+**Life's a bitch**  
+<img src="https://preview.redd.it/3xfss3o79hng1.png?width=640&crop=smart&auto=webp&s=730dfba92c5e06686aba04711fb35d4a9df307bd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
