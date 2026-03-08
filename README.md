@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Life's a bitch**  
-<img src="https://preview.redd.it/3xfss3o79hng1.png?width=640&crop=smart&auto=webp&s=730dfba92c5e06686aba04711fb35d4a9df307bd" alt="Random Meme" width="500"/>
+**Almost as good as Sinners**  
+<img src="https://preview.redd.it/qglwc4m03cng1.png?width=1080&crop=smart&auto=webp&s=a0fb0aeae37c77171a0c0bdb2bd2608733fd47e9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
