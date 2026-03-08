@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**a small heart attack is a span of less than a second**  
-<img src="https://preview.redd.it/03yhskfeosng1.png?width=960&crop=smart&auto=webp&s=1f06bad9861069199d50f1c85223733ad9b07edb" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/ytflsrynirng1.png?width=640&crop=smart&auto=webp&s=da5e241566123ff65aa742edea31a7efd185820d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
