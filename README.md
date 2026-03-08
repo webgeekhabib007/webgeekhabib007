@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**pov you have a test tomorrow**  
-<img src="https://preview.redd.it/48jbt0pa7png1.png?width=640&crop=smart&auto=webp&s=6a463a47d98c89c27245ec41e19049f445689c21" alt="Random Meme" width="500"/>
+**It's the Year of the Horse again**  
+<img src="https://preview.redd.it/qho433gragng1.png?width=320&crop=smart&auto=webp&s=01454554238be42dff41705678ea08d2b4bfc05d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
