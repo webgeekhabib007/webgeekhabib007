@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's the Year of the Horse again**  
-<img src="https://preview.redd.it/qho433gragng1.png?width=320&crop=smart&auto=webp&s=01454554238be42dff41705678ea08d2b4bfc05d" alt="Random Meme" width="500"/>
+**OZEMPIC for weight loss**  
+<img src="https://preview.redd.it/rnq4qudgz0ng1.png?width=640&crop=smart&auto=webp&s=cf365c8c9f6b560dd0e2ad13e758fe8e12e9db52" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
