@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Give me your shittiest version of this meme**  
-<img src="https://preview.redd.it/lmbquhkykjng1.png?width=640&crop=smart&auto=webp&s=cc8c2249b7746d90a5d4ae8e42529c13f98d1de9" alt="Random Meme" width="500"/>
+**pov you have a test tomorrow**  
+<img src="https://preview.redd.it/48jbt0pa7png1.png?width=640&crop=smart&auto=webp&s=6a463a47d98c89c27245ec41e19049f445689c21" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
