@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Why did it have to be now of all times ToT**  
-<img src="https://preview.redd.it/9jvajauhjzng1.png?width=640&crop=smart&auto=webp&s=58a40d5d06b4535264406da67f46fb05b9710eae" alt="Random Meme" width="500"/>
+**Only up from here**  
+<img src="https://preview.redd.it/bpktg2m3z0og1.png?width=640&crop=smart&auto=webp&s=340e8496554007f8fedd994d8edb7d69c2105394" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
