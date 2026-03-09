@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It is said that it is the first casualty of war.**  
-<img src="https://preview.redd.it/ufeuehumtung1.png?width=1080&crop=smart&auto=webp&s=4bf36e712b9003c61e9b105e76f6d07218f0eb74" alt="Random Meme" width="500"/>
+**Anyone else excited for Neck 5?**  
+<img src="https://preview.redd.it/fo4gai0pbwng1.png?width=960&crop=smart&auto=webp&s=6200ad6087365e5604089b3cc03106ef2cd9cbd3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
