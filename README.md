@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jeffrey Who?**  
-<img src="https://preview.redd.it/sy997f6oaong1.gif?width=320&crop=smart&format=png8&s=99b2d882ebb580b50f292bc49690ba2407d5a8ef" alt="Random Meme" width="500"/>
+**The banana was a conceptual art piece satirizing the concept of 'authentic' art**  
+<img src="https://preview.redd.it/lkqi6j49jtng1.png?width=1080&crop=smart&auto=webp&s=6ca53129b8537ff0197d97107f96f786d1024526" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
