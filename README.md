@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The banana was a conceptual art piece satirizing the concept of 'authentic' art**  
-<img src="https://preview.redd.it/lkqi6j49jtng1.png?width=1080&crop=smart&auto=webp&s=6ca53129b8537ff0197d97107f96f786d1024526" alt="Random Meme" width="500"/>
+**Constipation and me having fun….**  
+<img src="https://preview.redd.it/tar8265bgqng1.gif?width=640&crop=smart&format=png8&s=46fc6d1dd2565ec8ff560332487e24e0529440cf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
