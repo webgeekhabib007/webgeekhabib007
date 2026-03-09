@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mascot horror tend to escalate quickly**  
-<img src="https://preview.redd.it/9lo3pfvmkrng1.png?width=640&crop=smart&auto=webp&s=0ae795126688419b6ba1dff123a31ce1a2880621" alt="Random Meme" width="500"/>
+**Why did it have to be now of all times ToT**  
+<img src="https://preview.redd.it/9jvajauhjzng1.png?width=640&crop=smart&auto=webp&s=58a40d5d06b4535264406da67f46fb05b9710eae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
