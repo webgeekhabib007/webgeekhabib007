@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Anyone else excited for Neck 5?**  
-<img src="https://preview.redd.it/fo4gai0pbwng1.png?width=960&crop=smart&auto=webp&s=6200ad6087365e5604089b3cc03106ef2cd9cbd3" alt="Random Meme" width="500"/>
+**Jeffrey Who?**  
+<img src="https://preview.redd.it/sy997f6oaong1.gif?width=320&crop=smart&format=png8&s=99b2d882ebb580b50f292bc49690ba2407d5a8ef" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
