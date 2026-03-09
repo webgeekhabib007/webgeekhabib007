@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Constipation and me having fun…**  
-<img src="https://preview.redd.it/slmf9dj18wng1.gif?width=640&crop=smart&format=png8&s=cf1ccd708da7e141aa580fb0646ba922f6afbadf" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/n1s6ajzfz0og1.png?width=640&crop=smart&auto=webp&s=2146493dca0741feefcdf1382a319d8b99514f16" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
