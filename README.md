@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It is said that it is the first casualty of war.**  
-<img src="https://preview.redd.it/ufeuehumtung1.png?width=1080&crop=smart&auto=webp&s=4bf36e712b9003c61e9b105e76f6d07218f0eb74" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/stsizzvv6rng1.png?width=320&crop=smart&auto=webp&s=4b66e8e27b30e2d9330a7afe7b81e18e43d920ab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
