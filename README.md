@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/og3ylm4h5mng1.png?width=320&crop=smart&auto=webp&s=15eb1917600c9967eb81856a199fbbc8417781b5" alt="Random Meme" width="500"/>
+**Daylight savings be like**  
+<img src="https://preview.redd.it/lld9ihyg64og1.png?width=1080&crop=smart&auto=webp&s=59d7fd062c0c2ea4bc6def72ceb7f8e8f0a64e89" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
