@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A (2x + 11=69) title**  
-<img src="https://preview.redd.it/hvvbbulqjvng1.png?width=640&crop=smart&auto=webp&s=515da7b8133288b281f460ea7fe493558a52372c" alt="Random Meme" width="500"/>
+**I knew I shouldn't have**  
+<img src="https://preview.redd.it/6i3j8l304wng1.gif?width=320&crop=smart&format=png8&s=4aea400560067348483e0bee92394dbd551e9477" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
