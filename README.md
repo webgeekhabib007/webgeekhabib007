@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**leave the jooner alone**  
-<img src="https://preview.redd.it/fa56kq5htcog1.png?width=320&crop=smart&auto=webp&s=1fbc6fad4de0025506bbd9cbdc983b401a8edea0" alt="Random Meme" width="500"/>
+**Don't Let Them Come Up With Titles**  
+<img src="https://preview.redd.it/j9abesd96yng1.png?width=640&crop=smart&auto=webp&s=6245e2fd7a1b7b66dcb56895425ead52035dbe4c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
