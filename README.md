@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thank you Bill**  
-<img src="https://preview.redd.it/pqor4kmipwng1.gif?width=320&crop=smart&format=png8&s=5d8202cd1646cedaeb6d377b6965b9cdb9771144" alt="Random Meme" width="500"/>
+**You could hear it all over the house**  
+<img src="https://preview.redd.it/w1jq0241s9og1.png?width=960&crop=smart&auto=webp&s=b5ffca50fd93ab4c1cf1d19d958bb416c5e9efab" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
