@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Other Showrunners please...**  
-<img src="https://preview.redd.it/j4o3jec7p8og1.png?width=1080&crop=smart&auto=webp&s=81dd841e153b9a9fe5ea6e44a57f45fdb8ce8722" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/u3pyzhuq5bog1.png?width=1080&crop=smart&auto=webp&s=727d06c2f15304bef697bb23d8b6c199e0c87544" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
