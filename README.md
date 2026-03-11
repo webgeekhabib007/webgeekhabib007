@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/n1s6ajzfz0og1.png?width=640&crop=smart&auto=webp&s=2146493dca0741feefcdf1382a319d8b99514f16" alt="Random Meme" width="500"/>
+**absolute betrayal**  
+<img src="https://preview.redd.it/2n0ylpuuq8og1.gif?width=960&crop=smart&format=png8&s=06e3ba711181a7cfe6f8e114feb64f00c2090efa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
