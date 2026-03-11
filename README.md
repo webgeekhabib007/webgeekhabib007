@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**How do you want us to feel?**  
-<img src="https://preview.redd.it/hqvbfjhv6tng1.gif?width=320&crop=smart&format=png8&s=e74caae51cbdf6291e45057dd00d872b8bd0b39e" alt="Random Meme" width="500"/>
+**When it doesn’t feel like they were even in the same lectures**  
+<img src="https://preview.redd.it/6381bh8387og1.gif?width=640&crop=smart&format=png8&s=8a080a302a4bb222fa11b2f0de71c339d49953db" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
