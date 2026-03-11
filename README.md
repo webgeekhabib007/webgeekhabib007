@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**In my eyes, you haven't listened to the full album if you skip them.**  
-<img src="https://preview.redd.it/4e8yusm2tfog1.png?width=640&crop=smart&auto=webp&s=394d026476b5be6a2adb9bd04cfe14c26b2d85b8" alt="Random Meme" width="500"/>
+**leave the jooner alone**  
+<img src="https://preview.redd.it/fa56kq5htcog1.png?width=320&crop=smart&auto=webp&s=1fbc6fad4de0025506bbd9cbdc983b401a8edea0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
