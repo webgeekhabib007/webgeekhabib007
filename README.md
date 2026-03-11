@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A divorced title**  
-<img src="https://preview.redd.it/8wiwigk896og1.png?width=640&crop=smart&auto=webp&s=8e8004ccdfb346d56a3691e4bb33f422641c7380" alt="Random Meme" width="500"/>
+**Other Showrunners please...**  
+<img src="https://preview.redd.it/j4o3jec7p8og1.png?width=1080&crop=smart&auto=webp&s=81dd841e153b9a9fe5ea6e44a57f45fdb8ce8722" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
