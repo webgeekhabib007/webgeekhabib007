@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**absolute betrayal**  
-<img src="https://preview.redd.it/2n0ylpuuq8og1.gif?width=960&crop=smart&format=png8&s=06e3ba711181a7cfe6f8e114feb64f00c2090efa" alt="Random Meme" width="500"/>
+**A master of game design at his finest**  
+<img src="https://preview.redd.it/kf5r58fl5eog1.png?width=640&crop=smart&auto=webp&s=bbcf8ecc09b3b38cf26b912987a91f1bd1578eb7" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
