@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A master of game design at his finest**  
-<img src="https://preview.redd.it/kf5r58fl5eog1.png?width=640&crop=smart&auto=webp&s=bbcf8ecc09b3b38cf26b912987a91f1bd1578eb7" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/n1s6ajzfz0og1.png?width=640&crop=smart&auto=webp&s=2146493dca0741feefcdf1382a319d8b99514f16" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
