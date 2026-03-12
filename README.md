@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Guys what if it's worse?**  
-<img src="https://preview.redd.it/ncqqfge9fgog1.png?width=1080&crop=smart&auto=webp&s=5aca14b676b22ac7ffb6f7f2589558690bcf5bb9" alt="Random Meme" width="500"/>
+**Hope it goes well for them**  
+<img src="https://preview.redd.it/fydca7pvsvng1.gif?width=320&crop=smart&format=png8&s=52c11720b21f7f997a8dd17685648a9c776087d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
