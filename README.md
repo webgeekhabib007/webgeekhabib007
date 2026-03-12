@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**geopolitical meme**  
-<img src="https://preview.redd.it/8mv0uhjculog1.png?width=320&crop=smart&auto=webp&s=d20da8dec0fbcb484f0c3de1c1c8505e64f00903" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/enp5zlj4y2og1.png?width=1080&crop=smart&auto=webp&s=3355b01cbead27012073761a181ec4a0abd169b5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
