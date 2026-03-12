@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**If animals could talk**  
-<img src="https://preview.redd.it/aabic2gtygog1.png?width=320&crop=smart&auto=webp&s=8d9f86726db9860df55e7dad008d43b0bfce8034" alt="Random Meme" width="500"/>
+**ooops😀😁😁😀.**  
+<img src="https://preview.redd.it/bl1e6syacdog1.png?width=320&crop=smart&auto=webp&s=6d3c60a84a0f4a0d1b60c299b300c4b25a957bee" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
