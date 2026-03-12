@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Looking at you, Veritasium**  
-<img src="https://preview.redd.it/epfjw0onpnog1.png?width=320&crop=smart&auto=webp&s=399ace218fbc273d51ad118593857d71eb758164" alt="Random Meme" width="500"/>
+**We don’t joke around about being on time**  
+<img src="https://preview.redd.it/8dcuq7our0og1.gif?width=320&crop=smart&format=png8&s=656dd66752a9402aba1d6558753edcea6a553e8c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
