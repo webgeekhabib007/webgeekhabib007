@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Trust your leaders**  
-<img src="https://preview.redd.it/kl9llda8i4og1.png?width=640&crop=smart&auto=webp&s=a8f69b419afec4ce04870c6eee8a85cf10e68d68" alt="Random Meme" width="500"/>
+**Guys what if it's worse?**  
+<img src="https://preview.redd.it/ncqqfge9fgog1.png?width=1080&crop=smart&auto=webp&s=5aca14b676b22ac7ffb6f7f2589558690bcf5bb9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
