@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We don’t joke around about being on time**  
-<img src="https://preview.redd.it/8dcuq7our0og1.gif?width=320&crop=smart&format=png8&s=656dd66752a9402aba1d6558753edcea6a553e8c" alt="Random Meme" width="500"/>
+**geopolitical meme**  
+<img src="https://preview.redd.it/8mv0uhjculog1.png?width=320&crop=smart&auto=webp&s=d20da8dec0fbcb484f0c3de1c1c8505e64f00903" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
