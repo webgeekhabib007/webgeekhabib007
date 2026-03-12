@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't Let Them Come Up With Titles**  
-<img src="https://preview.redd.it/j9abesd96yng1.png?width=640&crop=smart&auto=webp&s=6245e2fd7a1b7b66dcb56895425ead52035dbe4c" alt="Random Meme" width="500"/>
+**Thank you Bill**  
+<img src="https://preview.redd.it/pqor4kmipwng1.gif?width=320&crop=smart&format=png8&s=5d8202cd1646cedaeb6d377b6965b9cdb9771144" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
