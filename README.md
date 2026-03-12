@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hope it goes well for them**  
-<img src="https://preview.redd.it/fydca7pvsvng1.gif?width=320&crop=smart&format=png8&s=52c11720b21f7f997a8dd17685648a9c776087d5" alt="Random Meme" width="500"/>
+**If animals could talk**  
+<img src="https://preview.redd.it/aabic2gtygog1.png?width=320&crop=smart&auto=webp&s=8d9f86726db9860df55e7dad008d43b0bfce8034" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
