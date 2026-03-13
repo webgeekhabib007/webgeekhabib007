@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Certified worldedit meme**  
-<img src="https://preview.redd.it/nc60xsgyskog1.png?width=1080&crop=smart&auto=webp&s=1f50193851a839cdf53329a132d62f5e91d76fc0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/o9ydewld6dog1.png?width=640&crop=smart&auto=webp&s=b087212e2de4f3eb774c06cd9f372166b118f9bf" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
