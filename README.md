@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I didn't buy a ticket though**  
-<img src="https://preview.redd.it/6srwyhzpxgog1.png?width=1080&crop=smart&auto=webp&s=188f892e08a004dbd669de0a6f7891dadf5c1408" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/recfmnuaffog1.png?width=1080&crop=smart&auto=webp&s=81d2cb0aab3976ce59f8d9eb8a4ee16cbe26c47d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
