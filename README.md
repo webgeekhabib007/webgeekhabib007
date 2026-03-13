@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**being blessed**  
-<img src="https://preview.redd.it/k4931nomjjog1.png?width=640&crop=smart&auto=webp&s=82e64c923670861e9e349507da8233055a9726b9" alt="Random Meme" width="500"/>
+**US Healthcare System**  
+<img src="https://preview.redd.it/9y1yofw5xeog1.png?width=960&crop=smart&auto=webp&s=c9d8dcb0c2f4eb4153d4c3298897a980459b12b0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
