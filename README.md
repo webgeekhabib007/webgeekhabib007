@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Where is this cat from? Is it a meme or just a pixel art, i saw it so many times.**  
-<img src="https://preview.redd.it/mjvaentd3nog1.png?width=320&crop=smart&auto=webp&s=56045654acc8157d646d9150538cf89370e135aa" alt="Random Meme" width="500"/>
+**least soulless health insurance executive**  
+<img src="https://preview.redd.it/vi9o77pfn5og1.gif?width=320&crop=smart&format=png8&s=822b22fbeffa96ba2c2d5f62e773be11531aad25" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
