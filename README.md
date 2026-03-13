@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I, in fact, wrote a review**  
-<img src="https://preview.redd.it/z8cc9aqixmog1.png?width=320&crop=smart&auto=webp&s=ac0b9b70b210f6592c72844f800212f8efc4d251" alt="Random Meme" width="500"/>
+**Where is this cat from? Is it a meme or just a pixel art, i saw it so many times.**  
+<img src="https://preview.redd.it/mjvaentd3nog1.png?width=320&crop=smart&auto=webp&s=56045654acc8157d646d9150538cf89370e135aa" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
