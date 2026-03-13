@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**US Healthcare System**  
-<img src="https://preview.redd.it/9y1yofw5xeog1.png?width=960&crop=smart&auto=webp&s=c9d8dcb0c2f4eb4153d4c3298897a980459b12b0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/xnyhmsbkrvog1.gif?width=320&crop=smart&format=png8&s=5bf73c236b67dd82e7dec258ad7977805929b229" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
