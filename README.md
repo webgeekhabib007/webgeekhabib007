@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Definitely unrelated to the meme, but how many people do you think would pay some wheyfus to princess carry them?**  
-<img src="https://preview.redd.it/9j0oajvtw9og1.png?width=640&crop=smart&auto=webp&s=6cc770332e47de6a6f5e27993d3024edc007ca85" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/sddnjmqcspog1.png?width=640&crop=smart&auto=webp&s=5b6fa5be6ac4f968fb7aa09cb7eb3d305e679b96" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
