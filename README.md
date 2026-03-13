@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**'He has to like you'**  
-<img src="https://preview.redd.it/fwf0qjfr49og1.gif?width=1080&crop=smart&format=png8&s=110b4373c370cc349454e41926a107b3e3170fba" alt="Random Meme" width="500"/>
+**I, in fact, wrote a review**  
+<img src="https://preview.redd.it/z8cc9aqixmog1.png?width=320&crop=smart&auto=webp&s=ac0b9b70b210f6592c72844f800212f8efc4d251" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
