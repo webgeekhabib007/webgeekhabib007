@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**least soulless health insurance executive**  
-<img src="https://preview.redd.it/vi9o77pfn5og1.gif?width=320&crop=smart&format=png8&s=822b22fbeffa96ba2c2d5f62e773be11531aad25" alt="Random Meme" width="500"/>
+**Definitely unrelated to the meme, but how many people do you think would pay some wheyfus to princess carry them?**  
+<img src="https://preview.redd.it/9j0oajvtw9og1.png?width=640&crop=smart&auto=webp&s=6cc770332e47de6a6f5e27993d3024edc007ca85" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
