@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Japan is transforming footsteps into electricity ⚡**  
-<img src="https://preview.redd.it/vak6i8r8crog1.png?width=1080&crop=smart&auto=webp&s=f48726ea71b5047e9864a0961c9565d22cf4fbf0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/rckulgob3fog1.png?width=960&crop=smart&auto=webp&s=e609f6a68830529ee406e4978001bda06f1185d1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
