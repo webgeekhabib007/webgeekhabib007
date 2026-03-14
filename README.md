@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**and the main problem comes when it starts updating at that moment**  
-<img src="https://preview.redd.it/5lbg5tpytsog1.png?width=1080&crop=smart&auto=webp&s=504a06df799a5e37cc3c469262167692329904d8" alt="Random Meme" width="500"/>
+**You can't tell them apart**  
+<img src="https://preview.redd.it/k5wohgkw4vog1.gif?width=320&crop=smart&format=png8&s=8f9ad24445571ad8599d4168f020bf1f10741f43" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
