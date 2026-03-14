@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I know this is you right now don't lie**  
-<img src="https://preview.redd.it/4lshjwvzzxog1.png?width=640&crop=smart&auto=webp&s=772848ba01ec7b46b06c738c60457b6949ea2c11" alt="Random Meme" width="500"/>
+**Dear diary, someday...**  
+<img src="https://preview.redd.it/xftq1ctj3rog1.gif?width=640&crop=smart&format=png8&s=1dac3ecd9cce45a503950db13c18f711fef38e47" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
