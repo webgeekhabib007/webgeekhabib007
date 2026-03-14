@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**and here I thought his paintings were the real crime**  
-<img src="https://preview.redd.it/vvolei8l0oog1.png?width=320&crop=smart&auto=webp&s=d6814f006b9cfc3f16f530cf9e656253f313d388" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/urg8c33nfoog1.png?width=960&crop=smart&auto=webp&s=11ac17ca58d02494ae816114eabd64fb370b0efb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
