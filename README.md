@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dear diary, someday...**  
-<img src="https://preview.redd.it/xftq1ctj3rog1.gif?width=640&crop=smart&format=png8&s=1dac3ecd9cce45a503950db13c18f711fef38e47" alt="Random Meme" width="500"/>
+**and the main problem comes when it starts updating at that moment**  
+<img src="https://preview.redd.it/5lbg5tpytsog1.png?width=1080&crop=smart&auto=webp&s=504a06df799a5e37cc3c469262167692329904d8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
