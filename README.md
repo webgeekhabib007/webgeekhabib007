@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chase Chase Chase Chase. Also has anyone unironically played FNAF and especially Hello Neighbor**  
-<img src="https://preview.redd.it/69p1z5wczgog1.gif?width=640&crop=smart&format=png8&s=c232be17e5c0a7744ca221ce26e19feb0fe3e25f" alt="Random Meme" width="500"/>
+**On some days, we all feel like this sometimes. This is basically the month of March.**  
+<img src="https://preview.redd.it/0fq2qw7kowog1.png?width=320&crop=smart&auto=webp&s=fb10e68d69ec1425cad8e41a7a673fac3e91ab73" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
