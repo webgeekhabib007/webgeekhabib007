@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ydqrfllrjvog1.png?width=1080&crop=smart&auto=webp&s=cda5299720a730bb6c28a35359a22fc4a79563f1" alt="Random Meme" width="500"/>
+**Chase Chase Chase Chase. Also has anyone unironically played FNAF and especially Hello Neighbor**  
+<img src="https://preview.redd.it/69p1z5wczgog1.gif?width=640&crop=smart&format=png8&s=c232be17e5c0a7744ca221ce26e19feb0fe3e25f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
