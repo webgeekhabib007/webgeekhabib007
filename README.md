@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Eltit a siht si?**  
-<img src="https://preview.redd.it/dorvkrg8vjog1.png?width=640&crop=smart&auto=webp&s=b40a08cdd15acf7b13fe743de7590252eacb10fb" alt="Random Meme" width="500"/>
+**the crap no one tells you when you have kids...**  
+<img src="https://preview.redd.it/iaxtic10j1pg1.png?width=1080&crop=smart&auto=webp&s=ed1a3c0eead0742424021340c279b265febcab8f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
