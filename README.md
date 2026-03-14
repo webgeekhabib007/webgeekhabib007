@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Very different live action Robin watching experience**  
-<img src="https://preview.redd.it/zc1ftdlz4zog1.png?width=1080&crop=smart&auto=webp&s=9765894e17b310b56eb35f01ef15a12e53c8bc92" alt="Random Meme" width="500"/>
+**You love it**  
+<img src="https://preview.redd.it/r8mide22azog1.png?width=640&crop=smart&auto=webp&s=b0e1414a413d391a6bdf070e0c7214ac887b4c7b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
