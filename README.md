@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/ah3xpu0zn8pg1.png?width=320&crop=smart&auto=webp&s=2a28d410fe121f80c80e7e4a65eefaed405b42d8" alt="Random Meme" width="500"/>
+**I have not met a single woman who prefers wingless**  
+<img src="https://preview.redd.it/hgpuz5bt72pg1.png?width=320&crop=smart&auto=webp&s=94d8f353cf00da79f67d13fd0ef108d2dabe7509" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
