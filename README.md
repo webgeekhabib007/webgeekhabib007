@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I’m thankful my memory isn’t this selective**  
-<img src="https://preview.redd.it/3zqu5dsrb4pg1.gif?width=640&crop=smart&format=png8&s=a4b5f131d88e2622974ad8412503923c1b979746" alt="Random Meme" width="500"/>
+**What's the big deal?**  
+<img src="https://preview.redd.it/yf5jlzwpijog1.png?width=320&crop=smart&auto=webp&s=77a2368efc7500a3e34e9dc504b1e73268c04b7a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
