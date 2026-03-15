@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Simpsons did it**  
-<img src="https://preview.redd.it/s8odmz5ac2pg1.gif?width=640&crop=smart&format=png8&s=2f3d657262fad6d89f0fc07937aa698d8344b382" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/p6xs5h42t3pg1.png?width=1080&crop=smart&auto=webp&s=9cf72f5e3e738ddd3189ea327760be3917e90dbd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
