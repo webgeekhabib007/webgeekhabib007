@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the crap no one tells you when you have kids...**  
-<img src="https://preview.redd.it/iaxtic10j1pg1.png?width=1080&crop=smart&auto=webp&s=ed1a3c0eead0742424021340c279b265febcab8f" alt="Random Meme" width="500"/>
+**Based on the old cartoons one of my family members watched growing up, I can say this is true.**  
+<img src="https://preview.redd.it/kmqu809x32pg1.png?width=1080&crop=smart&auto=webp&s=db3158f9b144c778d8314804450ba969f0efb480" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
