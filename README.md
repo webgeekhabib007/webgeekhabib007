@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**BE AFRAID MY CHILDREN**  
-<img src="https://preview.redd.it/ht7soczqq3pg1.png?width=320&crop=smart&auto=webp&s=81f8ba55782786ca6bcc022251a051555de3c530" alt="Random Meme" width="500"/>
+**It can't be that good, there must be a catch**  
+<img src="https://preview.redd.it/nqk7fntd22pg1.png?width=1080&crop=smart&auto=webp&s=092de3b90391ccddfebbb8f50fd7fd7d9e39e617" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
