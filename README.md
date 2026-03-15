@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Based on the old cartoons one of my family members watched growing up, I can say this is true.**  
-<img src="https://preview.redd.it/kmqu809x32pg1.png?width=1080&crop=smart&auto=webp&s=db3158f9b144c778d8314804450ba969f0efb480" alt="Random Meme" width="500"/>
+**BE AFRAID MY CHILDREN**  
+<img src="https://preview.redd.it/ht7soczqq3pg1.png?width=320&crop=smart&auto=webp&s=81f8ba55782786ca6bcc022251a051555de3c530" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
