@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Just kill me**  
-<img src="https://preview.redd.it/x6rnrecef9pg1.png?width=320&crop=smart&auto=webp&s=848e50656dbee05f0b19a0b31886fb5cd3774729" alt="Random Meme" width="500"/>
+**Jokes on you, it's still a chair**  
+<img src="https://preview.redd.it/fbw8ltost6pg1.png?width=1080&crop=smart&auto=webp&s=1c8e630616292d78a1a490b5cfd3607eadbcaa83" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
