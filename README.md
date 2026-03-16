@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/4yetbbur3zog1.png?width=960&crop=smart&auto=webp&s=727b97ba8b27c86245e5172677ff59b14bf0a535" alt="Random Meme" width="500"/>
+**hey, the potatoes are not gonna pick themselves**  
+<img src="https://preview.redd.it/90quvuv7w6pg1.png?width=640&crop=smart&auto=webp&s=8ca6c074ce938c3b1ff471520932080c9463e30d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
