@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Jokes on you, it's still a chair**  
-<img src="https://preview.redd.it/fbw8ltost6pg1.png?width=1080&crop=smart&auto=webp&s=1c8e630616292d78a1a490b5cfd3607eadbcaa83" alt="Random Meme" width="500"/>
+**We all need this right now**  
+<img src="https://preview.redd.it/npd66ejjddpg1.png?width=320&crop=smart&auto=webp&s=79bc50249a22bbe5d006ed1e31ae510c9ae57186" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
