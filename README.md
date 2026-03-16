@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**One of the classic blunders**  
-<img src="https://preview.redd.it/cc1rmzcoxfpg1.png?width=1080&crop=smart&auto=webp&s=112f2ee346d24032a5258b15124f776e41e0477d" alt="Random Meme" width="500"/>
+**Cmon Eric, we just got married**  
+<img src="https://preview.redd.it/kxhew6l904pg1.png?width=320&crop=smart&auto=webp&s=d8e8d7df55f272fb22d3f2c3cefa2db9cda07202" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
