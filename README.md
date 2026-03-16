@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**false arrest because of ai facial recognition software**  
-<img src="https://preview.redd.it/dml8aaykd0pg1.png?width=320&crop=smart&auto=webp&s=578f6d88631b652b2f587cf14146fff157bd77b8" alt="Random Meme" width="500"/>
+**One of the classic blunders**  
+<img src="https://preview.redd.it/cc1rmzcoxfpg1.png?width=1080&crop=smart&auto=webp&s=112f2ee346d24032a5258b15124f776e41e0477d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
