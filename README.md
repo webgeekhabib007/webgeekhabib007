@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**bow before me peasants**  
-<img src="https://preview.redd.it/aidpkpxgujpg1.png?width=960&crop=smart&auto=webp&s=490418fe4969881545b0b58924649e79dc8d8021" alt="Random Meme" width="500"/>
+**A sus title**  
+<img src="https://preview.redd.it/g8grciptsjpg1.png?width=640&crop=smart&auto=webp&s=df5b9b70e3b6469a52470e15ff925fe06191ec00" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
