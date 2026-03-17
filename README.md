@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am so incredibly sick of working full time just to hand all my leftover money to the electric comp**  
-<img src="https://preview.redd.it/84nr8oawgepg1.png?width=320&crop=smart&auto=webp&s=e7427d1b9a6d6d5c306057fcbcc9748aba729028" alt="Random Meme" width="500"/>
+**It can’t be a slur anymore if it doesn’t affect anyone anymore.**  
+<img src="https://preview.redd.it/5puyf6tvlkpg1.gif?width=640&crop=smart&format=png8&s=33fb84b87233a5cd02e0ad6205c2e464c9582054" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
