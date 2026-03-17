@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Happy Ides of March! Oh Wait, I Mean March 14!**  
-<img src="https://preview.redd.it/sjbj751q30pg1.png?width=320&crop=smart&auto=webp&s=702cd4a7b3b7b0792a28d1ab36e7b74b72023b59" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/fadce66da8pg1.gif?width=216&crop=smart&format=png8&s=89668de5f1de3cd13091241928ec1cc52695e4e3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
