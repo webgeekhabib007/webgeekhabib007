@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Please stop working for Hollywood for free. The upvotes aren't worth it**  
-<img src="https://preview.redd.it/kr2vu4p1iipg1.png?width=640&crop=smart&auto=webp&s=46090312a27ce3e167b1b81f9fba9d8951eb59a4" alt="Random Meme" width="500"/>
+**I was feeling down, and my mom sent this to me**  
+<img src="https://preview.redd.it/k92at1scxhpg1.png?width=960&crop=smart&auto=webp&s=67296372f1dbf746bf9cc90a4cfe6a50e65fe88d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
