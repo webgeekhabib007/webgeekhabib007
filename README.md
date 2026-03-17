@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I was feeling down, and my mom sent this to me**  
-<img src="https://preview.redd.it/k92at1scxhpg1.png?width=960&crop=smart&auto=webp&s=67296372f1dbf746bf9cc90a4cfe6a50e65fe88d" alt="Random Meme" width="500"/>
+**bow before me peasants**  
+<img src="https://preview.redd.it/aidpkpxgujpg1.png?width=960&crop=smart&auto=webp&s=490418fe4969881545b0b58924649e79dc8d8021" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
