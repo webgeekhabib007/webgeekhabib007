@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I did it my way**  
-<img src="https://preview.redd.it/kr4gtkef6ipg1.gif?width=640&crop=smart&format=png8&s=61c8fc29d8f6b9a81880b2813fe5e1eed1c8b8e8" alt="Random Meme" width="500"/>
+**I am so incredibly sick of working full time just to hand all my leftover money to the electric comp**  
+<img src="https://preview.redd.it/84nr8oawgepg1.png?width=320&crop=smart&auto=webp&s=e7427d1b9a6d6d5c306057fcbcc9748aba729028" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
