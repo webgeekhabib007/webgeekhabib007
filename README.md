@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**hey, the potatoes are not gonna pick themselves**  
-<img src="https://preview.redd.it/90quvuv7w6pg1.png?width=640&crop=smart&auto=webp&s=8ca6c074ce938c3b1ff471520932080c9463e30d" alt="Random Meme" width="500"/>
+**I am so incredibly sick of working full time just to hand all my leftover money to the electric comp**  
+<img src="https://preview.redd.it/84nr8oawgepg1.png?width=320&crop=smart&auto=webp&s=e7427d1b9a6d6d5c306057fcbcc9748aba729028" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
