@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/4yetbbur3zog1.png?width=960&crop=smart&auto=webp&s=727b97ba8b27c86245e5172677ff59b14bf0a535" alt="Random Meme" width="500"/>
+**SnowWars**  
+<img src="https://preview.redd.it/42esgajs63pg1.png?width=320&crop=smart&auto=webp&s=3b9a4a3b0f14382a225ac88c3d52894000548424" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
