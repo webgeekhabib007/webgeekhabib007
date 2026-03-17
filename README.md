@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I am so incredibly sick of working full time just to hand all my leftover money to the electric comp**  
-<img src="https://preview.redd.it/84nr8oawgepg1.png?width=320&crop=smart&auto=webp&s=e7427d1b9a6d6d5c306057fcbcc9748aba729028" alt="Random Meme" width="500"/>
+**Happy Ides of March! Oh Wait, I Mean March 14!**  
+<img src="https://preview.redd.it/sjbj751q30pg1.png?width=320&crop=smart&auto=webp&s=702cd4a7b3b7b0792a28d1ab36e7b74b72023b59" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
