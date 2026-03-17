@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's getting hot out there**  
-<img src="https://preview.redd.it/koih0crp22pg1.png?width=320&crop=smart&auto=webp&s=7cc2cba668719a6a5e2cdf2bff3b72d9554e922e" alt="Random Meme" width="500"/>
+**Like this always happens to me... dont you agree?**  
+<img src="https://preview.redd.it/jdo8jus2zipg1.png?width=960&crop=smart&auto=webp&s=e30306531b23d3bac3a367bf507221ae25499911" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
