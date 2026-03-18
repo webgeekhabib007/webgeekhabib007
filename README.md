@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Worst part is, the rig is only 6years old**  
-<img src="https://preview.redd.it/66u15urmzqpg1.gif?width=216&crop=smart&format=png8&s=f0879f0e53637636c3eb16dab558d6dc9865d555" alt="Random Meme" width="500"/>
+**cover yourself in- wait that's not oil**  
+<img src="https://preview.redd.it/m9amueevkkpg1.png?width=320&crop=smart&auto=webp&s=63fe88e038f8887f13bad03fc1139046a1aa441e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
