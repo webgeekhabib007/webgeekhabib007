@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**cover yourself in- wait that's not oil**  
-<img src="https://preview.redd.it/m9amueevkkpg1.png?width=320&crop=smart&auto=webp&s=63fe88e038f8887f13bad03fc1139046a1aa441e" alt="Random Meme" width="500"/>
+**British people be like :**  
+<img src="https://preview.redd.it/03to9y021rpg1.png?width=1080&crop=smart&auto=webp&s=a1f62e9c0879080c12efff27a6954ece9835a486" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
