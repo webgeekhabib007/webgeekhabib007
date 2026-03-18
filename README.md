@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Instead of giving us affordable RAM, we now have to deal with sloppy-ass graphics cards...**  
-<img src="https://preview.redd.it/3stlpt0xchpg1.gif?width=216&crop=smart&format=png8&s=758618281ebaf91545c905050b5a7c7fa68cbb24" alt="Random Meme" width="500"/>
+**My bad, guys...**  
+<img src="https://preview.redd.it/ao3hsyk88mpg1.png?width=640&crop=smart&auto=webp&s=c2ede73578e9947d2e37aa2cc5fd1e70d179d870" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
