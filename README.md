@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/ydtukh2m7tpg1.gif?width=320&crop=smart&format=png8&s=1f94eaaac0e01d64221507390752af9b15635574" alt="Random Meme" width="500"/>
+**Worst part is, the rig is only 6years old**  
+<img src="https://preview.redd.it/66u15urmzqpg1.gif?width=216&crop=smart&format=png8&s=f0879f0e53637636c3eb16dab558d6dc9865d555" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
