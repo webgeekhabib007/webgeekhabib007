@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's not even slop at this point**  
-<img src="https://preview.redd.it/vzpptvgxempg1.png?width=1080&crop=smart&auto=webp&s=678701b4e549a1cf1eaecae1e32fd2b53738bb34" alt="Random Meme" width="500"/>
+**Airplane mode**  
+<img src="https://preview.redd.it/xg6esr76wlpg1.png?width=1080&crop=smart&auto=webp&s=1597eb944997b112d695597258dff2cab02ee4f0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
