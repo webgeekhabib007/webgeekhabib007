@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It can’t be a slur anymore if it doesn’t affect anyone anymore.**  
-<img src="https://preview.redd.it/5puyf6tvlkpg1.gif?width=640&crop=smart&format=png8&s=33fb84b87233a5cd02e0ad6205c2e464c9582054" alt="Random Meme" width="500"/>
+**"Thanks babe."**  
+<img src="https://preview.redd.it/43qqcwku5ppg1.png?width=640&crop=smart&auto=webp&s=245d7b28a126851c0448e7120227d975a092f9ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
