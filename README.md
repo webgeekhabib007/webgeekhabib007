@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"Thanks babe."**  
-<img src="https://preview.redd.it/43qqcwku5ppg1.png?width=640&crop=smart&auto=webp&s=245d7b28a126851c0448e7120227d975a092f9ae" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/4u0xuj4eonpg1.png?width=320&crop=smart&auto=webp&s=2e8d4938fd3e68ea82373b9bc02998cba0154823" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
