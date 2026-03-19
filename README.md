@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Its the LAW**  
-<img src="https://preview.redd.it/lp1suh7sprpg1.gif?width=320&crop=smart&format=png8&s=a277b7170b07296fb97f3226b8ce88d6e2257df2" alt="Random Meme" width="500"/>
+**NVIDIA slop has to stop**  
+<img src="https://preview.redd.it/rfkqdv1y2mpg1.png?width=1080&crop=smart&auto=webp&s=ddc6cd71fac65ce61a158b5623c00a5b71f33bf9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
