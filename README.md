@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/5bdn126i3mpg1.png?width=1080&crop=smart&auto=webp&s=47aec3b46dbd8d770824dd5f518a922337714d57" alt="Random Meme" width="500"/>
+**Help train AI by telling YouTube how much you hate AI**  
+<img src="https://preview.redd.it/3ezx3bo9uppg1.png?width=960&crop=smart&auto=webp&s=2e3dbac1570bea9659de897bbbe1d1bd955c1190" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
