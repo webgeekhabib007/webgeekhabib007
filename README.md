@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**because I’m unavailable**  
-<img src="https://preview.redd.it/4pnu7e8ffnpg1.png?width=640&crop=smart&auto=webp&s=f66e1a6027e0289ffccffe586adb928d6190d6ef" alt="Random Meme" width="500"/>
+**So Smooth!**  
+<img src="https://preview.redd.it/mn1fqftnanpg1.png?width=1080&crop=smart&auto=webp&s=bb20ae550383c9ae99cb4f706cf046c7442c7e29" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
