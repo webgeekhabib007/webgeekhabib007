@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Airplane mode**  
-<img src="https://preview.redd.it/xg6esr76wlpg1.png?width=1080&crop=smart&auto=webp&s=1597eb944997b112d695597258dff2cab02ee4f0" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/5bdn126i3mpg1.png?width=1080&crop=smart&auto=webp&s=47aec3b46dbd8d770824dd5f518a922337714d57" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
