@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/5bdn126i3mpg1.png?width=1080&crop=smart&auto=webp&s=47aec3b46dbd8d770824dd5f518a922337714d57" alt="Random Meme" width="500"/>
+**Trying to do laundry as a cat owner**  
+<img src="https://preview.redd.it/329xpy0vo2qg1.png?width=960&crop=smart&auto=webp&s=ff37658e669c8a396986cc428b3cac2df6b6697f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
