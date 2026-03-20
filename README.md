@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Trying to do laundry as a cat owner**  
-<img src="https://preview.redd.it/329xpy0vo2qg1.png?width=960&crop=smart&auto=webp&s=ff37658e669c8a396986cc428b3cac2df6b6697f" alt="Random Meme" width="500"/>
+**Everybody wants Afro man's pound cake**  
+<img src="https://preview.redd.it/5ss7adhoo1qg1.gif?width=320&crop=smart&format=png8&s=3fe9a466c816fb5e4d622793c3f7c7b385bcec2b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
