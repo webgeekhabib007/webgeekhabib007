@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Everybody wants Afro man's pound cake**  
-<img src="https://preview.redd.it/5ss7adhoo1qg1.gif?width=320&crop=smart&format=png8&s=3fe9a466c816fb5e4d622793c3f7c7b385bcec2b" alt="Random Meme" width="500"/>
+**Sunny side up please**  
+<img src="https://preview.redd.it/fx0mla8oaypg1.gif?width=640&crop=smart&format=png8&s=bff2754e885908631f8745577e2200a643943844" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
