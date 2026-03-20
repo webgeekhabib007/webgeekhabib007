@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chuck Norris didn't die**  
-<img src="https://preview.redd.it/sldrixqgn8qg1.png?width=320&crop=smart&auto=webp&s=0131ce2047f302f109dbd3f5d39c4a2c9c822721" alt="Random Meme" width="500"/>
+**Chess vs Reality, I knew something wasn't right here...**  
+<img src="https://preview.redd.it/1tyvmek7k7qg1.png?width=320&crop=smart&auto=webp&s=a1555d042f97285d19b6e710abb765ff3144f180" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
