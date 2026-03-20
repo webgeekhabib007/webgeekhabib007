@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Sunny side up please**  
-<img src="https://preview.redd.it/fx0mla8oaypg1.gif?width=640&crop=smart&format=png8&s=bff2754e885908631f8745577e2200a643943844" alt="Random Meme" width="500"/>
+**Its the LAW**  
+<img src="https://preview.redd.it/lp1suh7sprpg1.gif?width=320&crop=smart&format=png8&s=a277b7170b07296fb97f3226b8ce88d6e2257df2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
