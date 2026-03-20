@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Self medication is not the way.**  
-<img src="https://preview.redd.it/t2w0kfcfp7qg1.gif?width=216&crop=smart&format=png8&s=9d96b7b9d4942bf9d1138a39c682480f03670548" alt="Random Meme" width="500"/>
+**Chuck Norris didn't die**  
+<img src="https://preview.redd.it/sldrixqgn8qg1.png?width=320&crop=smart&auto=webp&s=0131ce2047f302f109dbd3f5d39c4a2c9c822721" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
