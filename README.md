@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Love the idea, just need practice**  
-<img src="https://preview.redd.it/mhq5im36zspg1.gif?width=640&crop=smart&format=png8&s=6a097501c3b87959686fada78019ce53d126abbd" alt="Random Meme" width="500"/>
+**Self medication is not the way.**  
+<img src="https://preview.redd.it/t2w0kfcfp7qg1.gif?width=216&crop=smart&format=png8&s=9d96b7b9d4942bf9d1138a39c682480f03670548" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
