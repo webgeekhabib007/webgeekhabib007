@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chess vs Reality, I knew something wasn't right here...**  
-<img src="https://preview.redd.it/1tyvmek7k7qg1.png?width=320&crop=smart&auto=webp&s=a1555d042f97285d19b6e710abb765ff3144f180" alt="Random Meme" width="500"/>
+**I'm not actually 50, I'm just pointing this out.**  
+<img src="https://preview.redd.it/5g55qgtcz2qg1.png?width=640&crop=smart&auto=webp&s=03fef2279058c75b74edc71bf156030111d0b057" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
