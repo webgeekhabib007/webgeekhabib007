@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Chuck Norris simply decided it was time**  
-<img src="https://preview.redd.it/y4bbqg9ox9qg1.gif?width=640&crop=smart&format=png8&s=a1bcc1425f69d3d8afe8b0da8086202546b4f223" alt="Random Meme" width="500"/>
+**The Good Ol' Days of Chuck Norris**  
+<img src="https://preview.redd.it/0boxw2cjgaqg1.png?width=320&crop=smart&auto=webp&s=1e632bfdc3e311252337aa6529f7f4b6931d309a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
