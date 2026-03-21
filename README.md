@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/m6wgjg1deypg1.png?width=640&crop=smart&auto=webp&s=4a650e0aaa2b493536d76ae9bb230e80b1fefea9" alt="Random Meme" width="500"/>
+**Chuck Norris simply decided it was time**  
+<img src="https://preview.redd.it/y4bbqg9ox9qg1.gif?width=640&crop=smart&format=png8&s=a1bcc1425f69d3d8afe8b0da8086202546b4f223" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
