@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I'm not stupid, they cannot make things like that yet.**  
-<img src="https://preview.redd.it/euu12jcc5zpg1.png?width=1080&crop=smart&auto=webp&s=531e071a21f75137ee1f1e9db6884a5a107873a5" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/ee9cm5lh5cqg1.gif?width=320&crop=smart&format=png8&s=0da2c0f733ef7d8a12f3a6f929ea68be74063a43" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
