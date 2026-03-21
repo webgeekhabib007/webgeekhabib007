@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**A tier above everyone else**  
-<img src="https://preview.redd.it/jb1b6yjapcqg1.png?width=320&crop=smart&auto=webp&s=152c4b8c160e439d554e86f274fab606d04c2203" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/m6wgjg1deypg1.png?width=640&crop=smart&auto=webp&s=4a650e0aaa2b493536d76ae9bb230e80b1fefea9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
