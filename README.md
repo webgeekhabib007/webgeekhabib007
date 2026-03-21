@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I dig this AI overlay**  
-<img src="https://preview.redd.it/zxrvncl6ewpg1.png?width=1080&crop=smart&auto=webp&s=5ae003f1689376730ee1f91d714debf40c0bfc2b" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/joddjnyjxwpg1.png?width=640&crop=smart&auto=webp&s=12d39febd4615844141a0a20542243f7e5598dbe" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
