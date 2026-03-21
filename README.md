@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Its the LAW**  
-<img src="https://preview.redd.it/lp1suh7sprpg1.gif?width=320&crop=smart&format=png8&s=a277b7170b07296fb97f3226b8ce88d6e2257df2" alt="Random Meme" width="500"/>
+**Dads comeup with the randomest shit whenever they want to spend time with us**  
+<img src="https://preview.redd.it/la0ubwlu8dqg1.png?width=960&crop=smart&auto=webp&s=bbc21ed3ac1152d7ff95bfc7643dd2a67da5a73a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
