@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**My potential is stayin' in bed.**  
-<img src="https://preview.redd.it/5sp0yez0heqg1.png?width=640&crop=smart&auto=webp&s=a9b1aa6e830506027bdc262d604a1ec9d3925d02" alt="Random Meme" width="500"/>
+**Its the LAW**  
+<img src="https://preview.redd.it/lp1suh7sprpg1.gif?width=320&crop=smart&format=png8&s=a277b7170b07296fb97f3226b8ce88d6e2257df2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
