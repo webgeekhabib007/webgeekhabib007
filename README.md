@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/7pio4xyv3gqg1.png?width=1080&crop=smart&auto=webp&s=0a23b8492efb8ccc688107d9dde72d40d16581f9" alt="Random Meme" width="500"/>
+**My potential is stayin' in bed.**  
+<img src="https://preview.redd.it/5sp0yez0heqg1.png?width=640&crop=smart&auto=webp&s=a9b1aa6e830506027bdc262d604a1ec9d3925d02" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
