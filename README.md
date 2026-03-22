@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Do these guys have asthma because why does Shepard run so slow and gets winded so quickly.**  
-<img src="https://preview.redd.it/j6og2w6km8qg1.gif?width=640&crop=smart&format=png8&s=1c3df3f4aa943f42a993f93b3397ab478551a6f0" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/nickrewhc5qg1.gif?width=320&crop=smart&format=png8&s=01fa5e99925bbe006a35c6095c5f18b0387dd990" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
