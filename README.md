@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Good Ol' Days of Chuck Norris**  
-<img src="https://preview.redd.it/kb572apdgaqg1.png?width=320&crop=smart&auto=webp&s=5725f3d20a8295dbed87d40314bce510393e1e17" alt="Random Meme" width="500"/>
+**Do these guys have asthma because why does Shepard run so slow and gets winded so quickly.**  
+<img src="https://preview.redd.it/j6og2w6km8qg1.gif?width=640&crop=smart&format=png8&s=1c3df3f4aa943f42a993f93b3397ab478551a6f0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
