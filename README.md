@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**the one situation where it might help**  
-<img src="https://preview.redd.it/ch471365v9qg1.png?width=320&crop=smart&auto=webp&s=1c80510e5834583f8db900afc745ecc9173457d5" alt="Random Meme" width="500"/>
+**God mode unlocked**  
+<img src="https://preview.redd.it/c9zoyxtrtkqg1.gif?width=640&crop=smart&format=png8&s=0e3cce8ae1a40546aa14a999afd34ee6b8cfb552" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
