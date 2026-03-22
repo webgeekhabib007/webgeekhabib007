@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dads comeup with the randomest shit whenever they want to spend time with us**  
-<img src="https://preview.redd.it/la0ubwlu8dqg1.png?width=960&crop=smart&auto=webp&s=bbc21ed3ac1152d7ff95bfc7643dd2a67da5a73a" alt="Random Meme" width="500"/>
+**Dear Conspiracy Theorists: Stop giving the government more ideas!**  
+<img src="https://preview.redd.it/1top1sit10qg1.png?width=1080&crop=smart&auto=webp&s=4d671c7808578d0a8b20f8118cadf0ac2c6adfda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
