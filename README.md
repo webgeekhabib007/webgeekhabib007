@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dear Conspiracy Theorists: Stop giving the government more ideas!**  
-<img src="https://preview.redd.it/1top1sit10qg1.png?width=1080&crop=smart&auto=webp&s=4d671c7808578d0a8b20f8118cadf0ac2c6adfda" alt="Random Meme" width="500"/>
+**The Good Ol' Days of Chuck Norris**  
+<img src="https://preview.redd.it/kb572apdgaqg1.png?width=320&crop=smart&auto=webp&s=5725f3d20a8295dbed87d40314bce510393e1e17" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
