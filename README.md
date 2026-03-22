@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/7pio4xyv3gqg1.png?width=1080&crop=smart&auto=webp&s=0a23b8492efb8ccc688107d9dde72d40d16581f9" alt="Random Meme" width="500"/>
+**Dear Conspiracy Theorists: Stop giving the government more ideas!**  
+<img src="https://preview.redd.it/1top1sit10qg1.png?width=1080&crop=smart&auto=webp&s=4d671c7808578d0a8b20f8118cadf0ac2c6adfda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
