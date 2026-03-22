@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Without Nvidia none of this would have been possible**  
-<img src="https://preview.redd.it/f1ibbutrqjqg1.png?width=1080&crop=smart&auto=webp&s=1f38417c2d3259494484679be4458be771f88275" alt="Random Meme" width="500"/>
+**the one situation where it might help**  
+<img src="https://preview.redd.it/ch471365v9qg1.png?width=320&crop=smart&auto=webp&s=1c80510e5834583f8db900afc745ecc9173457d5" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
