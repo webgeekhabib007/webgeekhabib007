@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dear Conspiracy Theorists: Stop giving the government more ideas!**  
-<img src="https://preview.redd.it/1top1sit10qg1.png?width=1080&crop=smart&auto=webp&s=4d671c7808578d0a8b20f8118cadf0ac2c6adfda" alt="Random Meme" width="500"/>
+**God mode unlocked**  
+<img src="https://preview.redd.it/c9zoyxtrtkqg1.gif?width=640&crop=smart&format=png8&s=0e3cce8ae1a40546aa14a999afd34ee6b8cfb552" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
