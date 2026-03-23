@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**[OC] It never really leaves**  
-<img src="https://preview.redd.it/vg3dvjx75rqg1.png?width=960&crop=smart&auto=webp&s=a10351c7bc62fbaf27d5ab4cc71d897a5b97e90c" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/zf0or7sphdqg1.gif?width=320&crop=smart&format=png8&s=da6cff46cfb7151c3518605dab7b642bacc13804" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
