@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Apparently I don't sound like Elvis**  
-<img src="https://preview.redd.it/si70kztbnmqg1.png?width=320&crop=smart&auto=webp&s=963a441c3dac38ca9f9a07e5737b38fca7041c4f" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/f4ht0qku8fqg1.png?width=1080&crop=smart&auto=webp&s=30d1257d5c67c70b7bd68b47c92812a92a8675ce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
