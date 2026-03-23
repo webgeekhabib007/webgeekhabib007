@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yes, it's a Russian meme, but I specifically translated the top part.**  
-<img src="https://preview.redd.it/ez3egpxbrqqg1.png?width=1080&crop=smart&auto=webp&s=7c34c32ac7c8148cc0a3e9ceb916af36d9f48c20" alt="Random Meme" width="500"/>
+**The best part imo**  
+<img src="https://preview.redd.it/cwc24jioslqg1.png?width=1080&crop=smart&auto=webp&s=caf475e86e7d5a4dd15352395bcbc02823edec45" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
