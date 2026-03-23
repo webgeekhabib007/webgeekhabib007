@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The best part imo**  
-<img src="https://preview.redd.it/cwc24jioslqg1.png?width=1080&crop=smart&auto=webp&s=caf475e86e7d5a4dd15352395bcbc02823edec45" alt="Random Meme" width="500"/>
+**Poor countries.  :'(**  
+<img src="https://preview.redd.it/v6vi6nppfsqg1.png?width=640&crop=smart&auto=webp&s=b8514ae0f660fd3d3fbc3e299571ffb4281340ee" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
