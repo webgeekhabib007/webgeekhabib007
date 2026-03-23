@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/7pio4xyv3gqg1.png?width=1080&crop=smart&auto=webp&s=0a23b8492efb8ccc688107d9dde72d40d16581f9" alt="Random Meme" width="500"/>
+**[OC] Every programmer at 3 AM**  
+<img src="https://preview.redd.it/mru8m9l9cnqg1.png?width=640&crop=smart&auto=webp&s=6648b45f25a7473a61a53461a7b56162496b0099" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
