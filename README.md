@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Poor countries.  :'(**  
-<img src="https://preview.redd.it/v6vi6nppfsqg1.png?width=640&crop=smart&auto=webp&s=b8514ae0f660fd3d3fbc3e299571ffb4281340ee" alt="Random Meme" width="500"/>
+**Enter The Dragon 2?**  
+<img src="https://preview.redd.it/c4nyhununmqg1.png?width=640&crop=smart&auto=webp&s=0d157420c0141842f0f7b46dca60ee6065b4b332" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
