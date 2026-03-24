@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Scientists at Chernobyl.**  
-<img src="https://preview.redd.it/hiectbsbsyqg1.gif?width=216&crop=smart&format=png8&s=1176b920f97be52dd0d407bc59812a423a294474" alt="Random Meme" width="500"/>
+**I just wanna help**  
+<img src="https://preview.redd.it/vjwpzouy0iqg1.gif?width=320&crop=smart&format=png8&s=c3a9bf93dbe2fd29fe770ce6a462ea391889e9a0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
