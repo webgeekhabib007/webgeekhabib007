@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The four horsemen**  
-<img src="https://preview.redd.it/9jvoerxifuqg1.png?width=960&crop=smart&auto=webp&s=463961d9d0c04d05b3cb191d7bf3227936cc643c" alt="Random Meme" width="500"/>
+**Okay "Mike" with "20 years of mechanic experience"**  
+<img src="https://preview.redd.it/zzpzmzsbwuqg1.png?width=320&crop=smart&auto=webp&s=aa7612a2a1afbd8a5254cce6a097732c340f32f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
