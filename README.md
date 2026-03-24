@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Okay "Mike" with "20 years of mechanic experience"**  
-<img src="https://preview.redd.it/zzpzmzsbwuqg1.png?width=320&crop=smart&auto=webp&s=aa7612a2a1afbd8a5254cce6a097732c340f32f2" alt="Random Meme" width="500"/>
+**Please, think of the kittens**  
+<img src="https://preview.redd.it/j2iszf1ulvqg1.png?width=320&crop=smart&auto=webp&s=316918c34bd3900b9853ee934e15fdc16c8e9c1a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
