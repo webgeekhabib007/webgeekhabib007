@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Milly Bob Thornton**  
-<img src="https://preview.redd.it/x9eitczx2xqg1.png?width=960&crop=smart&auto=webp&s=a443588ab8f912a802e653f0d5396dc97c4c387d" alt="Random Meme" width="500"/>
+**It's just like that, no idea why**  
+<img src="https://preview.redd.it/d08x7yejhvqg1.gif?width=320&crop=smart&format=png8&s=463a7d689eeaeb046f8dd4be1b2a087852e463b1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
