@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yet Another DLSS 5 meme**  
-<img src="https://preview.redd.it/issyxomqxyqg1.png?width=1080&crop=smart&auto=webp&s=65844e244fc147c69c7b0710aa7b6d7f62d63627" alt="Random Meme" width="500"/>
+**Scientists at Chernobyl.**  
+<img src="https://preview.redd.it/hiectbsbsyqg1.gif?width=216&crop=smart&format=png8&s=1176b920f97be52dd0d407bc59812a423a294474" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
