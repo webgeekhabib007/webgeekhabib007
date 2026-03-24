@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/55lutmzkiyqg1.png?width=1080&crop=smart&auto=webp&s=1701becf40a42aae435823fd8dfd4f65fe3b507d" alt="Random Meme" width="500"/>
+**Okay "Mike" with "20 years of mechanic experience"**  
+<img src="https://preview.redd.it/zzpzmzsbwuqg1.png?width=320&crop=smart&auto=webp&s=aa7612a2a1afbd8a5254cce6a097732c340f32f2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
