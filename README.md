@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/skbrdnkalrqg1.png?width=640&crop=smart&auto=webp&s=6251f2ac666e1e8a3050c53f2d3f5e8ff6fb0334" alt="Random Meme" width="500"/>
+**The four horsemen**  
+<img src="https://preview.redd.it/9jvoerxifuqg1.png?width=960&crop=smart&auto=webp&s=463961d9d0c04d05b3cb191d7bf3227936cc643c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
