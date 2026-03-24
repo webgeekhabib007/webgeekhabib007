@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I just wanna help**  
-<img src="https://preview.redd.it/vjwpzouy0iqg1.gif?width=320&crop=smart&format=png8&s=c3a9bf93dbe2fd29fe770ce6a462ea391889e9a0" alt="Random Meme" width="500"/>
+**The four horsemen**  
+<img src="https://preview.redd.it/9jvoerxifuqg1.png?width=960&crop=smart&auto=webp&s=463961d9d0c04d05b3cb191d7bf3227936cc643c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
