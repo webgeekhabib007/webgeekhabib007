@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Please, think of the kittens**  
-<img src="https://preview.redd.it/j2iszf1ulvqg1.png?width=320&crop=smart&auto=webp&s=316918c34bd3900b9853ee934e15fdc16c8e9c1a" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/skbrdnkalrqg1.png?width=640&crop=smart&auto=webp&s=6251f2ac666e1e8a3050c53f2d3f5e8ff6fb0334" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
