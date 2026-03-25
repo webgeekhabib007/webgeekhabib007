@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Good vs Evil animal logic**  
-<img src="https://preview.redd.it/lq02vdr5b2rg1.png?width=1080&crop=smart&auto=webp&s=87915d662e64fa3a08fa4de2e28a9ad80630a0f7" alt="Random Meme" width="500"/>
+**What a long mountain range does to a country.**  
+<img src="https://preview.redd.it/47xglui4x9rg1.png?width=640&crop=smart&auto=webp&s=8f478f9b5ac4ba6419d1281464981b008aa1ecfc" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
