@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/e8bo2k3cnsqg1.png?width=1080&crop=smart&auto=webp&s=d9c1e741b8e7ce4ddfeab362b02eac6484f4c849" alt="Random Meme" width="500"/>
+**Is this conspiracy too stupid or too real? Is it evel alowed here by rules?**  
+<img src="https://preview.redd.it/jap5rwdvt6rg1.png?width=640&crop=smart&auto=webp&s=741a3af6fcf16cb54d84b500da6e0780f25b6c0a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
