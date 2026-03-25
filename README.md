@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Enter The Dragon 2?**  
-<img src="https://preview.redd.it/c4nyhununmqg1.png?width=640&crop=smart&auto=webp&s=0d157420c0141842f0f7b46dca60ee6065b4b332" alt="Random Meme" width="500"/>
+**You know that's how they decide**  
+<img src="https://preview.redd.it/4er0oovnb1rg1.gif?width=320&crop=smart&format=png8&s=cae563be74511a205b7487ccda254c317a620194" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
