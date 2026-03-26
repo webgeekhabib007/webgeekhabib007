@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Kids dont get a pass**  
-<img src="https://preview.redd.it/erw9tz05w6rg1.gif?width=320&crop=smart&format=png8&s=6c03a04d277b075aec027bf4a7f5e2bda8743a19" alt="Random Meme" width="500"/>
+**Pumped up kicks**  
+<img src="https://preview.redd.it/g2780vn1z0rg1.gif?width=640&crop=smart&format=png8&s=1e771e0db2108fe873c45e05fe4af9577f2e94e0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
