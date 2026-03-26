@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Address Me**  
-<img src="https://preview.redd.it/4etun6bjserg1.png?width=960&crop=smart&auto=webp&s=6c1ae2e82f88135167a98f4d713b457e9a44da82" alt="Random Meme" width="500"/>
+**The New Harry Potter**  
+<img src="https://preview.redd.it/7wwxnyc0xerg1.png?width=1080&crop=smart&auto=webp&s=a3d18a219b324029a8cefe21f8b1edc6b880a28a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
