@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**What a long mountain range does to a country.**  
-<img src="https://preview.redd.it/47xglui4x9rg1.png?width=640&crop=smart&auto=webp&s=8f478f9b5ac4ba6419d1281464981b008aa1ecfc" alt="Random Meme" width="500"/>
+**Kids dont get a pass**  
+<img src="https://preview.redd.it/erw9tz05w6rg1.gif?width=320&crop=smart&format=png8&s=6c03a04d277b075aec027bf4a7f5e2bda8743a19" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
