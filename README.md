@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Pumped up kicks**  
-<img src="https://preview.redd.it/g2780vn1z0rg1.gif?width=640&crop=smart&format=png8&s=1e771e0db2108fe873c45e05fe4af9577f2e94e0" alt="Random Meme" width="500"/>
+**I just wanna help**  
+<img src="https://preview.redd.it/vjwpzouy0iqg1.gif?width=320&crop=smart&format=png8&s=c3a9bf93dbe2fd29fe770ce6a462ea391889e9a0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
