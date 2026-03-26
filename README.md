@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I tell you what**  
-<img src="https://preview.redd.it/nua1sctkc7rg1.png?width=1080&crop=smart&auto=webp&s=cf0d5273d0c07b12f513c3c3b951ce9526d5767c" alt="Random Meme" width="500"/>
+**Freedomcels 😡**  
+<img src="https://preview.redd.it/r9olttsm67rg1.png?width=640&crop=smart&auto=webp&s=b45bab64b2b0788acbfeffbb86090eb60db08bb9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
