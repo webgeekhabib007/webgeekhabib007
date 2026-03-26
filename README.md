@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I just wanna help**  
-<img src="https://preview.redd.it/vjwpzouy0iqg1.gif?width=320&crop=smart&format=png8&s=c3a9bf93dbe2fd29fe770ce6a462ea391889e9a0" alt="Random Meme" width="500"/>
+**The author clearly is unbiased and trustworthy.**  
+<img src="https://preview.redd.it/htoa2cvbd6rg1.png?width=1080&crop=smart&auto=webp&s=1d6e47a7713f39b358fb173f63cd8c32938a2fc4" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
