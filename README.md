@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The New Harry Potter**  
-<img src="https://preview.redd.it/7wwxnyc0xerg1.png?width=1080&crop=smart&auto=webp&s=a3d18a219b324029a8cefe21f8b1edc6b880a28a" alt="Random Meme" width="500"/>
+**sounds fishy**  
+<img src="https://preview.redd.it/unjtg98wparg1.png?width=640&crop=smart&auto=webp&s=d7fec96edb67dabba96f741ac996052b522cd701" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
