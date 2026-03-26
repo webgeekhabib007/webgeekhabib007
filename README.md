@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The author clearly is unbiased and trustworthy.**  
-<img src="https://preview.redd.it/htoa2cvbd6rg1.png?width=1080&crop=smart&auto=webp&s=1d6e47a7713f39b358fb173f63cd8c32938a2fc4" alt="Random Meme" width="500"/>
+**What the actual fuck**  
+<img src="https://preview.redd.it/byb5l7c2ysqg1.gif?width=320&crop=smart&format=png8&s=0e570b0b0b84b98637c5fd4fc52e1f4df8f08350" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
