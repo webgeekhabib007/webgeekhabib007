@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**sounds fishy**  
-<img src="https://preview.redd.it/unjtg98wparg1.png?width=640&crop=smart&auto=webp&s=d7fec96edb67dabba96f741ac996052b522cd701" alt="Random Meme" width="500"/>
+**I had barely tried in school bcuz everyone always said elementary and junior didn't matter**  
+<img src="https://preview.redd.it/vdn9os6z5arg1.png?width=640&crop=smart&auto=webp&s=3c3556a58c80b9fe5ec4c8e69885f3966cde4d86" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
