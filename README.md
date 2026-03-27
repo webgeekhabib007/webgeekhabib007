@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Blue pill is going hard lately**  
-<img src="https://preview.redd.it/u2newqqrguqg1.png?width=1080&crop=smart&auto=webp&s=c61a941c42a512fb734a51d2e23c226d32bd2ef9" alt="Random Meme" width="500"/>
+**Every single time**  
+<img src="https://preview.redd.it/lpwwrkd92drg1.png?width=640&crop=smart&auto=webp&s=bc3c3ce48fcd7b6bcb8c70f55203a28868787a6a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
