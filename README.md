@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**VH1 - "Behind the Muppets"**  
-<img src="https://preview.redd.it/f1gdbkeydgrg1.png?width=320&crop=smart&auto=webp&s=45d72d4b46b7c69a665c0b1be59386655c666269" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/kydpy6rkm7rg1.png?width=1080&crop=smart&auto=webp&s=77aafb7c10824fdba767e4cf2bae5dde6655c414" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
