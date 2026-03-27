@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can you hear the music?**  
-<img src="https://preview.redd.it/xm9e081g7crg1.png?width=1080&crop=smart&auto=webp&s=dced0ce13e0037df7318ce43fb702f21b919e871" alt="Random Meme" width="500"/>
+**me irl**  
+<img src="https://preview.redd.it/pcwuf47obcrg1.png?width=320&crop=smart&auto=webp&s=38d610b3801e6015bdb065c9507e79c2571fe998" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
