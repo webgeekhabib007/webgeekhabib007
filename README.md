@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We must stay away from the deep zone.**  
-<img src="https://preview.redd.it/08mw1c04j1rg1.png?width=640&crop=smart&auto=webp&s=45f2cf5b489e61cb3172e245b760c9ba89890f20" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/5ii9e1u1gorg1.png?width=640&crop=smart&auto=webp&s=3cf156e18d19ea035d6268d164607610948b90a2" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
