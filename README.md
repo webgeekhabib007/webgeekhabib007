@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/r53hqxfc1krg1.png?width=1080&crop=smart&auto=webp&s=93905ad2ae38d2a07c2c152eff176108d642a727" alt="Random Meme" width="500"/>
+**"Ma'am, your tactics frighten and confuse me."**  
+<img src="https://preview.redd.it/fd8nuayd0qrg1.png?width=640&crop=smart&auto=webp&s=1586cc2827e1c4589a64515a088e60f097f6438f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
