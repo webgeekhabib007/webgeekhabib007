@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We must boycott!**  
-<img src="https://preview.redd.it/a995238bwmrg1.png?width=640&crop=smart&auto=webp&s=58a15e3bfa014f4c652503415e6f44a5dfcc2896" alt="Random Meme" width="500"/>
+**The Sun's Parents Weren't Even First Gen Stars**  
+<img src="https://preview.redd.it/pdvvg2rwvkrg1.png?width=320&crop=smart&auto=webp&s=6991589b7f40a474420867aa69f93ca88c76381f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
