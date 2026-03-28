@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Absolute cinema**  
-<img src="https://preview.redd.it/qozmeu37zdrg1.gif?width=640&crop=smart&format=png8&s=05a1ee9aaba4933f689ad7275057c2126ae1f6fa" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/r53hqxfc1krg1.png?width=1080&crop=smart&auto=webp&s=93905ad2ae38d2a07c2c152eff176108d642a727" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
