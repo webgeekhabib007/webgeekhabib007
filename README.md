@@ -106,8 +106,9 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/kydpy6rkm7rg1.png?width=1080&crop=smart&auto=webp&s=77aafb7c10824fdba767e4cf2bae5dde6655c414" alt="Random Meme" width="500"/>
+**Career ended before lunch 😭
+Me hitting the pose after deleting the whole company database on first day**  
+<img src="https://preview.redd.it/0prnuvzapdrg1.png?width=1080&crop=smart&auto=webp&s=22601e6cae41aa5513cfce95e0f4b304db552598" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
