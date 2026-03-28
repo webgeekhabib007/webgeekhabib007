@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We don’t do that here**  
-<img src="https://preview.redd.it/mqlwsox6dkrg1.png?width=960&crop=smart&auto=webp&s=90f2ce87d8ca1b13de5b3be97be191f06b74c5ab" alt="Random Meme" width="500"/>
+**pool's closed**  
+<img src="https://preview.redd.it/u1y8zh85norg1.png?width=320&crop=smart&auto=webp&s=37d235c3f22538dd92692d7791217a4ddf1f6cf8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
