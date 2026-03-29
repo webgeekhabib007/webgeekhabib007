@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The best modern conspiracy.**  
-<img src="https://preview.redd.it/59oo57rkd4rg1.png?width=960&crop=smart&auto=webp&s=7e3d79441afc8c86000f4696ab14da05a59c5a02" alt="Random Meme" width="500"/>
+**Belive it or not, Oil is cooked**  
+<img src="https://preview.redd.it/ti2xbplcffrg1.png?width=640&crop=smart&auto=webp&s=0b283ada90def36cb784815bba517d80d34212ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
