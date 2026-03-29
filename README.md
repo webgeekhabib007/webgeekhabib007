@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me irl**  
-<img src="https://preview.redd.it/qxqno5f1yfrg1.png?width=1080&crop=smart&auto=webp&s=c630e521e594d016a81514c88844396e81bffe46" alt="Random Meme" width="500"/>
+**Tbf you could put any modern company and it would still work**  
+<img src="https://preview.redd.it/uehegiuumwrg1.png?width=640&crop=smart&auto=webp&s=2c22d8ede77feff30a36f0336c26f201ec207e7f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
