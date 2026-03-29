@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**feel like a clown...**  
-<img src="https://preview.redd.it/fzpy63s1kyrg1.png?width=960&crop=smart&auto=webp&s=894fb3eb40210a8e7d099300caee5fb4db7fae7a" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/0w8216sousrg1.png?width=640&crop=smart&auto=webp&s=bdfe2157fdba174958e2948386cb4f22d9e625b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
