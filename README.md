@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/dngk1bd0ewrg1.png?width=1080&crop=smart&auto=webp&s=ec8cd5439ed5a95bbc68a2376effea67bf180d84" alt="Random Meme" width="500"/>
+**The best modern conspiracy.**  
+<img src="https://preview.redd.it/59oo57rkd4rg1.png?width=960&crop=smart&auto=webp&s=7e3d79441afc8c86000f4696ab14da05a59c5a02" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
