@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me irl**  
-<img src="https://preview.redd.it/0w8216sousrg1.png?width=640&crop=smart&auto=webp&s=bdfe2157fdba174958e2948386cb4f22d9e625b6" alt="Random Meme" width="500"/>
+**Belive it or not, Oil is cooked**  
+<img src="https://preview.redd.it/ti2xbplcffrg1.png?width=640&crop=smart&auto=webp&s=0b283ada90def36cb784815bba517d80d34212ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
