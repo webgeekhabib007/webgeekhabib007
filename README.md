@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Tbf you could put any modern company and it would still work**  
-<img src="https://preview.redd.it/uehegiuumwrg1.png?width=640&crop=smart&auto=webp&s=2c22d8ede77feff30a36f0336c26f201ec207e7f" alt="Random Meme" width="500"/>
+**This took 4 hours**  
+<img src="https://preview.redd.it/y2l42gn72crg1.png?width=640&crop=smart&auto=webp&s=338b222c50c2dfa4f7a103ffe9f943bbab08df8f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
