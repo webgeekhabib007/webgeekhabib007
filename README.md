@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The Sun's Parents Weren't Even First Gen Stars**  
-<img src="https://preview.redd.it/pdvvg2rwvkrg1.png?width=320&crop=smart&auto=webp&s=6991589b7f40a474420867aa69f93ca88c76381f" alt="Random Meme" width="500"/>
+**Me irl**  
+<img src="https://preview.redd.it/0w8216sousrg1.png?width=640&crop=smart&auto=webp&s=bdfe2157fdba174958e2948386cb4f22d9e625b6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
