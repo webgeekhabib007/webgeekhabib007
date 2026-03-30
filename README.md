@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Live action Maui doesn't have nipples Greg....**  
-<img src="https://preview.redd.it/lfl6y8xdk2sg1.png?width=1080&crop=smart&auto=webp&s=a3280728f71e6d13b147137d2f5fe5656b0baaaa" alt="Random Meme" width="500"/>
+**It is really getting out of hand**  
+<img src="https://preview.redd.it/otwa5uph62sg1.png?width=960&crop=smart&auto=webp&s=42cebb4e1bc7f12af93a48d83229738bb9befae0" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
