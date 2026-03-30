@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It is really getting out of hand**  
-<img src="https://preview.redd.it/otwa5uph62sg1.png?width=960&crop=smart&auto=webp&s=42cebb4e1bc7f12af93a48d83229738bb9befae0" alt="Random Meme" width="500"/>
+**It provides better sleep too**  
+<img src="https://preview.redd.it/5t45ni6mu5sg1.gif?width=640&crop=smart&format=png8&s=1480e6e5cf19700a6d3f5b779aaaf92a0911d402" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
