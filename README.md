@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/dngk1bd0ewrg1.png?width=1080&crop=smart&auto=webp&s=ec8cd5439ed5a95bbc68a2376effea67bf180d84" alt="Random Meme" width="500"/>
+**That emotional beating was merciless**  
+<img src="https://preview.redd.it/hy7uwb8oq8rg1.png?width=320&crop=smart&auto=webp&s=1789cafb7e52188af95fac2fc67dcb4be8d9caef" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
