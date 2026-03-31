@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I mean 31 bucks aint that bad**  
-<img src="https://preview.redd.it/4yv3qtly4dsg1.png?width=320&crop=smart&auto=webp&s=b2f448f198fd3a56dba3ea9ff0b087772c22a7ea" alt="Random Meme" width="500"/>
+**Temu be like**  
+<img src="https://preview.redd.it/3itmny6bvcsg1.png?width=960&crop=smart&auto=webp&s=21e6ee33024881de341fc5d3c440be1f8fadb9be" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
