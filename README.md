@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/hch236i0g2sg1.png?width=320&crop=smart&auto=webp&s=292882d12875a160ebf8367b2dbffab2f15fd3a4" alt="Random Meme" width="500"/>
+**rn saturn has 285 of them**  
+<img src="https://external-preview.redd.it/iPY6BerjO5XQjmGK1VZfBkvMZf4EEs9uKR4TP0IuSUM.gif?width=320&crop=smart&format=png8&s=60f4904083e31b663977d2b9f09bec804d9eabb6" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
