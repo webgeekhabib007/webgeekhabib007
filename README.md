@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**To this day**  
-<img src="https://preview.redd.it/vafl628knasg1.gif?width=320&crop=smart&format=png8&s=a92415d617adabb97a0898f9089705d7cbd619ca" alt="Random Meme" width="500"/>
+**I mean 31 bucks aint that bad**  
+<img src="https://preview.redd.it/4yv3qtly4dsg1.png?width=320&crop=smart&auto=webp&s=b2f448f198fd3a56dba3ea9ff0b087772c22a7ea" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
