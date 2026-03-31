@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Temu be like**  
-<img src="https://preview.redd.it/3itmny6bvcsg1.png?width=960&crop=smart&auto=webp&s=21e6ee33024881de341fc5d3c440be1f8fadb9be" alt="Random Meme" width="500"/>
+**2021 was crazy for crypto**  
+<img src="https://preview.redd.it/47pmog9bdwrg1.gif?width=640&crop=smart&format=png8&s=fe1e69a8b6a0c0191ae77f09e24a2a47deec4cda" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
