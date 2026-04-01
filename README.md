@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**pokemon nepotism**  
-<img src="https://preview.redd.it/bbzpk2f3qfsg1.png?width=640&crop=smart&auto=webp&s=108b7cf6570e9d5d0a826fdbc2fd13beef456000" alt="Random Meme" width="500"/>
+**Well. fair enough....**  
+<img src="https://preview.redd.it/7lt9p5ygxlsg1.png?width=1080&crop=smart&auto=webp&s=23f615d4f6acb8f205df96d89a7172330838fcad" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
