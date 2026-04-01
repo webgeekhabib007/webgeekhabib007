@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Toho Even Used the Mod Footage; That's Just How Good Red Had It**  
-<img src="https://preview.redd.it/lpxdhm3bq3sg1.png?width=640&crop=smart&auto=webp&s=e355bea800841d3c810e800470a057edff2f8ca3" alt="Random Meme" width="500"/>
+**pokemon nepotism**  
+<img src="https://preview.redd.it/bbzpk2f3qfsg1.png?width=640&crop=smart&auto=webp&s=108b7cf6570e9d5d0a826fdbc2fd13beef456000" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
