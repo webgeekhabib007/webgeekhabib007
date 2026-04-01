@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Toho Even Used the Mod Footage; That's Just How Good Red Had It**  
-<img src="https://preview.redd.it/lpxdhm3bq3sg1.png?width=640&crop=smart&auto=webp&s=e355bea800841d3c810e800470a057edff2f8ca3" alt="Random Meme" width="500"/>
+**I can’t fix her guys**  
+<img src="https://preview.redd.it/6hv1b0dwe4sg1.gif?width=640&crop=smart&format=png8&s=2723f8c788679a4feb6ec4b9113e2720b97e1e8d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
