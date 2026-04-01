@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can’t fix her guys**  
-<img src="https://preview.redd.it/6hv1b0dwe4sg1.gif?width=640&crop=smart&format=png8&s=2723f8c788679a4feb6ec4b9113e2720b97e1e8d" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/3fp9fcznjdsg1.png?width=1080&crop=smart&auto=webp&s=20667ddf10386e7b085ca485e1448bdc1c9d10bd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
