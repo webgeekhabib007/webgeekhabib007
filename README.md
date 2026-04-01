@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't believe that movie's that old.**  
-<img src="https://preview.redd.it/4y6238itebsg1.png?width=640&crop=smart&auto=webp&s=88827bbc277a8524305109db11b02b68ca1c05b9" alt="Random Meme" width="500"/>
+**Toho Even Used the Mod Footage; That's Just How Good Red Had It**  
+<img src="https://preview.redd.it/lpxdhm3bq3sg1.png?width=640&crop=smart&auto=webp&s=e355bea800841d3c810e800470a057edff2f8ca3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
