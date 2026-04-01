@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**its that time**  
-<img src="https://preview.redd.it/9x6l5wtgbmsg1.png?width=320&crop=smart&auto=webp&s=bc8a8e91d49e2ae01304d68c243cb6b30b11febe" alt="Random Meme" width="500"/>
+**pokemon nepotism**  
+<img src="https://preview.redd.it/bbzpk2f3qfsg1.png?width=640&crop=smart&auto=webp&s=108b7cf6570e9d5d0a826fdbc2fd13beef456000" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
