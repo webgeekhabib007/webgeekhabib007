@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**She is a hypocrite for this.**  
-<img src="https://preview.redd.it/4kzly5nnxlsg1.png?width=640&crop=smart&auto=webp&s=cb30009db4dc8d2c54c70313b8d2274061ada93f" alt="Random Meme" width="500"/>
+**quick hide all your moon oil**  
+<img src="https://preview.redd.it/5vkv94mijosg1.png?width=1080&crop=smart&auto=webp&s=e658e8a9c4740831e640a8ac64d7808e2698b044" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
