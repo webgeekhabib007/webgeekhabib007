@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Can't believe that movie's that old.**  
-<img src="https://preview.redd.it/4y6238itebsg1.png?width=640&crop=smart&auto=webp&s=88827bbc277a8524305109db11b02b68ca1c05b9" alt="Random Meme" width="500"/>
+**me.irl**  
+<img src="https://preview.redd.it/5eyrd3p9oesg1.png?width=1080&crop=smart&auto=webp&s=2d67a3cb1c29a2adef496530f1c3d9f1abe2c2d9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
