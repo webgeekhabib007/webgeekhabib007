@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Your honor this man should be let go.**  
-<img src="https://preview.redd.it/82vhwy0epnsg1.gif?width=640&crop=smart&format=png8&s=6730272afd13ba2ab40ea7f2593bdf3c39d987f2" alt="Random Meme" width="500"/>
+**10$ is 10$ guys**  
+<img src="https://preview.redd.it/47tbcujkinsg1.png?width=1080&crop=smart&auto=webp&s=d3d5bcab0ac48f7a20139f0f226c3096a6073338" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
