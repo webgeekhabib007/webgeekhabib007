@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**10$ is 10$ guys**  
-<img src="https://preview.redd.it/47tbcujkinsg1.png?width=1080&crop=smart&auto=webp&s=d3d5bcab0ac48f7a20139f0f226c3096a6073338" alt="Random Meme" width="500"/>
+**Hey, take it easy bud**  
+<img src="https://preview.redd.it/xbzfrmv4jusg1.png?width=960&crop=smart&auto=webp&s=326c97534535939c939d71f8f12d7bdc81074bd8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
