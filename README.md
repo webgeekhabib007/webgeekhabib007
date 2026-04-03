@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hey, take it easy bud**  
-<img src="https://preview.redd.it/xbzfrmv4jusg1.png?width=960&crop=smart&auto=webp&s=326c97534535939c939d71f8f12d7bdc81074bd8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/1ite3kzh7gsg1.png?width=1080&crop=smart&auto=webp&s=97db4227570d7cd2727cd021ffa4e2ed8970a2d3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
