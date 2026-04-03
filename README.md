@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It can be depressing to see how little is left at the start of the month**  
-<img src="https://preview.redd.it/96w7ljw50lsg1.png?width=1080&crop=smart&auto=webp&s=9ebe01bdba83c6a37b4c0c017b8d5d2292b21fb4" alt="Random Meme" width="500"/>
+**I can rest now**  
+<img src="https://preview.redd.it/tz9gwi9eplsg1.gif?width=216&crop=smart&format=png8&s=76f49226ffee395937472cc1d206e68cf402254f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
