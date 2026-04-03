@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**You again?!?!**  
-<img src="https://preview.redd.it/di42obkyezsg1.gif?width=640&crop=smart&format=png8&s=40d5033f9ab11e4ca120a61c40716b9f72016321" alt="Random Meme" width="500"/>
+**How many layers of elf-on-shelf rhymes are you on right now**  
+<img src="https://preview.redd.it/xiv54v1rczsg1.png?width=960&crop=smart&auto=webp&s=81dc3e02fd4dbe63fe4f98109c5ff1ed20f97269" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
