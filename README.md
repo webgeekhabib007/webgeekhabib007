@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**fih🥀 (by me)**  
-<img src="https://preview.redd.it/yn3uy9ihrusg1.png?width=1080&crop=smart&auto=webp&s=bf6b85be6d9478846991dad0280ce49235088f8f" alt="Random Meme" width="500"/>
+**In the depths of romance**  
+<img src="https://preview.redd.it/e200uxxpeasg1.png?width=1080&crop=smart&auto=webp&s=20623d35d7e6ca3699961a68176602855d7c388d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
