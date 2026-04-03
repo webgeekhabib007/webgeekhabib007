@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/trfxsbfb5tsg1.png?width=320&crop=smart&auto=webp&s=3296c4f52c2549d17557b560b667d8721273d373" alt="Random Meme" width="500"/>
+**Joker didn't know this was going to happen**  
+<img src="https://preview.redd.it/38jrrb1o2tsg1.png?width=960&crop=smart&auto=webp&s=eaf5d7bd19dc98c10230555f40e0cd515675a2e1" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
