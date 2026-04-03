@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I can rest now**  
-<img src="https://preview.redd.it/tz9gwi9eplsg1.gif?width=216&crop=smart&format=png8&s=76f49226ffee395937472cc1d206e68cf402254f" alt="Random Meme" width="500"/>
+**Relatable?**  
+<img src="https://preview.redd.it/qbg503c4q0tg1.png?width=1080&crop=smart&auto=webp&s=e2f818142e3acec752a3ceb1dd496525e5798e0b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
