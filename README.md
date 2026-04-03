@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's go time**  
-<img src="https://preview.redd.it/f79tuje9pmsg1.png?width=640&crop=smart&auto=webp&s=708080cb4b7be7d4412a9e8ac3719278dfb3cd39" alt="Random Meme" width="500"/>
+**I can rest now**  
+<img src="https://preview.redd.it/tz9gwi9eplsg1.gif?width=216&crop=smart&format=png8&s=76f49226ffee395937472cc1d206e68cf402254f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
