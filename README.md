@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Wow they let everyone in these days huh.**  
-<img src="https://preview.redd.it/p2ftf9u25esg1.gif?width=320&crop=smart&format=png8&s=169c3f2b308ee48bc32b1cf3a0b7c1894fc88db7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/03b4ocv6wpsg1.png?width=640&crop=smart&auto=webp&s=1e1b3255e8a80db86e477e3a6fa24c07924451ae" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
