@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"All your Latinas are belong to us."**  
-<img src="https://preview.redd.it/whioj48et3tg1.png?width=640&crop=smart&auto=webp&s=65031099f37539c1e23a7df61a653f29e1b0e27e" alt="Random Meme" width="500"/>
+**Hey, take it easy bud**  
+<img src="https://preview.redd.it/xbzfrmv4jusg1.png?width=960&crop=smart&auto=webp&s=326c97534535939c939d71f8f12d7bdc81074bd8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
