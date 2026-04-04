@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me when the fake ping**  
-<img src="https://preview.redd.it/3hxgev3in7tg1.png?width=320&crop=smart&auto=webp&s=ad796eeb5d3c4f8e4b062c62fd1e60c385ecbbbd" alt="Random Meme" width="500"/>
+**Moon landing? They can't even land now.**  
+<img src="https://preview.redd.it/4fd7j7nny4tg1.png?width=320&crop=smart&auto=webp&s=44dffdc08bf1ea052159720591c1e9e27cfdb99a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
