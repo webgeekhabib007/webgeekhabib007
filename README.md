@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Hey, take it easy bud**  
-<img src="https://preview.redd.it/xbzfrmv4jusg1.png?width=960&crop=smart&auto=webp&s=326c97534535939c939d71f8f12d7bdc81074bd8" alt="Random Meme" width="500"/>
+**me when the fake ping**  
+<img src="https://preview.redd.it/3hxgev3in7tg1.png?width=320&crop=smart&auto=webp&s=ad796eeb5d3c4f8e4b062c62fd1e60c385ecbbbd" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
