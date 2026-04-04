@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I've been stuck in this loop for years now**  
-<img src="https://preview.redd.it/r15rbaf012tg1.png?width=1080&crop=smart&auto=webp&s=ceaa04654a305caf3fae28a8feebdfa62d433305" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/tlrvdspva1tg1.png?width=1080&crop=smart&auto=webp&s=42e895eaea2b8617b1698bb9674c6c31b246cdce" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
