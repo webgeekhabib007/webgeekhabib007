@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Moon landing? They can't even land now.**  
-<img src="https://preview.redd.it/4fd7j7nny4tg1.png?width=320&crop=smart&auto=webp&s=44dffdc08bf1ea052159720591c1e9e27cfdb99a" alt="Random Meme" width="500"/>
+**Super spider butt-hair. It's canon.**  
+<img src="https://preview.redd.it/ot6ee1kyprsg1.png?width=1080&crop=smart&auto=webp&s=d488047b456b42e9272407eadf12ebff9fa1fb78" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
