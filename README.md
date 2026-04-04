@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Super spider butt-hair. It's canon.**  
-<img src="https://preview.redd.it/ot6ee1kyprsg1.png?width=1080&crop=smart&auto=webp&s=d488047b456b42e9272407eadf12ebff9fa1fb78" alt="Random Meme" width="500"/>
+**10$ is 10$ guys**  
+<img src="https://preview.redd.it/47tbcujkinsg1.png?width=1080&crop=smart&auto=webp&s=d3d5bcab0ac48f7a20139f0f226c3096a6073338" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
