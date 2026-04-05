@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Me_irl**  
-<img src="https://preview.redd.it/trfxsbfb5tsg1.png?width=320&crop=smart&auto=webp&s=3296c4f52c2549d17557b560b667d8721273d373" alt="Random Meme" width="500"/>
+**Where is Jessica?**  
+<img src="https://preview.redd.it/staocf0l5dtg1.png?width=640&crop=smart&auto=webp&s=41f3a9e77cea96e067a38f971e7735ceb291f40a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
