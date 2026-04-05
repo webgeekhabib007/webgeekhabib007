@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Brain doing it's thing at 1AM**  
-<img src="https://preview.redd.it/8dj4vlbgbetg1.png?width=1080&crop=smart&auto=webp&s=e8f0e23f2f8595200f1fc91c15741908293e17a9" alt="Random Meme" width="500"/>
+**Every single teen drama. No exceptions.**  
+<img src="https://preview.redd.it/4565a1o0aatg1.png?width=640&crop=smart&auto=webp&s=fc3582b78903222d5f379770e579e3893b7adcfb" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
