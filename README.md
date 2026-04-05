@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**An Alabaman title**  
-<img src="https://preview.redd.it/01engcqtu3tg1.png?width=640&crop=smart&auto=webp&s=f94bc964ca2754410447569aa2606cab127acefd" alt="Random Meme" width="500"/>
+**the tables have turned**  
+<img src="https://preview.redd.it/bn2qo4go6psg1.png?width=640&crop=smart&auto=webp&s=d71b95a28da8e54913e7c7e5478592c1e91ebd30" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
