@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**"All your Latinas are belong to us."**  
-<img src="https://preview.redd.it/whioj48et3tg1.png?width=640&crop=smart&auto=webp&s=65031099f37539c1e23a7df61a653f29e1b0e27e" alt="Random Meme" width="500"/>
+**Average Korean webtoon Antagonist be like**  
+<img src="https://preview.redd.it/1lq597xqyctg1.png?width=640&crop=smart&auto=webp&s=af8d882ba41a033ff541748bb17eb144be2b46ac" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
