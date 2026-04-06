@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I know you are but what am I**  
-<img src="https://preview.redd.it/bg6vz5ksihtg1.png?width=320&crop=smart&auto=webp&s=012d4f0747783488ff4d4469cabbb45d1f80e748" alt="Random Meme" width="500"/>
+**It's hard out here, my dudes.**  
+<img src="https://preview.redd.it/mykno11mk4tg1.gif?width=216&crop=smart&format=png8&s=5970b90f4257078a94d2c7db31335f1551c0a39d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
