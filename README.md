@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yes I am**  
-<img src="https://preview.redd.it/gii8z0gho8tg1.png?width=960&crop=smart&auto=webp&s=4719ab102d7c3a5d0eb581a0f3ab9578b35b95f8" alt="Random Meme" width="500"/>
+**A new contestant has entered the battlefield**  
+<img src="https://preview.redd.it/stpsjiic77tg1.png?width=640&crop=smart&auto=webp&s=ab141a1d371a6b4604da9731b9ef28f3ce750352" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
