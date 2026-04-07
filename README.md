@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Receiving wrong copper, Chiseling intensifies for 8 hours straight**  
-<img src="https://preview.redd.it/pit7gc0h4ttg1.png?width=320&crop=smart&auto=webp&s=a47be1a65098265313008eacf4c4ad08e231786e" alt="Random Meme" width="500"/>
+**Freeza is my spirit animal**  
+<img src="https://preview.redd.it/oyjrkof3lptg1.gif?width=640&crop=smart&format=png8&s=dbdd331a4f09c42a2b6dbcbbd91c415517f56838" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
