@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Freeza is my spirit animal**  
-<img src="https://preview.redd.it/oyjrkof3lptg1.gif?width=640&crop=smart&format=png8&s=dbdd331a4f09c42a2b6dbcbbd91c415517f56838" alt="Random Meme" width="500"/>
+**And on the third day He was risen.**  
+<img src="https://preview.redd.it/sfehlh8ycetg1.png?width=1080&crop=smart&auto=webp&s=5899640570c70c41b85686bdd0a64e2a0f834ab9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
