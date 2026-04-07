@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Try a harder pass next time**  
-<img src="https://preview.redd.it/8c9m0nn14zsg1.gif?width=640&crop=smart&format=png8&s=ea2c86e7392412d431b6d76c21ef49f91a3b6117" alt="Random Meme" width="500"/>
+**It's hard out here, my dudes.**  
+<img src="https://preview.redd.it/mykno11mk4tg1.gif?width=216&crop=smart&format=png8&s=5970b90f4257078a94d2c7db31335f1551c0a39d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
