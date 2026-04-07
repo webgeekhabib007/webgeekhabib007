@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Nightcrawler is so cool and a priest with a shotgun goes so hard. Why aren’t people like fictional characters**  
-<img src="https://preview.redd.it/zn3u4agwg8tg1.gif?width=640&crop=smart&format=png8&s=6756b78106090ec64a329cea7490ca04a8fd6017" alt="Random Meme" width="500"/>
+**One problem became two real fast**  
+<img src="https://preview.redd.it/my7rzr4rqmtg1.gif?width=320&crop=smart&format=png8&s=1af91d818b12552b44711db882504c04e3404e6f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
