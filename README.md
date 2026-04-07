@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dinner ruined.**  
-<img src="https://preview.redd.it/zelunwp0ektg1.gif?width=640&crop=smart&format=png8&s=388ce6c949a8d6d51f9fa079d7c73f0c687cd2d8" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/hdgymms9t5tg1.png?width=1080&crop=smart&auto=webp&s=3f9727776558c11cd8acbb26a8fc98790af76500" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
