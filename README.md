@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**It's hard out here, my dudes.**  
-<img src="https://preview.redd.it/mykno11mk4tg1.gif?width=216&crop=smart&format=png8&s=5970b90f4257078a94d2c7db31335f1551c0a39d" alt="Random Meme" width="500"/>
+**Nightcrawler is so cool and a priest with a shotgun goes so hard. Why aren’t people like fictional characters**  
+<img src="https://preview.redd.it/zn3u4agwg8tg1.gif?width=640&crop=smart&format=png8&s=6756b78106090ec64a329cea7490ca04a8fd6017" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
