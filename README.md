@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Mhm makes sense**  
-<img src="https://preview.redd.it/tmhxc2bz5utg1.png?width=960&crop=smart&auto=webp&s=d031224cc0c2a1d965abef195c6643c809e0f8f7" alt="Random Meme" width="500"/>
+**After all, why shouldn't I?**  
+<img src="https://preview.redd.it/lvilhz2kjvtg1.png?width=1080&crop=smart&auto=webp&s=04b92e76cbd8931727e83bad29f809f4b175c705" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
