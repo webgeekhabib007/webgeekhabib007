@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Freeza is my spirit animal**  
-<img src="https://preview.redd.it/oyjrkof3lptg1.gif?width=640&crop=smart&format=png8&s=dbdd331a4f09c42a2b6dbcbbd91c415517f56838" alt="Random Meme" width="500"/>
+**Who's offerring?**  
+<img src="https://preview.redd.it/kzg7tuwj9qtg1.png?width=320&crop=smart&auto=webp&s=1eb7a3ee95f2ad5ee3af5e013e75e643303e7f7a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
