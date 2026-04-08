@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This gonna be good**  
-<img src="https://preview.redd.it/qpffoh019ztg1.png?width=1080&crop=smart&auto=webp&s=f296fcd772dff25e6505d93a0fb3dfd9a2a8b3b3" alt="Random Meme" width="500"/>
+**ww3 fear**  
+<img src="https://preview.redd.it/mqk1affy90ug1.png?width=640&crop=smart&auto=webp&s=9e5cd1398500c3f6d47e85cd06080c647a3e0b0c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
