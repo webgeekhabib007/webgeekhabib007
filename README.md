@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**And on the third day He was risen.**  
-<img src="https://preview.redd.it/sfehlh8ycetg1.png?width=1080&crop=smart&auto=webp&s=5899640570c70c41b85686bdd0a64e2a0f834ab9" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/c95y08tp4ctg1.png?width=320&crop=smart&auto=webp&s=019ab8310f311e1beb8892f625f1b7e2ea19d54a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
