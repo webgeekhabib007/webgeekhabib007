@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**After all, why shouldn't I?**  
-<img src="https://preview.redd.it/lvilhz2kjvtg1.png?width=1080&crop=smart&auto=webp&s=04b92e76cbd8931727e83bad29f809f4b175c705" alt="Random Meme" width="500"/>
+**Freeza is my spirit animal**  
+<img src="https://preview.redd.it/oyjrkof3lptg1.gif?width=640&crop=smart&format=png8&s=dbdd331a4f09c42a2b6dbcbbd91c415517f56838" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
