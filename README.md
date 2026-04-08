@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Who's offerring?**  
-<img src="https://preview.redd.it/kzg7tuwj9qtg1.png?width=320&crop=smart&auto=webp&s=1eb7a3ee95f2ad5ee3af5e013e75e643303e7f7a" alt="Random Meme" width="500"/>
+**A very creative title.**  
+<img src="https://preview.redd.it/p5dhb7ojhvtg1.png?width=640&crop=smart&auto=webp&s=3f2d7082a46d05bb788cfc557d24f5d602022f71" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
