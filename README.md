@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**We are not the.. or are we**  
-<img src="https://preview.redd.it/wfjumnjer5ug1.png?width=640&crop=smart&auto=webp&s=6084133df580618cacbb302e6532a3bd952a265e" alt="Random Meme" width="500"/>
+**The audacity**  
+<img src="https://preview.redd.it/s2l2xiq0q3ug1.gif?width=640&crop=smart&format=png8&s=2ae1c3713ad2183e3b719e4cb5529cb5e883bbc3" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
