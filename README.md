@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The audacity**  
-<img src="https://preview.redd.it/s2l2xiq0q3ug1.gif?width=640&crop=smart&format=png8&s=2ae1c3713ad2183e3b719e4cb5529cb5e883bbc3" alt="Random Meme" width="500"/>
+**Yummy Scalpel**  
+<img src="https://preview.redd.it/fa9jrw1b7wtg1.gif?width=320&crop=smart&format=png8&s=8ba4ab02815b0a171a6c41cf4761b3e4644339a8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
