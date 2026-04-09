@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**me_irl**  
-<img src="https://preview.redd.it/6woneqdiqptg1.png?width=960&crop=smart&auto=webp&s=3aaf8e328dd6b82e202a10462f9bf08289553ed2" alt="Random Meme" width="500"/>
+**Back in the day we got a public execution if we used wikipedia**  
+<img src="https://preview.redd.it/qq40h478y0ug1.png?width=320&crop=smart&auto=webp&s=c70e6036d7054697eddf887c93b68fc94a26040b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
