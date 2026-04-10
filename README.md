@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This censorslop isn't even a TikTok-exclusive problem anymore**  
-<img src="https://preview.redd.it/gn43ssk42ztg1.png?width=1080&crop=smart&auto=webp&s=399cb5acc2362d11afdede41b3fa25abfff6b195" alt="Random Meme" width="500"/>
+**Me_irl**  
+<img src="https://preview.redd.it/2od0o2cjn6ug1.png?width=320&crop=smart&auto=webp&s=64484b627aa488c90c278f3ccffb493684b99f34" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
