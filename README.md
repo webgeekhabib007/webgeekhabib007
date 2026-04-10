@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Artemis detour**  
-<img src="https://preview.redd.it/0ogve8vs1stg1.png?width=640&crop=smart&auto=webp&s=45a8d4240065388e506069f0fe320e0ddd2c3d2e" alt="Random Meme" width="500"/>
+**Gotta keep scrolling**  
+<img src="https://preview.redd.it/ip3m83sev7ug1.gif?width=320&crop=smart&format=png8&s=e7c75fae59eb71adc19de627975084e3d5948b15" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
