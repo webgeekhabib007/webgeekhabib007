@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The temperature has dropped to 0**  
-<img src="https://preview.redd.it/t7wyfarx7cug1.gif?width=320&crop=smart&format=png8&s=16a62ff9bd94971c2b9da73200d5f4ba7682b2af" alt="Random Meme" width="500"/>
+**Back in the day we got a public execution if we used wikipedia**  
+<img src="https://preview.redd.it/qq40h478y0ug1.png?width=320&crop=smart&auto=webp&s=c70e6036d7054697eddf887c93b68fc94a26040b" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
