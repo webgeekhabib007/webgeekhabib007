@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Yummy Scalpel**  
-<img src="https://preview.redd.it/fa9jrw1b7wtg1.gif?width=320&crop=smart&format=png8&s=8ba4ab02815b0a171a6c41cf4761b3e4644339a8" alt="Random Meme" width="500"/>
+**This censorslop isn't even a TikTok-exclusive problem anymore**  
+<img src="https://preview.redd.it/gn43ssk42ztg1.png?width=1080&crop=smart&auto=webp&s=399cb5acc2362d11afdede41b3fa25abfff6b195" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
