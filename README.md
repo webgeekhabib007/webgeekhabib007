@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Dad Joke Dank**  
-<img src="https://preview.redd.it/dr9y36s3grtg1.png?width=1080&crop=smart&auto=webp&s=6742229d20dd063fd7bf5ac1ffcdded741d169af" alt="Random Meme" width="500"/>
+**Damn old man**  
+<img src="https://preview.redd.it/igrf7tq6w0ug1.png?width=960&crop=smart&auto=webp&s=e129f0f0ee57a1379e69b18eb5669299cf0052b9" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
