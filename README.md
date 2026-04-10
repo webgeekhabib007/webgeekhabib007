@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Thank you Steam**  
-<img src="https://preview.redd.it/qbs06493fztg1.gif?width=640&crop=smart&format=png8&s=e5af7af4cf9180c5b22be9508ac5af607a409250" alt="Random Meme" width="500"/>
+**X is full of govt AI bots**  
+<img src="https://preview.redd.it/tmw7vvd0s3ug1.png?width=320&crop=smart&auto=webp&s=0874fffbf9e4add9ddd619ab5da93ca3755397ca" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
