@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**X is full of govt AI bots**  
-<img src="https://preview.redd.it/tmw7vvd0s3ug1.png?width=320&crop=smart&auto=webp&s=0874fffbf9e4add9ddd619ab5da93ca3755397ca" alt="Random Meme" width="500"/>
+**I'm kind of weird**  
+<img src="https://preview.redd.it/73corfet59ug1.png?width=320&crop=smart&auto=webp&s=9b0a2a596939d162e0763f9fa88889b7e048c99f" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
