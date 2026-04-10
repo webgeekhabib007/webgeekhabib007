@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Gotta keep scrolling**  
-<img src="https://preview.redd.it/ip3m83sev7ug1.gif?width=320&crop=smart&format=png8&s=e7c75fae59eb71adc19de627975084e3d5948b15" alt="Random Meme" width="500"/>
+**The temperature has dropped to 0**  
+<img src="https://preview.redd.it/t7wyfarx7cug1.gif?width=320&crop=smart&format=png8&s=16a62ff9bd94971c2b9da73200d5f4ba7682b2af" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
