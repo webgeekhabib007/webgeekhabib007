@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Damn old man**  
-<img src="https://preview.redd.it/igrf7tq6w0ug1.png?width=960&crop=smart&auto=webp&s=e129f0f0ee57a1379e69b18eb5669299cf0052b9" alt="Random Meme" width="500"/>
+**Thank you Steam**  
+<img src="https://preview.redd.it/qbs06493fztg1.gif?width=640&crop=smart&format=png8&s=e5af7af4cf9180c5b22be9508ac5af607a409250" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
