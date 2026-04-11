@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**This is just Instagram being Instagram.**  
-<img src="https://preview.redd.it/fbg5y5fmbiug1.png?width=640&crop=smart&auto=webp&s=c2c44812c441645459c1778178633cc1212a8dc7" alt="Random Meme" width="500"/>
+**me_irl**  
+<img src="https://preview.redd.it/bl1edest89ug1.png?width=1080&crop=smart&auto=webp&s=aef55d0ca45ee3339054fe95171251574a542531" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
