@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I do make an excellent point**  
-<img src="https://preview.redd.it/z68bcqppjvtg1.png?width=1080&crop=smart&auto=webp&s=bbe91562ceb22f85097f2135491c26da0fa4506b" alt="Random Meme" width="500"/>
+**I love it when it jiggle jiggle!**  
+<img src="https://preview.redd.it/cxtgj89ny2ug1.gif?width=640&crop=smart&format=png8&s=dd4231d34f4318b4df050c4139f85abc1dab0d7a" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
