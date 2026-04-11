@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I had an idea**  
-<img src="https://preview.redd.it/3x91rnl1c3ug1.png?width=960&crop=smart&auto=webp&s=1607ae926bf3a991f5bbc18ed88d70f9101d233e" alt="Random Meme" width="500"/>
+**Yummy Scalpel**  
+<img src="https://preview.redd.it/fa9jrw1b7wtg1.gif?width=320&crop=smart&format=png8&s=8ba4ab02815b0a171a6c41cf4761b3e4644339a8" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
