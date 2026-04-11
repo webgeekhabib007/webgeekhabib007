@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**Don't want to get Doritos on my $60 controller.**  
-<img src="https://preview.redd.it/lyr84eqamgug1.gif?width=640&crop=smart&format=png8&s=f441d76c4b10159a0917374e239585fd4afc161c" alt="Random Meme" width="500"/>
+**A (not going to be reported on the news) title**  
+<img src="https://preview.redd.it/e5z7m87mmaug1.png?width=1080&crop=smart&auto=webp&s=bc9d57c039e68a39b34b862d7ed76b2f549f6b5c" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
