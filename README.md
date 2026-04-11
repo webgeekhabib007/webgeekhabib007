@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**The day I figured out that women want way more than flowers and kisses**  
-<img src="https://preview.redd.it/llhm8wezsjug1.png?width=1080&crop=smart&auto=webp&s=07c293a0573d5075d2f1938976d6fabca8ce9844" alt="Random Meme" width="500"/>
+**Well done my guy**  
+<img src="https://preview.redd.it/rz5w19cpzkug1.gif?width=320&crop=smart&format=png8&s=07ad4c71b1e8ae804ed7db89958bab7caacd4f06" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
