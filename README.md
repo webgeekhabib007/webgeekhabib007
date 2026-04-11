@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I mean how you gonna top the villain and the character designs from the second one. From what I’m seeing the new villain just lacks style compared to the last one.**  
-<img src="https://preview.redd.it/mr1d3wwf4utg1.gif?width=320&crop=smart&format=png8&s=0f832c26ff2e29b20be8bb17076440726cce9298" alt="Random Meme" width="500"/>
+**I had an idea**  
+<img src="https://preview.redd.it/3x91rnl1c3ug1.png?width=960&crop=smart&auto=webp&s=1607ae926bf3a991f5bbc18ed88d70f9101d233e" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
