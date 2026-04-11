@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I love it when it jiggle jiggle!**  
-<img src="https://preview.redd.it/cxtgj89ny2ug1.gif?width=640&crop=smart&format=png8&s=dd4231d34f4318b4df050c4139f85abc1dab0d7a" alt="Random Meme" width="500"/>
+**I did not drink water today**  
+<img src="https://preview.redd.it/it1dzhiqr7ug1.png?width=1080&crop=smart&auto=webp&s=7626cfc8c655e38e2e17d6350aee0cf223dd423d" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
