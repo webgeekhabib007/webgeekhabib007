@@ -106,8 +106,8 @@
 ### 😂 Random Meme
 
 <!-- MEME-START -->
-**I did not drink water today**  
-<img src="https://preview.redd.it/it1dzhiqr7ug1.png?width=1080&crop=smart&auto=webp&s=7626cfc8c655e38e2e17d6350aee0cf223dd423d" alt="Random Meme" width="500"/>
+**The day I figured out that women want way more than flowers and kisses**  
+<img src="https://preview.redd.it/llhm8wezsjug1.png?width=1080&crop=smart&auto=webp&s=07c293a0573d5075d2f1938976d6fabca8ce9844" alt="Random Meme" width="500"/>
 <!-- MEME-END -->
 
 ---
